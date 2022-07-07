@@ -1,6 +1,6 @@
 # My Writing Repo
 
-This git repo contains all my writing so far, from several fanfictions and one-shots.
+This git repo contains all my writing in my new system so far, from several fanfictions and one-shots. **ALL** of my writing can be found at [my site](https://neurario.com/writing), and some can be found on *Archive of our Own* or *Fanfiction.net*.
 
 ## Folder Structure
 
@@ -17,3 +17,8 @@ The story may also have a Resources folder, which holds information for me that 
 ## Currently Tracked Stories
 
 - [Begin Again: Chronicles of an Ex-Human in Inkopolis](/Begin%20Again/)
+
+## Why isn't X here?
+
+- **The Battle for Mikea** - Way too old. 
+- **Psycho Bonus Stage** - Exceptionally too old. Also, cringe.
