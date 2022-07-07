@@ -1,0 +1,3 @@
+She decided the best option was to stay among the trees. Whoever was coming for her would hopefully have a harder time getting a clear shot at her. Gripping the Splattershot tightly, and pulling the Splat Bombs from her pack to add them to her holster, she strayed from the path, making note of where she'd left off, and headed into the forest that stretched off into infinity.
+
+It was not long before she found herself completely lost, surrounded by pine trees and oak leaves. She treaded carefully, looking all around her for some hopeful escape plan, but none came.
