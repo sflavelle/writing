@@ -196,7 +196,7 @@ So you hoped, anyway.
 
 First, though, you would have to have a very difficult conversation. Looking at the Slate's map, you eyed the labels of two locations: Kakariko Village, and Hateno Village. Your eyes darted between each location, before eventually your fingers zoomed the map in on the warp location for Hateno's Ancient Tech Lab. *Purah was the one who came up with, or knows about the Shrine of Resurrection, right?* you thought to yourself. *Maybe there's a chance we can bring him back to life. Again.*
 
-You stood up, lifting the Master Sword in its sheath from the ground. With it and the Sheikah Slate itself, you thought, it should be quite clear what had happened.
+You stood up, lifting the Master Sword in its sheath from the ground. If you present both it and the Sheikah Slate itself, you thought, it should be quite clear what had happened.
 
 '*...*'
 
