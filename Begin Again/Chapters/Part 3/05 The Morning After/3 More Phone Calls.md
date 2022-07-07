@@ -24,10 +24,29 @@ It took longer to get a response, but when she did, the octoling on the other en
 
 "Alright. Hey, was Lily... *okay* when you saw her?"
 
-"Huh? Yeah. Just tired. I guess more tired than normal, but y'know, a big show like that, takes a lot of energy from you. I don't see how she couldn't make it home though... Hey, listen, we'll do a little looking of our own, because this sounds real strange of her."
+"Huh? Yeah. Just tired. I guess more tired than normal, but y'know, a big show like that, takes a lot of energy from you. I don't see how she couldn't make it home though... Hey, listen, if she's not home, let us know and we'll do a little looking of our own, because this sounds real strange of her."
 
 "Yeah, I'd appreciate that. Thanks, Marina."
 
 "No worries at all. Hey. I'm sure it's just something silly. Maybe she's organising something special for your one-year anniversary."
 
-"Heh... Maybe." Lorne was sceptical. "
+"Heh... Maybe." Lorne was sceptical. "Look, thanks for talking to me. I'll let you get back to things and I'll keep you informed."
+
+"Sounds good, Lorne. And hey, be sure to take care of yourself too, alright? It's no good if you stress over it all day. She's a big girl. As I said, I'm sure it's just something silly."
+
+"Thanks Marina. You two take care."
+
+"You too. Seeya!" With a cheery voice, Marina disconnected the call.
+
+Lorne was left there, with a slight frown.
+
+---
+
+"Hi Lorne, no she isn't here."
+
+"Hey-- wh-- What the _fuck_, Remo?! I haven't even said anything!"
+
+"Sorry. Yeah er, I'm at Eight's and I overheard him talking to you before."
+
+"Well gee, thanks." The unexpected reply had made the inkling a bit tetchy. "Well, any ideas?"
+
