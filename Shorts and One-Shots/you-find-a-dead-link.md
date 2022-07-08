@@ -200,6 +200,8 @@ You stood up, lifting the Master Sword in its sheath from the ground. If you pre
 
 '*...*'
 
+You also picked up the Travel Medallion, examining it, wondering how to use it to return to this point later. You tried a few methods, but it was as you held it in your hand while thinking of the crater where you stood that its details glowed in Sheikah Blue, and you felt a reassurance that you could return there as you wished.
+
 You made sure everything was secure on your person and, after a deep breath, tapped the warp icon on the Slate.
 
 Immediately you felt yourself being lifted gently off the ground, a strange noise of rushing wind in your ears as your surroundings disappeared into light blue light.
