@@ -21,5 +21,9 @@ The story may also have a Resources folder, which holds information for me that 
 
 ## Why isn't X here?
 
+In general, this repo tracks anything that's been written since my [2020 writing system](https://neurario.com/blog/2020-writing-setup) went into place.
+
 - **The Battle for Mikea** - Way too old. 
 - **Psycho Bonus Stage** - Exceptionally too old. Also, cringe.
+
+Also, NSFW writing is not being tracked here.
