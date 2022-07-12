@@ -17,8 +17,13 @@ The story may also have a Resources folder, which holds information for me that 
 ## Currently Tracked Stories
 
 - [Begin Again: Chronicles of an Ex-Human in Inkopolis](/Begin%20Again/)
+- [Deliverer of Destiny](/Deliverer of Destiny (BOTW)/)
 
 ## Why isn't X here?
 
+In general, this repo tracks anything that's been written since my [2020 writing system](https://neurario.com/blog/2020-writing-setup) went into place.
+
 - **The Battle for Mikea** - Way too old. 
 - **Psycho Bonus Stage** - Exceptionally too old. Also, cringe.
+
+Any NSFW writing is also not being tracked here.
