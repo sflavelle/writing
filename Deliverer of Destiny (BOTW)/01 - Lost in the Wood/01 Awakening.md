@@ -32,7 +32,7 @@ Indeed, just how far away from home were you? ...You would not know for quite so
 
 You took hold of the leftover wall beside you to shakily pull yourself to your feet, your head still throbbing with the hangover and a strong pain in your knees. 
 
-The thought rises as you look for some clue as to your location. Something, anything. Trying to tie the cliffs that surrounded you to some memory. Something that might tell you just where you were. 
+The thought rises to the forefront as you look for some clue as to your location. Something, anything. Trying to tie the cliffs that surrounded you to some memory. Something that might tell you just where you were. 
 
 But the answer never came. The sights were beautiful, even in just this little area you stood in, but there was no familiarity to anything. The closest you could get was:
 
@@ -42,6 +42,24 @@ Even then, you couldn't be sure that a landmark exactly like this existed in the
 
 So, great. You were lost.
 
-Carefully stepping forward and out of the ruin, you examined the ground in front of you, and stepped downhill, gradually ramping up to your normal walking pace as your body continued to awaken, slowly becoming more aware of itself and your surroundings.
+Taking a few steps, making sure you weren't going to topple back over in your state, you passed the archway out of the ruined building, ambling carefully down the hill that you found yourself on. A lake stretched away to your right (though honestly, it was probably just part of the river that you were hearing), in front of you was a dirt path leading past you toward what seemed like a way forward. You noticed that a few signposts were set up along the road, but your hopes of some direction, or even just a town name, were dashed when you caught a glance of the nearest two, and saw that they were both... target boards.
+
+Well, that wasn't quite helpful at the moment.
+
+Glancing about from the road you now found yourself on, this particular part of... whereever you were seemed to be a small nook on the road to... who knew. Actually, were those buildings to the east? Houses, up on the mountains? It seemed that way. Perhaps then, you could at least figure out where you were, and how best to get home.
+
+First though, this hangover had to get *fucked*. You made your way over around the hill on which you had woken up, off the path slightly to where the lake waters lapped at the dirt, kneeling at the edge. You hoped to hell this water was drinkable.
+
+Well, if it wasn't, you'd be the first to know.
+
+You scooped some of the water in your hands, cupping it and raising it to your lips.
+
+...Mm!
+
+That was something else!
+
+Besides the dirt particles that you caught up, of course.
+
+But that water was *clean* as! Thank goodness - the fresh liquid was washing away that godawful dry, *disgusting* feeling in your mouth. You took a few sips, letting the waters refresh your mind and body, feeling more *alive*.
 
 
