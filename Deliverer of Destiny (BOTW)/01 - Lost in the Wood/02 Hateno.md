@@ -1,16 +1,16 @@
-It was as you made your way up one more incline, and a villager resting by the town's 'welcome' sign, written in more gobbledegook, greeted you that things started to fall into place.
+It was as you made your way up one more incline, panting, and a villager resting by the town's 'welcome' sign (written in more gobbledegook) greeted you that things started to fall into place.
 
 "Welcome to Hateno Village, stranger! Are you okay? I saw you take a little tumble down there."
 
-You waved it off. "Yeah, I'm fine, just a stray animal. Happy to be here. Uh... Hateno, huh?" _Isn't that from...?_ "That's real interesting, I swear I've heard of the name Hateno before."
+You waved it off. "Yeah, I'm fine, just a stray animal crossed my path. Happy to be here. Uh... Hateno, huh?" _Isn't that from...?_ "That's real interesting, I swear I've heard of the name Hateno before."
 
 The old man grinned. "You're probably thinking of Fort Hateno down the road some, where all of those wrecked Guardians are."
 
-_Fort Hateno? Guardians?! No way..._ "Huh... So was the village named for the fort, then?"
+_But then... No way..._ "Huh... So was the village named for the fort, then?"
 
 "That's right. The soldiers that held that fort many years ago slept here, brought their families here, even made new families here. It's thanks to that fort that this land is untouched by Guardians!"
 
-You whistled in awe. "That's incredible."
+You whistled in awe, but your mind was thinking deep on his words now. "That's incredible."
 
 "We have a lot to thank for our good fortunes here." The man smiled warmly. "But I'm sorry, you've had a long journey I'm sure. You're probably looking for the inn, right? It'll be just up the main street, on your right. Can't miss it. Anything else you might need?"
 
@@ -18,7 +18,7 @@ You whistled in awe. "That's incredible."
 
 "Town centre, straight ahead."
 
-"Excellent. Alright, well I shan't bother you further. Thank you so much for your hospitality."
+"Excellent. Alright, well I shan't bother you further. Thank you for your hospitality."
 
 "Of course! Safe travels, friend. Enjoy your stay."
 
@@ -41,3 +41,5 @@ You took in the view around you, once only enjoyed behind a screen but which now
 _My God... This is_ actually _Hyrule_.
 
 You took deep breaths, swivelling on the spot as you came to terms with this impossible, but obvious fact. 
+
+You were impossibly out of your depth.
