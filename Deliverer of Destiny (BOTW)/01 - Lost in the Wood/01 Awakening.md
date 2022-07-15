@@ -62,4 +62,30 @@ Besides the dirt particles that you caught up, of course.
 
 But that water was *clean* as! Thank goodness - the fresh liquid was washing away that godawful dry, *disgusting* feeling in your mouth. You took a few sips, letting the waters refresh your mind and body, feeling more *alive*.
 
+Now you understood what r/HydroHomies was on about.
 
+Once you had had your fill and turned away from the lake, you finally started to walk along the path, past more ruins and-
+
+_Are those bones?_
+
+You thought you saw a small pile of bones against one of the ruined walls. Was this land usually occupied?
+
+That was all you needed to see. You made your way briskly along until the path split, one way headed slightly downhill to join what looked to be the main road. To your left and right, the road seemed to climb these cliffs on either side, eastward toward the town you had seen, and westward out of sight.
+
+It was as you started on the road here and begun to climb the incline that you had your first glance of the tower on the opposite side of the valley. It was a strange structure, and a blue pipe of sorts rose through the middle of it. It felt quite familiar to you for reasons you couldn't figure out. The first words that came to mind were 'cellphone tower'. _That can't be right_, you thought, but whatever it actually was was escaping you right now.
+
+_What a strange place this is. I don't think I'm even in my home country..._
+
+That didn't put you at ease.
+
+Once the road levelled out you entered into a small wood, calm and peaceful. A squirrel off in the trees caught your attention, which set your mind off thinking again. _US...? Maybe...?_
+
+The signposts at the intersection you quickly found yourself at ruled that idea out. Written in a language you just couldn't place your finger on but reminded you almost of a runic writing.
+
+But then you caught the flutter of a banner down one of the paths and assumed that was the way into town.
+
+_A town banner? That's a first. What kind of place is this? Surely this quaintness, what I've seen so far doesn't exist any more. What, am I dreaming or something?_
+
+~~Stanley~~ You imagined yourself floating through the air, but instead a spooked animal ran across the path in front of you, and you tripped on the poor thing, crashing forward on loose footing and eventually tumbling to the ground.
+
+_...fuck, that hurt way too much to be a dream._
