@@ -32,6 +32,12 @@ At least, not your reality.
 
 A fact that struck you as a shape caught your eye, as you made your way to the base of the banner pole, getting a better look. Something behind the tower.
 
-It was _massive_, you could tell from so far away. A red beam emanated from it, unfocused but powerful, towards something behind the mountains, unseen but which you already knew.
+It was _massive_, you could tell from so far away. A structure that reminded you of a camel. A red beam emanated from it, unfocused but powerful, towards something behind the mountains, unseen but which you already knew.
 
-You took in the view around you, once only enjoyed behind a screen but which now welcomed you, enveloped you, filling you with so much awe. 
+_Vah Ruta..._
+
+You took in the view around you, once only enjoyed behind a screen but which now welcomed you, enveloped you, filling you with so much awe. Over there to your right, peeking between two hills - that must undoubtedly be Death Mountain - and perched at its crater, another structure, another - what was the name? - Divine Beast, beam ready. Behind you, up at the top of that hill - the abode there must surely be the Ancient Tech Lab. And-
+
+_My God... This is_ actually _Hyrule_.
+
+You took deep breaths, swivelling on the spot as you came to terms with this impossible, but obvious fact. 
