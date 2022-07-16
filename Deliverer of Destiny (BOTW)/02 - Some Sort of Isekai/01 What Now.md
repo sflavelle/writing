@@ -1,4 +1,4 @@
-## I Found Myself In Some Kind Of Wild Isekai Scenario But I Don't Know If I'm Supposed To Be The Hero Or Just Be Along For The Ride? 
+## I Found Myself In A Wild Isekai Scenario But Am I Supposed To Be The Hero Or Just Be Along For The Ride? 
 
 You. A character in a Legend of Zelda game.
 
