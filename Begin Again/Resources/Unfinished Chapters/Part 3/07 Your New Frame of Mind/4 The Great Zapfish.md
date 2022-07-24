@@ -84,11 +84,11 @@ Sheldon saw the shades, the red glowing dot over her left eye. Something was uns
 
 "Lily, what on *Earth* are you talking about? None of us did a *thing*, we *all* still care about you."
 
-"...Heh. Whatever makes you happy."
+"...Heh. Whatever helps you sleep at night."
 
-The inkling's frown became a smirk, giving her an ominous look. "But I *know*. After what my 'friends' tried to do to me, I have no choice but to retaliate."
+The inkling's frown became a smirk, giving her an ominous look. "But what's done is done. And now I *know*. After what you 'friends' tried to do to me, I have no choice but to seek a home elsewhere. And show you lot how we humans do revenge."
 
-Sheldon gulped, and turned to run back toward the store.
+Lily slid her weapon from its holster. Sheldon gulped, and turned to run back toward the store.
 
 Only to immediately run into Kae and Lux, who had silently moved behind him. They quickly got him onto the ground as Mori walked over, having pulled a garbage bag from one of the bins at the far end of the Square. Lily smirked as she saw it. "I like it. Tie him up in that."
 
