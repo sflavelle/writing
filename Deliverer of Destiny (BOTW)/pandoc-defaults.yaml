@@ -1,0 +1,12 @@
+from: markdown+line_blocks+multiline_tables
+
+standalone: true
+
+file-scope: true
+
+table-of-contents: true
+toc-depth: 3
+number-sections: true
+ascii: false
+
+epub-chapter-level: 2
