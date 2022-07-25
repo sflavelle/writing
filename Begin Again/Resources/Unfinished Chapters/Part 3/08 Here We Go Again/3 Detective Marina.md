@@ -54,7 +54,7 @@ As he scrawled a quick "closed for business" letter inside Ammo Knights, Pearl a
 
 "Just describe them, Sheldon. Please."
 
-"Uhh... alright. I don't know if they were sunshades or not, they just seemed black, entirely black."
+"Uhh... alright. I don't know if they were sunshades or not, they just seemed black, entirely black. They were all wearing them."
 
 "Did they have a red dot on the eye?"
 
