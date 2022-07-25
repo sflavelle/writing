@@ -1,7 +1,7 @@
 param (
     [string]$ChapterNumber,
     [string]$ChapterName,
-    [string]$OutputName = "BeginAgain",
+    [string]$OutputName = "DelivererOfDestiny",
     [switch]$Verbose = $false,
     [switch]$ePub = $false,
     [switch]$HTML = $true,
