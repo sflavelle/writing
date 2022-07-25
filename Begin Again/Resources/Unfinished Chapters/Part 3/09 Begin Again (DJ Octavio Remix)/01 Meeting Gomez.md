@@ -14,7 +14,7 @@ Lily spun around, trying to find the source of the voice. "Yes? Hello?" She aske
 
 It had been a Tentakook - seemingly a messenger, judging by its bag and hat. He raced up to Lily excitedly, and she could see that he was about chest-tall to her. "Greetings! I'm told you're headed out to the Opal Springs outpost?"
 
-She nodded, her glasses briefly pulsing in green. "That's right. How do you know?"
+She nodded. "That's right. How do you know?"
 
 "The King!" He took a bow. "I'm Gomez, ma'am. The royal messenger. I'm headed out that way, if you'd like to follow me!"
 

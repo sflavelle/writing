@@ -14,6 +14,18 @@ If you were going to find out what was going on, you were probably going to have
 
 Your hand reached for your wallet, but stilled halfway. _Except, my money would be no good to anyone._
 
-... Still, what good would it do to leave it lying out in the open?
+_... Still, what good would it do to leave it lying out in the open?_
 
 You pocketed everything for now, unsure the items would be of any use. 
+
+_Right. Now. What am I doing here?_
+
+You had never heard of this sort of thing happening in reality. The only precedent you knew for people getting plucked from reality into other worlds was like... Anime. Or fanfiction.
+
+_And usually, in those the poor sod has the task of saving the world or whatever._
+
+But Breath of the Wild already had a hero - Link, the Hylian Champion. Surely you weren't here to stand in for him? You didn't even know _how_ to wield a weapon properly! Nah. Nah, surely that couldn't be it...
+
+If only you'd bothered to watch more than the first episode of that Konosuba series.
+
+... Well, you weren't going to get anywhere with no money, hiding down by a pond. 
