@@ -32,7 +32,7 @@ At least, not your reality.
 
 A fact that struck you as a shape caught your eye, as you made your way to the base of the banner pole, getting a better look. Something behind the tower.
 
-It was _massive_, you could tell from so far away. A structure that reminded you of a camel. A red beam emanated from it, unfocused but powerful, towards something behind the mountains, unseen but which you already knew.
+It was _massive_, you could tell from so far away. A structure that reminded you of a camel. A red beam emanated from it, unfocused but powerful, towards something behind the mountains, unseen but which you already knew was Hyrule Castle.
 
 _Vah Naboris..._
 
