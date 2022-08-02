@@ -2,9 +2,13 @@
 
 You walked up the village path, smiling at the few townspeople who called out to you, waving at the children who passed you.
 
+Hateno Village, draped lovingly on the hillside, was a town that felt like it had existed for hundreds of years. There was something about the buildings here, now that you were seeing them up close, that felt as if you were in a European countryside, untouched by the Industrial Revolution. Despite your life previously relying on such things as the Internet, something about this place brought you peace, even in your current situation.
+
+Surely the people here could help you get yourself sorted?
+
 "Greetings, traveller!" one nice elder lady called out, sat in front of what seemed like Hateno Village's inn, further up the path.
 
-"Hi there, you replied, walking up the wooden steps to join her, leaning on the railing. "I hope the day finds you well."
+"Hi there,” you replied, walking up the wooden steps to join her, leaning on the railing. "I hope the day finds you well."
 
 "As well as one can be nowadays," she replied. "I've not seen clothing like yours before. Are you not from Hyrule?"
 
