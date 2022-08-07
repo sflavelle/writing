@@ -38,11 +38,11 @@ Carrie, the innkeeper you had been speaking to, nodded. "Well, traveller - what 
 
 "I'm (Y/N). It's a pleasure."
 
-"Likewise, (Name). Lin, this young traveller is visiting Hyrule and wishes to see the sights. What say you if we paid them to take a letter up to your friend in Kakariko Village?"
+"Likewise. Lin, this young traveller is visiting Hyrule and wishes to see the sights. What say you if we paid them to take a letter up to your friend in Kakariko Village?"
 
 Lin smiled. "I think that's a great idea. I would only have to write it first."
 
-"Of course. (Name), would you be so kind as to do that for us on your way?"
+"Of course. (Y/N), would you be so kind as to do that for us on your way?"
 
 "Gladly." You beamed. "Thank you so much."
 
