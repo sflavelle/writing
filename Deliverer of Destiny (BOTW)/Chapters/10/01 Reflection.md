@@ -30,7 +30,7 @@ You chuckled, and your gaze drifted up toward the Divine Beast again, it's gentl
 
 Sidon held his stare for a few moments, then looked away towards the calm waters with a sigh. The silence that followed was one of concern - uncomfortable, thick with questions that the Zora prince wanted to ask. Finally he managed to get out: "You... Don't fancy yourself a hero, do you?"
 
-Your head turned to face the Zora. "... Not really. It's not something I'd normally want to make a habit of."
+Your head turned to face the Zora. "... Honestly, not really. It's not something I'd normally want to make a habit of."
 
 "What would you be doing otherwise?"
 
@@ -62,11 +62,12 @@ You couldn't continue your sentence. You pulled your legs from the water, and st
 
 "No! No, no. God no." You glanced back at him. "Sidon, that was one of the nicest things I think anybody's ever said to me." You patted the railing next to you, and you heard him get up to join you once more. Once again there was silence between the two of you, but it felt more relaxed this time.
 
+Though it had to be nearly midnight, the Domain below them was still brimming with activity. You allowed yourself a smile.
+
 
 It was a few minutes of quiet before you got the courage to ask him the question that had formed at the front of your mind. "What was he like, Prince Sidon?"
 
-"Hmm? Who do you mean, hero?"
+"Hmm?"
 
-"I-- Wow, that's gonna be weird to hear about me." You let out a small chuckle. "Link. I want to hear about Link."
+"Link. You knew him, before all this, right?"
 
-"...Well."
