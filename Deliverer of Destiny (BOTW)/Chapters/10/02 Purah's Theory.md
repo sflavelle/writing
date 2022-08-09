@@ -26,7 +26,7 @@ The inside of the Tech Lab was a mess of papers today. Director Purah was writin
 
 "Gee, thanks," you laughed. "That's why I started by delivering mail. How would I know I was a half-decent fighter?"
 
-"Modest as ever. But reading up on the ancient legends has opened my eyes to something I wasn't sure was possible. (Y/N), there is a theory written by the ancient Sheikah involving a Hylian princess, a hero, and a manifestation of evil?"
+"Modest as ever. But something about it has been bothering me, so I turned to our history, and well, reading up on the ancient legends has opened my eyes to something I wasn't sure was possible. (Y/N), there is a theory written by the ancient Sheikah involving a Hylian princess, a hero, and a manifestation of evil."
 
 "How do you mean?" Your brows furrowed.
 
@@ -36,7 +36,7 @@ The inside of the Tech Lab was a mess of papers today. Director Purah was writin
 
 "It sounds crazy, doesn't it? But it's already happened, 10,000 years ago. And there are legends in Hyrule's vast history that would corroborate its truth. Books that, though their homes are long destroyed, have carried on to the present day."
 
-Purah turned and started to rummage through a pile of books on her desk. "This one," she said, lifting one up to you, "is a supposedly fictional account about a boy who could travel through time to save his kingdom from a man named Ganondorf. And another," she discarded the first book to her desk and picked up another, "tells of a young man who tried to save his father, and ended up saving a princess and sent on a quest to prevent an evil beast from being summoned."
+Purah turned and started to rummage through a pile of books on her desk. "This one," she said, lifting one up to you, "is a supposedly fictional account about a boy who could travel through time to save his kingdom from a man from the Gerudo Valley. And another," she discarded the first book to her desk and picked up another, "tells of a young man who tried to save his father, and ended up saving a princess and sent on a quest to prevent an evil beast from being summoned."
 
 "So what are you saying about now? What am I holding, anyway?" You glanced down and noticed the unique handle... more of a hilt, actually. "Wait, isn't this-"
 
@@ -44,7 +44,7 @@ Purah turned and started to rummage through a pile of books on her desk. "This o
 
 "Wh- **Purah**!" You fumbled the sword briefly, before deciding to quickly set it down against a table. It was in its sheath, which seemed to be why you and Purah were able to hold it. "Can't this sword only be used by Link?!"
 
-"So we thought," she replied with an odd look. "Look, (Y/N). I think that, though I'm sure these tales are embellished, they tell of past events. Almost all of them involving a princess, her hero, and a being of evil. I'm sure we're living through that curse right now."
+"So we thought," she replied with an odd look. "Look, (Y/N). I think that, though I'm sure these tales are embellished, they tell of true past events. Almost all of them involving a princess, her hero, and a being of evil. I'm sure we're living through that curse right now."
 
 "Why's that?"
 
@@ -52,12 +52,48 @@ Purah turned and started to rummage through a pile of books on her desk. "This o
 
 "But Link *is* gone now, isn't he? Surely he can't survive after how we found him." It hurt to say so...
 
-"...It's possible. He will be a devastating loss to our kingdom. ...But then *you* come along. Fully formed, ready to help our kingdom, in one way or another. And despite your circumstances, *you* brave the wilds to help the people of Hyrule. *You* put yourself in danger to get Link's body to safety. And, amazingly, *you* manage to liberate a Divine Beast from Calamity Ganon, bringing us up to three of the four Divine Beasts back in our control."
+"...It's possible. He will be a devastating loss to our kingdom. ...But then *you* come along. Fully formed, ready to help our kingdom, in one way or another. And despite your circumstances, *you* brave the wilds to help the people of Hyrule. *You* put yourself in danger to get Link's body to safety. And, courageously, *you* manage to liberate a Divine Beast from Calamity Ganon, bringing us up to three of the four Divine Beasts back in our control."
 
-She turned to face you. "(Y/N), I posit that either you are an awakening hero, or, considering the curse, a reincarnation of our hero Link."
+She turned to face you. "(Y/N), Impa and I have been discussing this, and I posit to you that either you are an awakening hero, or, considering the curse, a reincarnation of our hero Link."
 
 The room was silent as you processed what was said. How can that be? You're not even a fighter in your world!
 
 "...How do you figure that?" You asked slowly, skeptical.
 
-"Simple." Purah smiled warmly up at you. "The Master Sword allowed you to hold it. It's said that that mystical blade can only be wielded by the person who is pure of courage." She paused, taking a breath. "Under normal circumstances, that is Link..."
+Purah smiled warmly up at you. "That Master Sword is the last piece of the puzzle. It allowed you to hold it. It's said that that mystical blade can only be wielded by the person who is pure of courage." She paused, taking a breath. "Under normal circumstances, that is Link..."
+
+She walked over to the sword, set next to the table, and holding it by the sheath, tilted it toward you. "Trust me. Unsheathe the sword. If I'm right, you'll be able to wield it like the Champion Link."
+
+You blinked. "And if it... doesn't like me?"
+
+The Sheikah shrugged. "It might start sapping your energy and life."
+
+"Uhhhh!"
+
+"Oh relax! If I'm wrong - and may I add, I'm not - you can just let go of it."
+
+"Are you *sure*?"
+
+"(Y/N), you already *held* the sword. Twice, may I add. This is just a formality."
+
+You sighed deeply. Surely, this was just silly. Yes, she'd forced the hilt into your hand and nothing had come of it, but surely nothing good would come of some random person coming up and...
+
+Your hands shook slightly as you reached for it, hesitating for a few moments before slowly wrapping your fingers around the hilt of the sword.
+
+Nothing happened. Just the sensation of finely crafted metal and leather wrapping resting on your skin. Strangely, you felt just the smallest hint of warmth from somewhere within. You took a few deep breaths, just letting your hand stay, wondering if you felt anything happening.
+
+But it was as calm as it had been. As calm and unable to inflict magical pain upon you as an unused blade should be.
+
+"Come on, (Y/N)," Purah breathed.
+
+You glanced upward at her, and after another moment's pause, slowly pulled upward.
+
+The Master Sword slid carefully, cleanly from its sheath. The blade was as clean as the day it was created. The crest of the Triforce engraved upon it was prominent and instilled in you a sense of awe as it revealed itself. This was truly a magical moment to witness, you realised to yourself. 
+
+And then-
+
+And then the point of the sword was free, and you were holding the entire thing in your hand, and it occurred to you how *solid* this blade was.
+
+You carefully held the sword up to the light, inspecting it and adjusting to its weight. The warmth you felt from it grew warmer as you adjusted to it. Was it also adjusting to you?
+
+"Well then..." Purah stared at you and the blade with a sense of almost reverence. "I believe I've made my point."
