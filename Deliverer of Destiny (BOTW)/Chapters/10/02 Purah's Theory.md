@@ -30,7 +30,7 @@ The inside of the Tech Lab was a mess of papers today. Director Purah was writin
 
 "How do you mean?" Your brows furrowed.
 
-"They say that the princess of Hyrule is plagued by the Curse of Demise. That an entity called Ganon will manifest itself to shroud this world in darkness, and a hero will rise to stop him."
+"They say that the princess of Hyrule is plagued by the Curse of Demise. That an entity called Ganon will continue to manifest itself to shroud this world in darkness, and a hero will continue to rise to stop him."
 
 "Huh?" You found yourself pretending you didn't know of multiple games where exactly this was the case.
 
@@ -92,8 +92,46 @@ The Master Sword slid carefully, cleanly from its sheath. The blade was as clean
 
 And then-
 
-And then the point of the sword was free, and you were holding the entire thing in your hand, and it occurred to you how *solid* this blade was.
+And then the point of the sword was free from the sheath, and you were holding the entire thing in your hand, and it occurred to you how *solid* this blade was.
+
+You were holding the *Master Sword*.
+
+The *Blade of Evil's Bane*.
+
+The *sword that seals the darkness*.
+
+How on Earth did this journey keep getting stranger?
 
 You carefully held the sword up to the light, inspecting it and adjusting to its weight. The warmth you felt from it grew warmer as you adjusted to it. Was it also adjusting to you?
 
-"Well then..." Purah stared at you and the blade with a sense of almost reverence. "I believe I've made my point."
+"Well then..." Purah stared at you and the blade with a sense of almost reverence. "How do you feel?"
+
+"I uh..." you gently ran your fingers over the engraved symbol on the blade. "Honestly? I'm stunned."
+
+"Hmm. Same old you?"
+
+"Eh?" 
+
+"Haven't remembered any past lives or anything?"
+
+"Uuuhhh... no...?"
+
+
+
+"Well, I think that settles it, *Linky*!" Purah recovered herself and retreated back to her notepad. "Right! Well, you're headed for Rito Village, right?"
+
+Your brow shot up. "Uh, I suppose, but--"
+
+"Good! Then get to it! The princess can't wait forever!" She started pushing you toward the door.
+
+"Sure, but did you-"
+
+"Come by when this is all over and we'll figure it out!"
+
+"Wh-"
+
+"Byeee!" The slam of the front door behind you told you that your stay at the Lab was over.
+
+You slowly turned and stood facing the building, still holding the sword in your hand, dumbfounded.
+
+*...Forget the Master Sword, did she just call* me *Link?*
