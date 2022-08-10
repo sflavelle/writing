@@ -26,7 +26,7 @@ The inside of the Tech Lab was a mess of papers today. Director Purah was writin
 
 "Gee, thanks," you laughed. "That's why I started by delivering mail. How would I know I was a half-decent fighter?"
 
-"Modest as ever. But something about it has been bothering me, so I turned to our history, and well, reading up on the ancient legends has opened my eyes to something I wasn't sure was possible. (Y/N), there is a theory written by the ancient Sheikah involving a Hylian princess, a hero, and a manifestation of evil."
+"Modest as ever. But something about it has been bothering me, so I turned to our history, and well, in my search for answers about you I ended up reading up on legends and tales from the ancient Sheikah. (Y/N), did you know there is a theory written by the ancient Sheikah about a recurring conflict in history, involving a Hylian princess, a hero, and a manifestation of evil?"
 
 "How do you mean?" Your brows furrowed.
 
@@ -34,7 +34,7 @@ The inside of the Tech Lab was a mess of papers today. Director Purah was writin
 
 "Huh?" You found yourself pretending you didn't know of multiple games where exactly this was the case.
 
-"It sounds crazy, doesn't it? But it's already happened, 10,000 years ago. And there are legends in Hyrule's vast history that would corroborate its truth. Books that, though their homes are long destroyed, have carried on to the present day."
+"It sounds crazy, doesn't it? But it's already happened, 10,000 years ago. That's very clear in our history. And there are legends in Hyrule's vast history that would corroborate its truth. Books that, though their homes are long destroyed, have carried on to the present day."
 
 Purah turned and started to rummage through a pile of books on her desk. "This one," she said, lifting one up to you, "is a supposedly fictional account about a boy who could travel through time to save his kingdom from a man from the Gerudo Valley. And another," she discarded the first book to her desk and picked up another, "tells of a young man who tried to save his father, and ended up saving a princess and sent on a quest to prevent an evil beast from being summoned."
 
@@ -48,13 +48,13 @@ Purah turned and started to rummage through a pile of books on her desk. "This o
 
 "Why's that?"
 
-"Because, (Y/N), neither side of that battle one hundred years ago has actually won yet. Link may have been on death's doorstep, but we acted quickly enough to save his life so that he could return and defeat Ganon. And Princess Zelda is of course still alive, in some fashion, holding the Calamity back from the untold destruction of our kingdom, waiting for him."
+"Because, (Y/N), neither side of that battle between the Champions and Calamity Ganon one hundred years ago has actually won yet. Link may have been on death's doorstep, but we acted quickly enough to save his life so that he could return and defeat Ganon. And Princess Zelda is of course still alive, in some fashion, holding the Calamity back from the untold destruction of our kingdom, waiting for him."
 
 "But Link *is* gone now, isn't he? Surely he can't survive after how we found him." It hurt to say so...
 
 "...It's possible. He will be a devastating loss to our kingdom. ...But then *you* come along. Fully formed, ready to help our kingdom, in one way or another. And despite your circumstances, *you* brave the wilds to help the people of Hyrule. *You* put yourself in danger to get Link's body to safety. And, courageously, *you* manage to liberate a Divine Beast from Calamity Ganon, bringing us up to three of the four Divine Beasts back in our control."
 
-She turned to face you. "(Y/N), Impa and I have been discussing this, and I posit to you that either you are an awakening hero, or, considering the curse, a reincarnation of our hero Link."
+She turned to face you. "(Y/N), Impa and I have been discussing this, and we posit to you that either you are an awakening hero, or, considering the curse, a reincarnation of our hero Link."
 
 The room was silent as you processed what was said. How can that be? You're not even a fighter in your world!
 
@@ -74,7 +74,7 @@ The Sheikah shrugged. "It might start sapping your energy and life."
 
 "Are you *sure*?"
 
-"(Y/N), you already *held* the sword. Twice, may I add. This is just a formality."
+"(Y/N), you already *held* the sword. Twice, may I add. Just work with me here."
 
 You sighed deeply. Surely, this was just silly. Yes, she'd forced the hilt into your hand and nothing had come of it, but surely nothing good would come of some random person coming up and...
 
@@ -134,4 +134,4 @@ Your brow shot up. "Uh, I suppose, but--"
 
 You slowly turned and stood facing the building, still holding the sword in your hand, dumbfounded.
 
-*...Forget the Master Sword, did she just call* me *Link?*
+*...Forget the Master Sword, did she just call me* Link?
