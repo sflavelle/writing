@@ -86,7 +86,7 @@ But it was as calm as it had been. As calm and unable to inflict magical pain up
 
 "Come on, (Y/N)," Purah breathed.
 
-You glanced upward at her, and after another moment's pause, slowly pulled upward.
+You glanced up at her, and after another moment's pause, slowly pulled upward.
 
 The Master Sword slid carefully, cleanly from its sheath. The blade was as clean as the day it was created. The crest of the Triforce engraved upon it was prominent and instilled in you a sense of awe as it revealed itself. This was truly a magical moment to witness, you realised to yourself. 
 
@@ -135,3 +135,5 @@ Your brow shot up. "Uh, I suppose, but--"
 You slowly turned and stood facing the building, still holding the sword in your hand, dumbfounded.
 
 *...Forget the Master Sword, did she just call me* Link?
+
+*... Who am I, really?*
