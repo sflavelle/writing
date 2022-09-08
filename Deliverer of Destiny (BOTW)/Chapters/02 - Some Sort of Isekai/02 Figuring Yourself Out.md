@@ -14,7 +14,7 @@ You pondered this all the way up the path, and as you reached the mountain path 
 
 *Two: Same with Vah Rudania over on Death Mountain. Good thing too, I'm not that fond of the idea of working near lava.*
 
-*Three: I think, if I just get up to the Tech Lab up here, I can see whether the blue flame that powers their Sheikah rune has been lit or not. Because... I guess nobody else goes up there but Link. Something about the townspeople not liking them.*
+*Three: I think, if I just get up to the Tech Lab up here, I can see whether the blue flame that powers their Sheikah rune... thing has been lit or not. Because... I guess nobody else goes up there but Link. Something about the townspeople not liking them.*
 
 *So, if it does turn out to be lit, I can take all three of these things as a sign that Link is alive and present, and I can relax and figure out what I can do to get back or... help out.*
 

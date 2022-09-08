@@ -1,4 +1,4 @@
-## I Found Myself In A Wild Isekai Scenario But Am I Supposed To Be The Hero Or Just Be Along For The Ride? 
+## I Found Myself In A Wild Isekai Scenario But Am I Supposed To Be The Hero Or Just Along For The Ride? 
 
 You. A character in a Legend of Zelda game.
 
@@ -8,7 +8,7 @@ Your first order of business, once you find a secluded spot down by a small pool
 
 Your phone. Your wallet. Some wireless earbuds. A face mask. Some tissues. Your car keys.
 
-*What an arsenal. I don't think I wanna get close enough to even... I dunno, jam my keys into someone's ribs.*
+*What an arsenal,* you thought to yourself with a pessimistic laugh. *I don't think I wanna get close enough to something to even... I dunno, jam my keys into someone's ribs.*
 
 If you were going to find out what was going on, you were probably going to have to explore outside of this village. To adventure you would need a weapon, and to get a weapon, you'd need money.
 
@@ -26,6 +26,6 @@ _And usually, in those the poor sod has the task of saving the world or whatever
 
 But Breath of the Wild already had a hero - Link, the Hylian Champion. Surely you weren't here to stand in for him? You didn't even know _how_ to wield a weapon properly! Nah. Nah, surely that couldn't be it...
 
-If only you'd bothered to watch more than the first episode of that Konosuba series.
+If only you'd bothered to watch more than the first episode of that Konosuba series. 
 
 ... Well, you weren't going to get anywhere with no money, hiding down by a pond. 
