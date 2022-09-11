@@ -44,9 +44,10 @@ Lorne was left there, with a slight frown.
 
 "Hi Lorne, no she isn't here."
 
-"Hey-- wh-- What the _fuck_, Remo?! I haven't even said anything!"
+"Hey-- wh-- What the _fuck_, Remo?! I haven't even said anything!" 
 
 "Sorry. Yeah er, I'm at Eight's and I overheard him talking to you before."
 
-"Well gee, thanks." The unexpected reply had made the inkling a bit tetchy. "Well, any ideas?"
+"Well gee, thanks." The unexpected reply had made the inkling a bit tetchy. "It was worth a shot. I'll be in touch."
 
+Hanging up the phone, Lorne resolved to get in touch with Callie and Marie when she got home.
