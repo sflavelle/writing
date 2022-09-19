@@ -6,7 +6,7 @@ The door to Ammo Knights, Inkopolis Square's weapons store, jingled as yet anoth
 
 Sheldon surprised many with his seemingly unending knowledge on whatever turf weaponry he stocked, especially since he both looked and sounded like a young adult. A horseshoe crab in his mid-20s, he had taken over the family business what felt like five years ago, and grown it substantially through key investments in property in Inkopolis Plaza and then, by a stroke of luck, Inkopolis Square.
 
-His name was short for Shellendorf, wearing his connection to his esteemed grandfather Ammoses Shellendorf proudly. And while he had had no such experience with the wars his elder did, his own experience with the weapons and tech of Turf War had landed him a role as Weapons Outfitter for a New Squidbeak Splatoon mission last year - which had seen him get to know the secret lives of the Squid Sisters, and their then-new Agent 4 and Agent 5.
+His name was short for Shellendorf, wearing his connection to his esteemed grandfather Ammoses Shellendorf proudly. And while he had had no such experience with the wars his elder did, his own experience with the weapons and tech of Inkopolis Turf Wars had landed him a role as Weapons Outfitter for a New Squidbeak Splatoon mission last year - which had seen him get to know the secret lives of the Squid Sisters, and their then-new Agent 4 and Agent 5.
 
 Not that that generated any new business, but in the name of helping save the Great Zapfish, he was happy to help however he could, given a supply of Power Eggs and a target to refine his weapons against.
 
@@ -34,7 +34,7 @@ Sheldon's eyebrow shot up again. "Uhhh... not that I've noticed. What's going on
 
 She frowned. "There's a possibility she's gone missing. Nobody's seen her since after her show on Friday night."
 
-"Oh dear... that *is* worrying. Although..." he sat in silence in his chair as he thought. "... If i remember correctly, i did see Lily once a couple months back. She was heading to the Hideout I believe. Was a Friday night then too. I was working late, y'see, and-"
+"Oh dear... that *is* worrying. Although..." he sat in silence in his chair as he thought. "... If I remember correctly, I did see Lily once a couple months back. She was heading to the Hideout I believe. Was a Friday night then too. I was working late, y'see, and-"
 
 "So what's she doing there?"
 

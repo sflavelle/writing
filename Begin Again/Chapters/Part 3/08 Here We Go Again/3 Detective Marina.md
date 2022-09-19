@@ -76,7 +76,7 @@ Marina stopped pacing for a moment, and simply stared at her. Then she started t
 
 "Well, let's assume for a sec. She, or at least this group of Octolings she was with, took it. Why might they do that?"
 
-"Uhh, w-well. They'd need the power." Marina thought hard, recalling what she remembered of her time underground. "Octopia never really got off the ground with energy storage, we always just siphoned power where we could. Something like the Great Zapfish would let them power their entire underground network."
+"Uhh, w-well. They'd need the power." Marina thought hard, recalling what she remembered of her life underground. "Octopia never really got off the ground with energy storage, we always just siphoned power where we could. Something like the Great Zapfish would let them power their entire underground network."
 
 "Just like Inkopolis."
 
@@ -94,7 +94,7 @@ Marina stopped pacing for a moment, and simply stared at her. Then she started t
 
 Marina trailed off.
 
-Her eyes darted to Sheldon, whose hands clasped over his mouth.
+As the realisation dawned on her, her eyes darted to Sheldon, whose hands clasped over his mouth.
 
 Pearl's head kept turning to see both of their expressions, before gasping, realising what conclusion they were drawing.
 
@@ -103,15 +103,3 @@ Pearl's head kept turning to see both of their expressions, before gasping, real
 "Uhh, T-Tentakeel Hideout."
 
 Immediately Pearl was pulled along as Marina briskly walked out the door. "Right. We're going to check."
-
-Callie was in the Square, having just arrived and was taking in the lack of light, processing what it meant as she saw Pearl and Marina rush out of Ammo Knights and dive into the grate just outside.
-
-She ran up as Sheldon poked his head out of the double doors. "The heck's going on with them?"
-
-"Follow them to Tentakeel Hideout, Callie," Sheldon told her firmly, his face serious. "I have a sinking feeling that Lily's in trouble."
-
-"Okay, but- what... what's going on with all this?!" She waved her arms at the general Square.
-
-"That *might* be related." Sheldon frowned.
-
-Callie processed that for a few moments. As soon as she did, she too took off for the Hideout.
