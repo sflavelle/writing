@@ -26,7 +26,7 @@ She nodded. "That's right. How do you know?"
 
 "So you get the idea!" Gomez gestured at Lily to follow him, and together they descended the steps into the city. "They get us to all sorts of places *much* quicker than on foot! Speaking of - hope you can keep up!" With a grin, the Tentakook took off at a run through the street.
 
-'Wh--- Ha! Okay!" Grinning, Lily took off after him at a sprint - and shortly after, crashed down on the ground, having underestimated the effect the armor boots, being high-heeled, would have on her movement. The crash also briefly knocked her glasses off, and she was left dazed for a few moments.
+'Wh--- Ha! Okay!" Grinning, Lily took off after him at a sprint - and shortly after, she tripped in the outfit's high-heeled shoes and crashed down on the ground, having underestimated the effect they would have on her movement. The crash also briefly knocked her glasses off, and she was left dazed for a few moments, her mind a fog.
 
 One of the civilian Octarians passing by deftly slipped the hypnoshades back onto her, as if this sort of thing had happened before, and called to Gomez. "Hey, bud! Keep a better watch on your pet!"
 
