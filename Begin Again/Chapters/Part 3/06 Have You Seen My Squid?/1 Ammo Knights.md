@@ -30,7 +30,7 @@ Once the customers had been cleared from the store, he locked the door briefly, 
 
 Callie slid off her sunglasses. "I know you've been busy but uh, has Lily come by or passed through the Square in the last 24 hours?"
 
-Sheldon's eyebrow shot up again. "Uhhh... not that I've noticed. What's going on?"
+Sheldon's eyebrow shot up again. "Uhhh... not that I've noticed. Why, what's going on?"
 
 She frowned. "There's a possibility she's gone missing. Nobody's seen her since after her show on Friday night."
 
@@ -46,6 +46,6 @@ She frowned. "There's a possibility she's gone missing. Nobody's seen her since 
 
 "Oh. Sorry."
 
-"For what it's worth, the Square's usually empty, or nearly empty when I get to go home."
+"For what it's worth though, the Square's usually empty, or nearly empty when I get to go home."
 
 "Hmmm... okay. Hey, does that camera watching the door work?" Callie gestured in the direction of the shop.
