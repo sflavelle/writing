@@ -10,7 +10,7 @@ That was *your* doing.
 
 Beginner's luck? Perhaps...
 
-Hopefully Link was recovering well.
+Hopefully Link was... recovering.
 
 Turning away, you stepped toward the doorway and knocked, before turning the handle and stepping in. "It's me," you called, smiling.
 
@@ -32,7 +32,7 @@ The inside of the Tech Lab was a mess of papers today. Director Purah was writin
 
 "They say that the princess of Hyrule is plagued by the Curse of Demise. That an entity called Ganon will continue to manifest itself to shroud this world in darkness, and a hero will continue to rise to stop him."
 
-"Huh?" You found yourself pretending you didn't know of multiple games where exactly this was the case.
+"Huh?" You found yourself pretending you didn't know of multiple games in this universe where exactly this was the case.
 
 "It sounds crazy, doesn't it? But it's already happened, 10,000 years ago. That's very clear in our history. And there are legends in Hyrule's vast history that would corroborate its truth. Books that, though their homes are long destroyed, have carried on to the present day."
 
@@ -42,7 +42,7 @@ Purah turned and started to rummage through a pile of books on her desk. "This o
 
 "The Master Sword, yes," Purah waved off the question.
 
-"Wh- **Purah**!" You fumbled the sword briefly, before deciding to quickly set it down against a table. It was in its sheath, which seemed to be why you and Purah were able to hold it. "Can't this sword only be used by Link?!"
+"Wh- **Purah**!" You fumbled the sword briefly, before deciding to quickly set it down against a table. It was in its sheath, which seemed to be why you and Purah were able to hold it, but you didn't want to take the chance of it acting against you. "Can't this sword only be used by Link?!"
 
 "So we thought," she replied with an odd look. "Look, (Y/N). I think that, though I'm sure these tales are embellished, they tell of true past events. Almost all of them involving a princess, her hero, and a being of evil. I'm sure we're living through that curse right now."
 
@@ -74,7 +74,7 @@ The Sheikah shrugged. "It might start sapping your energy and life."
 
 "Are you *sure*?"
 
-"(Y/N), you already *held* the sword. Twice, may I add. Just work with me here."
+"(Y/N), you already *held* the sword. Twice, may I add - including just before. Just work with me here."
 
 You sighed deeply. Surely, this was just silly. Yes, she'd forced the hilt into your hand and nothing had come of it, but surely nothing good would come of some random person coming up and...
 
@@ -114,11 +114,21 @@ You carefully held the sword up to the light, inspecting it and adjusting to its
 
 "Haven't remembered any past lives or anything?"
 
-"Uuuhhh... no...?"
+"Uuuhhh... no...?" You raised an eyebrow and, examination over, let your hands fall to your sides - carefully, in the case of the hand holding the sword. "I get what you're asking, and no, I don't feel anything... different."
 
+"Hmmph." Purah almost seemed disappointed. "Well, this is still quite an event in itself, wouldn't you say?"
 
+"I suppose. ...Wow, I'm surprised it is letting me hold it."
 
-"Well, I think that settles it, *Linky*!" Purah recovered herself and retreated back to her notepad. "Right! Well, you're headed for Rito Village, right?"
+"...*How*? I just told you that you could."
+
+"Yeah, but- Purah. For one, I've never been a hero. For two, I've never been to Hyrule before. For three, *surely* the goddesses didn't intend for some nobody from another *universe* to just show up and steal Link's thunder!"
+
+"Steal *your* thunder."
+
+"Pardon?"
+
+"Well in any case, I think that settles it, *Linky*!" Purah recovered herself and retreated back to her notepad. "Right! Well, you're headed for Rito Village, right?"
 
 Your brow shot up. "Uh, I suppose, but--"
 
