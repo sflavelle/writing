@@ -50,7 +50,7 @@ She frowned. "There's a possibility she's gone missing. Nobody's seen her since 
 
 "Hmmm... okay. Hey, does that camera watching the door work?" Callie gestured in the direction of the shop.
 
-"Yes...?" Sheldon raised an eyebrow. "I'd have to take it down to retrieve what it's recorded though."
+"Yes...?" Sheldon raised an eyebrow. "I think I get what you're about to ask me, Callie, and I'd have to take it down to retrieve what it's recorded though."
 
 "Well that can't be a problem, right?"
 
