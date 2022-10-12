@@ -22,8 +22,38 @@ No response. Of course.
 
 "I... thought you'd want to know that... y'know. Hyrule isn't just resting on its laurels waiting for you to come back."
 
-...you sigh. You feel a twinge of regret. You shouldn't be burdening someone with this, even if they're dead.
+...you sigh. You feel a twinge of regret. You shouldn't be burdening someone with this, especially if they're dead.
 
 On the other hand, Link hasn't complained yet.
 
-"Purah and I... we 
+"Purah and I... we figured out a way to go on. In your absence. We... We took back Vah Ruta."
+
+You paused. You wanted to look at him, to *see* him. But considering the condition his corpse was in when you found him, and how you had been sick just seeing him the first time...
+
+Great, now you were just thinking about that again.
+
+"She... Umm... People think... I might be you. Reincarnated or something."
+
+For a brief moment you expect some surprised retort to this.
+
+"I can't see how. I can't be a hero of your calibre, just because I am actually... trying to do something about this situation. If I... had my way, I'd still be travelling about Hyrule."
+
+You almost missed those early days...
+
+But as you stared up into the ceiling of the chamber, slowly your eyes drifted downward and fell upon the Master Sword in its sheath, beside you.
+
+"...I could wield your blade. I don't know how. Apparently that's the decider for Purah. What is it, someone of pure courage? Avatar of courage? I dunno. I don't want to use it though. Unless I need to. I guess if I'm now set on your path that means I'll need to... Holy shit, I might have to face the Calamity."
+
+That was something you hadn't yet had to consider. You stood up, leaving the sword by the pool as you paced about, having made yourself nervous.
+
+"O-okay, I should really just focus on the next task and... oh no, that's the Rito one, isn't it? I have to get up into the sky? Fuck, man... See Link, I can't be you. Surely you would have taken that as a challenge."
+
+"*On the contrary, Master.*"
+
+It was a feminine, musical voice, with a quality that you had never heard before, speaking in a way that seemed to echo toward you. You spun about, looking around, trying to find its source.
+
+And then a figure seemed to simply form by the pool, near where you had left the Master Sword. An ethereal blue coloured a body that was clearly not human and yet tried to resemble one. It stared toward you through a face with no pupils and no mouth.
+
+And yet, it spoke, with the same voice you had heard. It continued, "*Though your skill set is reduced compared to the Champion Link, your emotional profile is at least 85% identical based on preliminary data. He would most likely have reacted in the same manner. Additionally, though I cannot prove or disprove researcher Purah's theory about you, I can note that since I was created as what you now call the Master Sword, all beings that have proven able to wield me have held the name Link, and have gone on to defeat a great evil.*"
+
+You stared at her. You recognised this being, but this didn't make much sense. 
