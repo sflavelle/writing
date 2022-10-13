@@ -58,4 +58,11 @@ The conversation lulled and you thought to yourself about what should be done be
 
 *Well, if anything I at least need something to defend myself with... I don't want anything to get close to me if it wants to kill me, so I think I'd like a bow... and a dagger I suppose, just in case.*
 
-*I should probably get some more... period-appropriate clothing as well, I don't want to stick out too badly and draw attention to myself. I'll need money for that though.* "Hey, don't mind me asking, but is anyone here like... buying ores at the moment? I'm trying to come up with something I could do to buy some clothing from here so I don't stick out so much to the monsters."
+*I should probably get some more... period-appropriate clothing as well, I don't want to stick out too badly and draw attention to myself. I'll need money for that though.* "Hey, don't mind me asking, but is something I could do around here to earn a little bit of cash? I'm trying to come up with something I could do to buy some clothing from here so I don't stick out so much to the monsters."
+
+"... What do you mean by 'cash'?" Carrie raised an eyebrow.
+
+*Oh, whoops.* "Sorry, 'rupees'. Currency, basically."
+
+"Oh! I see. Well, if you have any spare bits and pieces, you could perhaps sell to one of the travelling merchants that come by here every so often. They tend to buy all types of meat, jewellery, ore, potion ingredients... even local flowers can be an easy way to make a bit of money when they come around. Hmm... But I don't think there've been any in town today..." The innkeeper thought. "I'd not dwell on it. If you've travelled here from the West without much trouble, you should be able to get up to Kakariko Village without much trouble." She smiled.
+

@@ -16,4 +16,8 @@ You had to remind yourself that that would likely still be a challenge in itself
 
 You fumbled in your pocket for your phone, took it out, and took a photo of the landscape facing south toward the village.
 
+*With these views, though... I don't think I'll mind it.*
+
 And then you let yourself have a few minutes, seated near the path, to enjoy the view before you started to trek downward again.
+
+*Now what on earth am I gonna do...?*
