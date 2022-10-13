@@ -54,6 +54,8 @@ It was a feminine, musical voice, with a quality that you had never heard before
 
 And then a figure seemed to simply form by the pool, near where you had left the Master Sword. An ethereal blue coloured a body that was clearly not human and yet tried to resemble one. It stared toward you through a face with no pupils and no mouth.
 
-And yet, it spoke, with the same voice you had heard. It continued, "*Though your skill set is reduced compared to the Champion Link, your emotional profile is at least 85% identical based on preliminary data. He would most likely have reacted in the same manner. Additionally, though I cannot prove or disprove researcher Purah's theory about you, I can note that since I was created as what you now call the Master Sword, all beings that have proven able to wield me have held the name Link, and have gone on to defeat a great evil.*"
+And yet, it spoke, with the same voice you had heard. As it watched you, the figure continued, "*Though your skill set is reduced compared to the Champion Link, your emotional profile is at least 85% identical based on preliminary data. He would most likely have reacted in the same manner.*"
 
-You stared at her. You recognised this being, but this didn't make much sense. 
+You stared at her. You recognised this being, but this didn't make much sense. "...*Fi*? What are you doing here?"
+
+She cocked her head to the side. "You intrigue me, Master. You seem to know a lot more than the average person would. Yes, you may call me Fi. I am the spirit that embodies the Goddess Sword which you now carry."
