@@ -46,7 +46,7 @@ But as you stared up into the ceiling of the chamber, slowly your eyes drifted d
 
 That was something you hadn't yet had to consider. You stood up, leaving the sword by the pool as you paced about, having made yourself nervous.
 
-"O-okay, I should really just focus on the next task and... oh no, that's the Rito one, isn't it? I have to get up into the sky? Fuck, man... See Link, I can't be you. Surely you would have taken that as a challenge."
+"O-okay, I should really just focus on the next task and... oh no, that's the Rito one, isn't it? I have to get up into the sky? Fuck, man... See Link, I can't be you. I don't think I'm scared of heights but holy hell, I don't want to be on some floating machine floating up above the clouds. Surely you would have taken that as a challenge."
 
 "*On the contrary, Master.*"
 
@@ -56,6 +56,6 @@ And then a figure seemed to simply form by the pool, near where you had left the
 
 And yet, it spoke, with the same voice you had heard. As it watched you, the figure continued, "*Though your skill set is reduced compared to the Champion Link, your emotional profile is at least 85% identical based on preliminary data. He would most likely have reacted in the same manner.*"
 
-You stared at her. You recognised this being, but this didn't make much sense. "...*Fi*? What are you doing here?"
+You stared at her, jaw dropped. You recognised this being, but...
 
-She cocked her head to the side. "You intrigue me, Master. You seem to know a lot more than the average person would. Yes, you may call me Fi. I am the spirit that embodies the Goddess Sword which you now carry."
+"...*Fi*?"
