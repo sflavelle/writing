@@ -8,7 +8,9 @@ The burn had started about a third of the way up, after you had passed a small f
 
 But you forced yourself up the path, telling yourself that this wouldn't be as trying or difficult as the future journeys you would take across this land.
 
-And then you had made it, to the top of the hill on which stood the Hateno Ancient Tech Lab, and you noted the lit furnace and the beautiful scenery around you, and the village below, and you allowed yourself to relax.
+And then you had made it, to the top of the hill on which stood the Hateno Ancient Tech Lab.
+
+You noted the lit furnace and the beautiful scenery around you, and the village below, and you allowed yourself to relax.
 
 You allowed yourself to realise that you didn't have to be a hero. You *just* had to survive Hyrule itself.
 
