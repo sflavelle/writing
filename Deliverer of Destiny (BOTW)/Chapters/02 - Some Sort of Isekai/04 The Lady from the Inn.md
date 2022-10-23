@@ -1,12 +1,12 @@
-"Greetings, traveller!" one nice elder lady called out, sat in front of what seemed like Hateno Village's inn, as you walked back through the village.
+"Greetings, traveller!" one nice elder lady called out, sat on the verandah of what seemed like Hateno Village's inn, as you walked back through the village.
 
 "Hi there,” you replied, walking up the wooden steps to join her, leaning on the railing. "I hope the day finds you well."
 
 "As well as one can be nowadays," she replied. "I've not seen clothing like yours before. Are you not from Hyrule?"
 
-You smiled. "That's right. You could say I'm uhhh, a tourist of sorts. From the far west."
+You smiled. "That's right. You could say I'm uhhh, a traveller of sorts. From the far west."
 
-"What brings you to the kingdom?" She took a sip from the mug on her table, looking up at you curiously.
+"What brings you to the kingdom?" She took a sip from the mug on her table, looking down at you curiously.
 
 "Well, I've always heard that Hyrule has some of the most breathtaking landscapes," you offered. "And though it's certainly more dangerous in recent times, I felt the urge to go backpacking across the lands, see what there is to see."
 
@@ -66,3 +66,14 @@ The conversation lulled and you thought to yourself about what should be done be
 
 "Oh! I see. Well, if you have any spare bits and pieces, you could perhaps sell to one of the travelling merchants that come by here every so often. They tend to buy all types of meat, jewellery, ore, potion ingredients... even local flowers can be an easy way to make a bit of money when they come around. Hmm... But I don't think there've been any in town today..." The innkeeper thought. "I'd not dwell on it. If you've travelled here from the West without much trouble, you should be able to get up to Kakariko Village without much trouble." She smiled.
 
+"I expected as such," you nodded. "Oh well. Okay. Well, I suppose I'll get situated then, and I'll check in tonight to get plenty of rest."
+
+Carrie smiled. "That's no trouble at all. I won't keep you further. I'll be open as late as you need."
+
+"Thanks." You smiled - at least bedding was sorted. "I'll be seeing you soon then!" With a wave, you started to turn away.
+
+"Of course. Be safe!" She responded, with a gentle wave back.
+
+So now you had something to do - something to distract you from the reality that you were stuck in this land.
+
+And why not play mailman, if it gave you a reason to explore the world you found yourself in?
