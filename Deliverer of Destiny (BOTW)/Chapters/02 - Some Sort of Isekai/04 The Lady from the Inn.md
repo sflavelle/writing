@@ -1,8 +1,20 @@
-"Greetings, traveller!" one nice elder lady called out, sat on the verandah of what seemed like Hateno Village's inn, as you walked back through the village.
+----
 
-"Hi there,” you replied, walking up the wooden steps to join her, leaning on the railing. "I hope the day finds you well."
+You started with taking your time down the hill - breathing in the sweet spring as you marvelled at the snow-covered mountains to your north, the coasts and cliffs to your south... and of course the wild and varied landscape to the west, giving you a clear view of even Vah Rudania far in the distance. More than once, you stopped to pull out your phone and record the moment.
 
-"As well as one can be nowadays," she replied. "I've not seen clothing like yours before. Are you not from Hyrule?"
+*Y'know, thinking about it all, this is a pretty nice place to get dropped into.*
+
+*...Monsters aside.*
+
+Passing the windmills at the east end of Hateno Village proper, you re-entered the settlement, pausing briefly to admire the water.
+
+"Greetings, traveller!"
+
+You looked about, and notice a young lady leaning on the verandah of what seemed like Hateno Village's inn, just a few meters away. She was definitely looking over at you.
+
+"Hi there,” you replied, smiling and waving, walking up toward the inn's entrance, finding a good spot to make conversation. "I hope the day finds you well."
+
+"As well as one can be nowadays," she replied, looking you over. "I've not seen clothing like yours before. Are you not from Hyrule?"
 
 You smiled. "That's right. You could say I'm uhhh, a traveller of sorts. From the far west."
 
@@ -12,7 +24,7 @@ You smiled. "That's right. You could say I'm uhhh, a traveller of sorts. From th
 
 "But you don't seem to have a backpack."
 
-"Ah yes, well..." it took you a short moment to craft a story. "I was ambushed at my camp a few nights ago. Some nasty... what are they called again? Bokoblins? They drove me away in the              night. Lost whatever wasn't on my person. Been sleeping close to the main roads since."
+"Ah yes, well..." it took you a short moment to craft a story. "I was ambushed at my camp a few nights ago. Some nasty... what are they called again? Bokoblins? They drove me away in the night. Lost whatever wasn't on my person. Been sleeping close to the main roads since."
 
 "Oh, dear. I'm sorry for your losses."
 
@@ -22,27 +34,27 @@ You smiled. "That's right. You could say I'm uhhh, a traveller of sorts. From th
 
 You thought to yourself. You kinda wanted to see it all if you could, though that depended on your staying safe... and your stamina. "Not really. I figure I'd visit the different villages first, see the sights, maybe try to visit the Zoras and the Rito if I can. I'd have wanted to visit the castle too, but, well..."
 
-Your friend nodded, understanding. Even for those that weren't quite familiar with the Calamity, the aura surrounding Hyrule Castle made it quite clear it was not somewhere to tread for civilians. "Well, let's see... I think a neighbour of mine has- Ah! Just the person I was thinking of!" Her attention had been suddenly diverted to someone behind you, and you turned to see a young lady in her 30s, carrying an empty wooden bucket past the inn toward the stream that passed through the village. "I was just speaking to this lovely young tourist, Lin. You're the one that has that pen pal in Kakariko, right?"
+Your friend nodded, understanding. Even for those that weren't quite familiar with the Calamity, the aura surrounding Hyrule Castle made it quite clear it was not somewhere to tread for civilians. "Well, let's see... I think a neighbour of mine has- Ah! Just the person I was thinking of!" Her attention had been suddenly diverted to someone behind you, and you turned to see a young lady in her 30s, carrying an empty wooden bucket past the inn toward the stream that passed through the village. "I was just speaking to this lovely young tourist, Uma. You're the one that has that pen pal in Kakariko, right?"
 
-"That's me, yes." Lin, with brown eyes and long hair tied up in a bun, smiled. "I've been meaning to catch up with them, actually. All the recent happenings have put my children at the forefront as you know, dear Carrie."
+"That's me, yes." Uma, with green eyes and white hair neatly tied up in a ponytail, smiled. "I've been meaning to catch up with them, actually. All the recent happenings have put my children at the forefront as you know, dear Prima."
 
-Carrie, the innkeeper you had been speaking to, nodded. "Well, traveller - what is *your* name, by the way?"
+Prima, the innkeeper you had been speaking to, nodded. "Well, traveller - what is *your* name, by the way?"
 
 "I'm (Y/N). It's a pleasure."
 
-"Likewise. Lin, this young traveller is visiting Hyrule and wishes to see the sights. What say you if we paid them to take a letter up to your friend in Kakariko Village?"
+"Likewise. Uma, this young traveller is visiting Hyrule and wishes to see the sights. What say you if we paid them to take a letter up to your friend in Kakariko Village?"
 
-Lin smiled. "I think that's a great idea. I would only have to write it first."
+Uma smiled. "I think that's a great idea. I would only have to write it first."
 
 "Of course. (Y/N), would you be so kind as to do that for us on your way?"
 
 "Gladly." You beamed. "Thank you so much."
 
-"Of course," Carrie waved her hand, as if this was no big gesture to her. "I'm only too happy to help a friendly face get by. Shall we convene at lunch tomorrow then, Lin?"
+"Of course," Prima waved her hand, as if this was no big gesture to her. "I'm only too happy to help a friendly face get by. Shall we convene at lunch tomorrow then, Uma?"
 
-"Sounds good, Carrie. I'll meet you both then - I best get some water boiling for the kids' baths."
+"Sounds good, Prima. I'll meet you both then - I best get some water boiling for the kids' baths."
 
-"Of course, Lin. Take care." Carrie smiled warmly and waved toward her as Lin began to move. You followed suit as well.
+"Of course, Uma. Take care." Prima smiled warmly and waved toward her as Uma began to move. You followed suit as well.
 
 You turned back toward the innkeeper. "Thank you again - you don't know just how much this gesture means to me."
 
@@ -50,7 +62,7 @@ You turned back toward the innkeeper. "Thank you again - you don't know just how
 
 "I'm touched," you said to her with genuine appreciation, raising a hand to your chest. "I'll be sure to repay this kindness when I can."
 
-"I know you will, dear." Carrie smiled. "All I ask is that you pay the bed fee when you return to our village."
+"I know you will, dear." Prima smiled. "All I ask is that you pay the bed fee when you return to our village."
 
 "Of course."
 
@@ -60,7 +72,7 @@ The conversation lulled and you thought to yourself about what should be done be
 
 *I should probably get some more... period-appropriate clothing as well, I don't want to stick out too badly and draw attention to myself. I'll need money for that though.* "Hey, don't mind me asking, but is something I could do around here to earn a little bit of cash? I'm trying to come up with something I could do to buy some clothing from here so I don't stick out so much to the monsters."
 
-"... What do you mean by 'cash'?" Carrie raised an eyebrow.
+"... What do you mean by 'cash'?" Prima raised an eyebrow.
 
 *Oh, whoops.* "Sorry, 'rupees'. Currency, basically."
 
@@ -68,7 +80,7 @@ The conversation lulled and you thought to yourself about what should be done be
 
 "I expected as such," you nodded. "Oh well. Okay. Well, I suppose I'll get situated then, and I'll check in tonight to get plenty of rest."
 
-Carrie smiled. "That's no trouble at all. I won't keep you further. I'll be open as late as you need."
+Prima smiled. "That's no trouble at all. I won't keep you further. I'll be open as late as you need."
 
 "Thanks." You smiled - at least bedding was sorted. "I'll be seeing you soon then!" With a wave, you started to turn away.
 
