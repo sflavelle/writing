@@ -43,17 +43,3 @@ She frowned. "There's a possibility she's gone missing. Nobody's seen her since 
 "Huh, okay. Smart. Does she meet with her DJ friend out here or?"
 
 "Her whuh?" Sheldon shook his head. "I'm doing cleanup and paperwork about that time, Callie, I don't go poking into other people's business."
-
-"Oh. Sorry."
-
-"For what it's worth though, the Square's usually empty, or nearly empty when I get to go home."
-
-"Hmmm... okay. Hey, does that camera watching the door work?" Callie gestured in the direction of the shop.
-
-"Yes...?" Sheldon raised an eyebrow. "I think I get what you're about to ask me, Callie, and I'd have to take it down to retrieve what it's recorded though."
-
-"Well that can't be a problem, right?"
-
-"Uhh, for business it is. If I let a potential robbery happen without evidence as to who took it, I eat the cost of whatever's stolen. Look, Callie. I know you need answers sooner rather than later. But if Lily doesn't turn up by close of business I'll take down the camera and check the footage for last night. Okay?"
-
-Callie sighed, but nodded. "Alright, alright. Thanks for at least hearing me out though."
