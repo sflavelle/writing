@@ -36,7 +36,7 @@ Great, now you were just thinking about that again.
 
 For a brief moment you expect some surprised retort to this.
 
-"I can't see how. I can't be a hero of your calibre, just because I am actually... trying to do something about this situation. If I... had my way, I'd still be travelling about Hyrule."
+"I can't see how. I can't be a hero of your calibre, just because I am actually... trying to do something about this situation. If I... had my way, I'd still be travelling about Hyrule. I'd be a lot more carefree, I suppose."
 
 You almost missed those early days...
 
@@ -52,9 +52,9 @@ That was something you hadn't yet had to consider. You stood up, leaving the swo
 
 It was a feminine, musical voice, with a quality that you had never heard before, speaking in a way that seemed to echo toward you. You spun about, looking around, trying to find its source.
 
-And then a figure seemed to simply form by the pool, near where you had left the Master Sword. An ethereal blue coloured a body that was clearly not human and yet tried to resemble one. It stared toward you through a face with no pupils and no mouth.
+And then a figure seemed to simply form by the pool, near where you had left the Master Sword. An ethereal blue coloured a body that was clearly not human and yet tried to resemble one. It stared toward you through a face with no pupils and no mouth. Its expression fixed, immutable.
 
-And yet, it spoke, with the same voice you had heard. As it watched you, the figure continued, "*Though your skill set is reduced compared to the Champion Link, your emotional profile is at least 85% identical based on preliminary data. He would most likely have reacted in the same manner.*"
+And yet, it spoke, with the same voice you had heard. As it watched you, the figure continued, "*Though your skill set is currently reduced compared to the Champion Link, your emotional profile is at least 85% identical based on preliminary data. He would most likely have reacted in the same manner.*"
 
 You stared at her, jaw dropped. You recognised this being, but...
 

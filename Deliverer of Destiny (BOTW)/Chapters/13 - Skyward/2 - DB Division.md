@@ -40,4 +40,18 @@ The voice was silent as, with the buds in, the noise of the wind reduced down to
 
 "Rip and tear, birdo." With that, you tapped '[BFG Division](https://youtu.be/QHRuTYtSbJQ) on the phone, which started to play its intro, and you slipped your phone back into your pocket, in favour of the Master Sword. "Until it is done."
 
-"*Oh, /wonderful/.*" The Champion's voice sighed in defeat. "*I'm being rescued by a /psychopath/.*"
+"*Oh, /wonderful/.*" The Champion's voice sighed in defeat. "*I'm being rescued by a / psychopath/.*"
+
+You couldn't help but laugh at the comment. You checked your equipment one last time, and steeled yourself for what might lay ahead. "Right. The map terminal."
+
+"*... What in Hylia is this* noise *you're listening to? Is this meant to be music?*"
+
+"'Meant to be'? It *is*."
+
+"*...You're very strange for a Hylian, you know.*"
+
+"Oh, I'm--" You stopped briefly, thinking to yourself - *Wait, if I'm... /am/ I Hylian? Does it matter?* - but then you noticed the song was about to start it's aural assault on your ears, and it didn't matter anymore. Sword at the ready, and threading your arm into the shield, you finished, "too late. Let's do this."
+
+As soon as the beat finally dropped, you were almost *sprinting* into the Divine Beast, energised by the track, ready to take down any Guardians or other monsters in the way.
+
+But it didn't take much for the momentum to die off.

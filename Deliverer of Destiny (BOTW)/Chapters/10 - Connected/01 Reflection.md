@@ -8,11 +8,11 @@ _One more to be freed. And then..._
 
 "Ah, I thought you might be up here."
 
-You turned your head. The now familiar deep, well-spoken voice of Prince Sidon had come from your left, as he climbed the steps to meet you once more. "I noticed that the hero who freed the Divine Beast Vah Ruta from the Calamity was nowhere to be seen. Is everything alright, Hylian?"
+You turned your head. The now familiar deep, well-spoken voice of Prince Sidon had come from your left, as he approached you once more. "I noticed that the hero who freed the Divine Beast Vah Ruta from the Calamity was nowhere to be seen. Is everything alright, Hylian?"
 
 Your eyes flickered up to his. "Link had to keep moving, sadly. A hero's work is never finished."
 
-"Had you not told me that he..." A pause, punctuated by confusion on his features. Then it softened. "Ah... I see."
+"Had you not told me that he..." A pause, punctuated by confusion on his features. Then his expression softened. "Ah... I see."
 
 You sat up as he lowered himself to sit nearby. Even now his form towered above yours. A part of you felt it rather impressive. "Won't the city miss you if you're up here, Prince?" 
 
@@ -44,7 +44,7 @@ Your head turned to face the Zora. "... Honestly, not really. It's not something
 
 "Because-- Because someone *had* to, Sidon." You took a breath. "If I didn't decide to at least try, then who would? Especially in the face of Calamity Ganon? I did this because with Link... gone, I couldn't just... just go about my time here knowing I was doomed. I had to do something."
 
-Sidon nodded silently. He thought to himself as your head rested in your hands. It wasn't his fault that you had been in almost constant unknown territory since you came to in Hyrule. You had done much more than you had thought capable of yourself. You just wanted to rest, but you couldn't, not when this world needed its--
+Sidon nodded silently. He thought to himself as your head rested in your hands. Your thoughts wandered as well. It wasn't his fault that you had been in almost constant unknown territory since you came to in Hyrule. You had done much more than you had thought capable of yourself. You just wanted to rest, but you couldn't, not when this world needed its--
 
 "You know, Hylian. Regardless of your thought on the matter, I believe that mindset makes you a hero."
 
@@ -70,4 +70,6 @@ It was a few minutes of quiet before you got the courage to ask him the question
 "Hmm?"
 
 "Link. You knew him, before all this, right?"
+
+"I hadn't seen him for one hundred years..." he murmured quietly. "...But yes, I suppose I did." A pause, and then a chuckle from the Zora prince. "I was so young, then. It's as if he hadn't aged a day since those old times and... when I last saw him."
 
