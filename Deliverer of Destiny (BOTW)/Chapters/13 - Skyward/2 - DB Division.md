@@ -38,9 +38,9 @@ The voice was silent as, with the buds in, the noise of the wind reduced down to
 
 "*...What? What on Earth did you just say?*"
 
-"Rip and tear, birdo." With that, you tapped '[BFG Division](https://youtu.be/QHRuTYtSbJQ) on the phone, which started to play its intro, and you slipped your phone back into your pocket, in favour of the Master Sword. "Until it is done."
+"Rip and tear, birdo." With that, you tapped '[BFG Division](https://youtu.be/QHRuTYtSbJQ)' on the phone, which started to play its intro, and you slipped your phone back into your pocket, in favour of the Master Sword. "Until it is done."
 
-"*Oh, /wonderful/.*" The Champion's voice sighed in defeat. "*I'm being rescued by a / psychopath/.*"
+"*Oh, /wonderful/.*" The Champion's voice sighed in defeat. "*I'm being visited by a /psychopath/.*"
 
 You couldn't help but laugh at the comment. You checked your equipment one last time, and steeled yourself for what might lay ahead. "Right. The map terminal."
 
