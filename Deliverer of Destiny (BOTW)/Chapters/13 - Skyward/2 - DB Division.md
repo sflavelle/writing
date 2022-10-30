@@ -1,6 +1,6 @@
-You decided to believe that you were on solid ground when you alighted onto the Divine Beast. Even if it was hundreds of meters above the ground, you felt more comfortable on it than you did on the Teba's back, strong as he was - or floating about with the paraglider.
+You decided to believe that you were on solid ground when you alighted onto the Divine Beast Vah Medoh. Even if it was hundreds of meters above the ground, you felt more comfortable on it than you did on the Teba's back, strong as he was - or floating about with the paraglider.
 
-Standing on the landing platform, noting that the Sheikah travel sign was lighting up - accompanied by a notification chime from the Slate on your hip as the ability to warp here became available - you gave yourself a minute or two to take deep breaths, pushing the stressful situation of attacking the Beast's shield away from you and refocusing yourself on the task ahead.
+Standing on the landing platform, noting that the Sheikah travel sign was lighting up - accompanied by a notification chime from the Slate on your hip as the ability to warp here became available - you gave yourself a minute or two to take deep breaths, pushing the stressful situation of a few minutes ago away from you and refocusing yourself on the task ahead.
 
 Five terminals. Well, six - including the map of this place. Six terminals, six puzzles, another Blight, and then...
 
@@ -10,11 +10,11 @@ Then, perhaps, you could consider this 'resurrection' process, before taking thi
 
 "*You're not Link.*"
 
-A male voice, spoken from the aether, interrupted your thoughts. In those three words you could hear his simultaneous disbelief and surprise. *This isn't the person he expected to rescue him and the Divine Beast.*
+A male voice, spoken from the aether, interrupted your thoughts. In those three words you could hear his simultaneous disbelief and surprise. *This isn't the person he expected to rescue him and Medoh.*
 
 It was of course the voice of Sean Chiplock. Or rather... "Yes and no, Revali. It's a long story." You turned, toward the entrance that led into the Beast proper.
 
-"*Much as I appreciate the company, this isn't a safe place for a Hylian. Head back to wherever-*"
+"*Much as I appreciate the company, this is far from a safe place for a Hylian. Head back to wherever-*"
 
 "Just because I don't look like Link doesn't mean I'm not Link." You smirked a little, as you checked that your selected weapons were still secure.
 
