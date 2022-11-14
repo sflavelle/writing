@@ -68,9 +68,9 @@ You blinked. "And if it... doesn't like me?"
 
 The Sheikah shrugged. "It might start sapping your energy and life."
 
-"Uhhhh!"
+"*Uhhhh!*"
 
-"Oh relax! If I'm wrong - and may I add, I'm not - you can just let go of it."
+"Oh relax! If I'm wrong - and may I add, I'm *not* - you can just let go of it."
 
 "Are you *sure*?"
 
@@ -80,7 +80,7 @@ You sighed deeply. Surely, this was just silly. Yes, she'd forced the hilt into 
 
 Your hands shook slightly as you reached for it, hesitating for a few moments before slowly wrapping your fingers around the hilt of the sword.
 
-Nothing happened. Just the sensation of finely crafted metal and leather wrapping resting on your skin. Strangely, you felt just the smallest hint of warmth from somewhere within. You took a few deep breaths, just letting your hand stay, wondering if you felt anything happening.
+Nothing happened. Just the sensation of finely crafted metal and leather wrapping resting on your skin. Strangely, you felt just the smallest hint of warmth from somewhere within it. You took a few deep breaths, just letting your hand stay, wondering if you felt anything happening.
 
 But it was as calm as it had been. As calm and unable to inflict magical pain upon you as an unused blade should be.
 
