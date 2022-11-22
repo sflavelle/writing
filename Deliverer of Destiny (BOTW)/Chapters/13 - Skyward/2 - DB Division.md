@@ -10,9 +10,9 @@ Then, perhaps, you could consider this 'resurrection' process, before taking thi
 
 "*You're not Link.*"
 
-A male voice, spoken from the aether, interrupted your thoughts. In those three words you could hear his simultaneous disbelief and surprise. *This isn't the person he expected to rescue him and Medoh.*
+A male voice, spoken from the aether, interrupted your thoughts. In those three words you could hear his simultaneous disbelief and disappointment. *This isn't the person he expected to rescue him and Medoh.*
 
-It was of course the voice of Sean Chiplock. Or rather... "Yes and no, Revali. It's a long story." You turned, toward the entrance that led into the Beast proper.
+It was of course the voice of Sean Chiplock. Playing the character of Revali, of course. But of course not in this universe... "Yes and no, Revali. It's a long story." You turned, toward the entrance that led into the Beast proper.
 
 "*Much as I appreciate the company, this is far from a safe place for a Hylian. Head back to wherever-*"
 
@@ -22,7 +22,7 @@ It was of course the voice of Sean Chiplock. Or rather... "Yes and no, Revali. I
 
 "You're right, it doesn't. But who else would try *and succeed* to come all the way up here?"
 
-"*Oh let's see. Perhaps a* Rito?" The voice of Revali scoffed. "*A true warrior race? With* wings?"
+"*Oh let's see. Perhaps a* Rito?" The voice of Revali scoffed. "*A true warrior race? With, work with me here,* wings?"
 
 "How do you think I got up here? How do you think we disabled the shields on this thing?"
 
@@ -36,9 +36,9 @@ The voice was silent as, with the buds in, the noise of the wind reduced down to
 
 "Cleansing a place like this needs some dope tunes." You paused briefly, coming up with an idea, and looked for the Doom 2016 soundtrack in your library.
 
-"*...What? What on Earth did you just say?*"
+"*...What? What in the Goddesses did you just say?*"
 
-"Rip and tear, birdo." With that, you tapped '[BFG Division](https://youtu.be/QHRuTYtSbJQ)' on the phone, which started to play its intro, and you slipped your phone back into your pocket, in favour of the Master Sword. "Until it is done."
+"Rip and tear, birdo." With that, you tapped '[BFG Division](https://youtu.be/QHRuTYtSbJQ)' on the phone, which started to play its intro, and you slipped your phone back into your pocket, in favour of unsheathing the Master Sword. "Until it is done."
 
 "*Oh, /wonderful/.*" The Champion's voice sighed in defeat. "*I'm being visited by a /psychopath/.*"
 
@@ -46,11 +46,11 @@ You couldn't help but laugh at the comment. You checked your equipment one last 
 
 "*... What in Hylia is this* noise *you're listening to? Is this meant to be music?*"
 
-"'Meant to be'? It *is*."
+"'Meant to be'? It *is*." *Wait, he can hear the music in your earbuds?*
 
 "*...You're very strange for a Hylian, you know.*"
 
-"Oh, I'm--" You stopped briefly, thinking to yourself - *Wait, if I'm... /am/ I Hylian? Does it matter?* - but then you noticed the song was about to start it's aural assault on your ears, and it didn't matter anymore. Sword at the ready, and threading your arm into the shield, you finished, "too late. Let's do this."
+"Oh, I'm--" You stopped briefly, thinking to yourself - *Wait, if I'm... I /am/ Hylian aren't I? Does it matter?* - but then you noticed the song was about to start it's aural assault on your ears, and it didn't matter anymore. Sword at the ready, and threading your arm into the shield, you finished, "I know. It's too late. Let's do this."
 
 As soon as the beat finally dropped, you were almost *sprinting* into the Divine Beast, energised by the track, ready to take down any Guardians or other monsters in the way.
 
