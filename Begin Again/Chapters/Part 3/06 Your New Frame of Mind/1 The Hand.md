@@ -26,7 +26,7 @@ Lily didn't hear or see the door open while she was busy scrubbing her body clea
 
 The first indication that someone had entered the bathroom was a single tentacle reaching in, to gently brush over her body. She stiffened and snapped toward the intruder, only to notice the vague shape of her captive and companion behind the mist. "Oh. Morning."
 
-"Good morning, my dear," came Octavio's voice from the other side of the steam cloud. "Sleep well, my dear?"
+"Good morning, my dear," came Octavio's voice from the other side of the steam cloud. "Sleep well?"
 
 "... considering the circumstances, I suppose."
 
@@ -36,7 +36,7 @@ The first indication that someone had entered the bathroom was a single tentacle
 
 A chuckle came from behind the shower mist. "They're not meant to, dear."
 
-"Really?"
+"...what, seriously?"
 
 "No, I kid. Like anything else, they should came with time. Mind if I join you? I ought to clean myself up as well."
 
