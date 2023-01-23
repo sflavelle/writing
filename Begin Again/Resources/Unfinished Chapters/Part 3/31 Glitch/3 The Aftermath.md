@@ -1,4 +1,4 @@
-***
+----
 
 CQ was roused from his thoughts as the scenery out the window changed.
 
