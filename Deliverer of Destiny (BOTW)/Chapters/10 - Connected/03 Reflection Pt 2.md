@@ -47,15 +47,3 @@ But as you stared up into the ceiling of the chamber, slowly your eyes drifted d
 That was something you hadn't yet had to consider. You stood up, leaving the sword by the pool as you paced about, having made yourself nervous.
 
 "O-okay, I should really just focus on the next task and... oh no, that's the Rito one, isn't it? I have to get up into the sky? Fuck, man... See Link, I can't be you. I don't think I'm scared of heights but holy hell, I don't want to be on some floating machine floating up above the clouds. Surely you would have taken that as a challenge."
-
-"*On the contrary, Master.*"
-
-It was a feminine, musical voice, with a quality that you had never heard before, speaking in a way that seemed to echo toward you. You spun about, looking around, trying to find its source.
-
-And then a figure seemed to simply form by the pool, near where you had left the Master Sword. An ethereal blue coloured a body that was clearly not human and yet tried to resemble one. It stared toward you through a face with no pupils and no mouth. Its expression fixed, immutable.
-
-And yet, it spoke, with the same voice you had heard. As it watched you, the figure continued, "*Though your skill set is currently reduced compared to the Champion Link, your emotional profile is at least 85% identical based on preliminary data. He would most likely have reacted in the same manner.*"
-
-You stared at her, jaw dropped. You recognised this being, but...
-
-"...*Fi*?"
