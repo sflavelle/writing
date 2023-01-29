@@ -1,0 +1,1 @@
+You decided to believe that you were on solid ground when you alighted onto the Divine Beast Vah Medoh. Even if it was hundreds of meters above the ground, you felt more comfortable on it than you did on Teba's back, strong as he was - or floating about with the paraglider.

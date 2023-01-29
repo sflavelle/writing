@@ -1,5 +1,3 @@
-You decided to believe that you were on solid ground when you alighted onto the Divine Beast Vah Medoh. Even if it was hundreds of meters above the ground, you felt more comfortable on it than you did on the Teba's back, strong as he was - or floating about with the paraglider.
-
 Standing on the landing platform, noting that the Sheikah travel sign was lighting up - accompanied by a notification chime from the Slate on your hip as the ability to warp here became available - you gave yourself a minute or two to take deep breaths, pushing the stressful situation of a few minutes ago away from you and refocusing yourself on the task ahead.
 
 Five terminals. Well, six - including the map of this place. Six terminals, six puzzles, another Blight, and then...
@@ -20,7 +18,7 @@ It was of course the voice of Sean Chiplock. Playing the character of Revali, th
 
 "*That doesn't make any sense.*"
 
-"You're right, it doesn't. But who else would try *and succeed* to come all the way up here?"
+"You're right, it doesn't. I'm still working it out. But who else would try *and succeed* to come all the way up here?"
 
 "*Oh let's see. Perhaps a* Rito?" The voice of Revali scoffed. "*A true warrior race? With, work with me here,* wings?"
 
