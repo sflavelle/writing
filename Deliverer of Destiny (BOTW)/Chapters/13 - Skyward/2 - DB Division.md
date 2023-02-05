@@ -12,7 +12,7 @@ Then, perhaps, you could consider this 'resurrection' process, before taking thi
 
 A male voice, spoken from the aether, interrupted your thoughts. In those three words you could hear his simultaneous disbelief and disappointment. *This isn't the person he expected to rescue him and Medoh.*
 
-It was of course the voice of Sean Chiplock. Playing the character of Revali, of course. But of course not in this universe... "Yes and no, Revali. It's a long story." You turned, toward the entrance that led into the Beast proper.
+It was of course the voice of Sean Chiplock. Playing the character of Revali, that was. But of course in this universe, it simply *was* Revali. "Yes and no. It's a long story." You turned, toward the entrance that led into the Beast proper.
 
 "*Much as I appreciate the company, this is far from a safe place for a Hylian. Head back to wherever-*"
 

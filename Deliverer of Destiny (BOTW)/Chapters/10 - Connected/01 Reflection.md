@@ -46,7 +46,7 @@ Your head turned to face the Zora. "... Honestly, not really. It's not something
 
 Sidon nodded silently. He thought to himself as your head rested in your hands. Your thoughts wandered as well. It wasn't his fault that you had been in almost constant unknown territory since you came to in Hyrule. You had done much more than you had thought capable of yourself. You just wanted to rest, but you couldn't, not when this world needed its--
 
-"You know, Hylian. Regardless of your thought on the matter, I believe that mindset makes you a hero."
+"You know, Hylian. Regardless of your thought on the matter, I believe that mindset *does* make you a hero."
 
 Your jaw dropped, and your head snapped up to look at him. "But I-"
 

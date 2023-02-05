@@ -36,14 +36,14 @@ Great, now you were just thinking about that again.
 
 For a brief moment you expect some surprised retort to this.
 
-"I can't see how. I can't be a hero of your calibre, just because I am actually... trying to do something about this situation. If I... had my way, I'd still be travelling about Hyrule. I'd be a lot more carefree, I suppose."
+"I can't see how. I can't be a hero of your calibre, just because I am actually... trying to do something about this situation. If I... had my way, I'd still be travelling about Hyrule. Delivering stuff. I'd be a lot more carefree, I suppose."
 
 You almost missed those early days...
 
 But as you stared up into the ceiling of the chamber, slowly your eyes drifted downward and fell upon the Master Sword in its sheath, beside you.
 
-"...I could wield your blade. I don't know how. Apparently that's the decider for Purah. What is it, someone of pure courage? Avatar of courage? I dunno. I don't want to use it though. Unless I need to. I guess if I'm now set on your path that means I'll need to... Holy shit, I might have to face the Calamity."
+"...I could wield your blade. I don't know how. Apparently that's the decider for Purah. What is it, someone of pure courage? Avatar of courage? I dunno. You're the one with the Triforce of Courage." You paused, then shook your head. "I don't want to use it though. Unless I need to. I guess if I'm now set on your path that means I'll need to... Holy shit, I might have to face the Calamity."
 
 That was something you hadn't yet had to consider. You stood up, leaving the sword by the pool as you paced about, having made yourself nervous.
 
-"O-okay, I should really just focus on the next task and... oh no, that's the Rito one, isn't it? I have to get up into the sky? Fuck, man... See Link, I can't be you. I don't think I'm scared of heights but holy hell, I don't want to be on some floating machine floating up above the clouds. Surely you would have taken that as a challenge."
+"O-okay, I should really just focus on the next task and... oh no, that's the Rito one, isn't it? I have to get up into the sky? Fuck, man... See Link, I can't be you. I don't think I'm scared of heights but holy hell, I don't want to be on some floating machine floating up above the clouds. Imagine having to fall for minutes knowing you were about to die. I don't think you'd have that problem. Surely you would have taken that as a challenge."

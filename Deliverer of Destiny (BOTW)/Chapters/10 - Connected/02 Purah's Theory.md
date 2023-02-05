@@ -30,7 +30,7 @@ The inside of the Tech Lab was a mess of papers today. Director Purah was writin
 
 "How do you mean?" Your brows furrowed.
 
-"They say that the princess of Hyrule is plagued by the Curse of Demise. That an entity called Ganon will continue to manifest itself to shroud this world in darkness, and a hero will continue to rise to stop him."
+"They say that the princess of Hyrule is plagued by the Curse of Demise. That an entity called Ganon will continue to manifest itself to shroud this world in darkness, a princess will be continually born with the sealing powers, and a hero will continue to rise to stop him."
 
 "Huh?" You found yourself pretending you didn't know of multiple games in this universe where exactly this was the case.
 
@@ -104,6 +104,10 @@ How on Earth did this journey keep getting stranger?
 
 You carefully held the sword up to the light, inspecting it and adjusting to its weight. The warmth you felt from it grew warmer as you adjusted to it. Was it also adjusting to you?
 
+Actually, was it just you or was it beginning to glow blue with light?
+
+Maybe it was, because you blinked and the blade seemed completely normal and not glowing.
+
 "Well then..." Purah stared at you and the blade with a sense of almost reverence. "How do you feel?"
 
 "I uh..." you gently ran your fingers over the engraved symbol on the blade. "Honestly? I'm stunned."
@@ -114,7 +118,7 @@ You carefully held the sword up to the light, inspecting it and adjusting to its
 
 "Haven't remembered any past lives or anything?"
 
-"Uuuhhh... no...?" You raised an eyebrow and, examination over, let your hands fall to your sides - carefully, in the case of the hand holding the sword. "I get what you're asking, and no, I don't feel anything... different."
+"Uuuhhh... no...?" You raised an eyebrow and, examination over, let your hands fall to your sides - carefully, in the case of the hand holding the sword. "Was something... meant to happen?"
 
 "Hmmph." Purah almost seemed disappointed. "Well, this is still quite an event in itself, wouldn't you say?"
 
@@ -127,6 +131,10 @@ You carefully held the sword up to the light, inspecting it and adjusting to its
 "Steal *your* thunder."
 
 "Pardon?"
+
+She shot you a strange look, like she was trying to stare into your soul, look through you. You stared back. You felt whatever implications this held for her was a bit much.
+
+"I mean, there's no way I'm going to walk away *right now*," you responded finally, glancing down at the sword blade. "If it wants me to wield it, then I'll wield it for the purpose it was made for. But just because everyone before was a hero named Link doesn't... doesn't mean I am. I think I'd know."
 
 "Well in any case, I think that settles it, *Linky*!" Purah recovered herself and retreated back to her notepad. "Right! Well, you're headed for Rito Village, right?"
 
