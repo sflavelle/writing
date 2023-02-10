@@ -52,4 +52,8 @@ All you could say was, "Please don't ask."
 
 Breakfast in Hateno Village's inn consisted of wheat biscuits, lightly sprinkled with sugar, soaking in a milk bowl. Simple, but surprisingly delicious, Prima explained that the main ingredients were easily sourced from Hateno's own farming population - and the sugar cane bought from travelling merchants and processed locally. 
 
-It was a look into the economy of Hyrule, something you hadn't put serious thought into. From your time playing the game, of *course* travellers selling goods kept Hyrule going, especially after the Calamity - villages and communities would grow and breed what they could, but what they couldn't? Of *course* they'd need to trade with other villages.
+It was a small look into the economy of Hyrule, something you hadn't put serious thought into. From your time playing the game, of *course* travellers selling goods kept Hyrule going, especially after the Calamity - villages and communities would grow and breed what they could, but what they couldn't? Of *course* they'd need to trade with other villages.
+
+Since the other person using the inn had already left, it was you and Prima out on the inn's balcony, and watching Hateno Village awaken. As the sleep ebbed away, cool air blowing through the hill, and the simple but tasty meal filling your stomach, you and the innkeeper chatted about your lives.
+
+In 
