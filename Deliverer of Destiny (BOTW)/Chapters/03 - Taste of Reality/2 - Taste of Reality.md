@@ -29,3 +29,11 @@ With the other monster getting to its feet, you decided the best course of actio
 And so you did.
 
 Charging down the slope, handling your new pitchfork like a soldier might carry their rifle, as you worked to put as much distance between you and your assailant as you could.
+
+Thankfully, you were faster at running down the slope than the Bokoblins. Still, you put your head down at the split in the path, reducing the chance that more monsters might see you and give chase.
+
+And then you were following along the river, and it seemed like your attacker had given up, and after a moment you allowed yourself an opportunity to pause and catch your breath.
+
+...You were glad to be alive.
+
+Of course it was either that, or dying a painful death to a weak monster... you decided to just take the win.
