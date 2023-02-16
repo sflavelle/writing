@@ -32,8 +32,24 @@ Charging down the slope, handling your new pitchfork like a soldier might carry 
 
 Thankfully, you were faster at running down the slope than the Bokoblins. Still, you put your head down at the split in the path, reducing the chance that more monsters might see you and give chase.
 
-And then you were following along the river, and it seemed like your attacker had given up, and after a moment you allowed yourself an opportunity to pause and catch your breath.
+And then you were heading into the valley along the river, and it seemed like your attacker had given up, and after you crested the incline, and found yourself above the river, you allowed yourself an opportunity to pause and catch your breath.
 
 ...You were glad to be alive.
 
 Of course it was either that, or dying a painful death to a weak monster... you decided to just take the win.
+
+You gave yourself fifteen minutes to sit by the rock walls and catch your breath, and began to take stock of your body. You became aware of your shakiness, especially in your hands. The pounding of your heart against your chest.
+
+The signs of fear.
+
+Fear you hadn't felt in this way before.
+
+...You were fearing for your life.
+
+...Oh boy, you'd say coming to Hyrule was a mistake, but *that wasn't your choice to make*.
+
+----
+
+Once you had managed to calm yourself down, you stood, and stretched, and looked forward at the path to come.
+
+The Cliffs of Quince.
