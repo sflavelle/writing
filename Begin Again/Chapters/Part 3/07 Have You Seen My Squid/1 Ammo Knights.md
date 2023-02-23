@@ -14,7 +14,7 @@ As Sheldon assisted the customers in selecting an appropriate weapon to purchase
 
 "Pardon me, I'll return in just a moment," he told the octoling browsing the racks, and scurried over to the counter. "Greetings, welcome to Ammo Knights! How can I help you today?"
 
-"Good afternoon!" Callie said cheerfully, but Sheldon noted her expression didn't share the same energy. "We're hoping you might be able to help us with a... uh, 'business inquiry'?"
+"Good afternoon!" Callie said cheerfully, but Sheldon noted her expression didn't share the same energy. "We're hoping you might be able to help with a... uh, 'business inquiry'?"
 
 Sheldon raised an eyebrow. Was she trying to communicate in code phrases? It seemed as if she wanted to talk to him about something, that perhaps she didn't want to mention in front of others. "Of course I can! Is out here okay, or should we discuss in my office?"
 

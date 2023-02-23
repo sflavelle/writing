@@ -54,7 +54,7 @@ As he scrawled a quick "closed for business" letter inside Ammo Knights, Pearl a
 
 "Just describe them, Sheldon. Please."
 
-"Uhh... alright. I don't know if they were sunshades or not, they just seemed black, entirely black. They were all wearing them."
+"Uhh... alright. I don't know if they were sunshades or not, they just seemed black, entirely black. Matte black, somehow - they weren't reflecting any of the surroudings. They were all wearing them."
 
 "Did they have a red dot on the eye?"
 
@@ -90,7 +90,7 @@ Marina stopped pacing for a moment, and simply stared at her. Then she started t
 
 "Well, they all used to at one point," he recalled. "But Lily still does, every Friday night."
 
-"Okay, so I guess it can't..."
+"Okay, so I guess it can't be him, but what if..."
 
 Marina trailed off.
 
