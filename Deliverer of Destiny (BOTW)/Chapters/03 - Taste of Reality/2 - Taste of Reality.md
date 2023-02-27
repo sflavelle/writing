@@ -14,11 +14,11 @@ It was perhaps fitting that it was right here, as you exited Ginner Woods, findi
 
 You jumped back as they sprang out of hiding, doing... some sort of battle-cry at you, you guessed, and after a moment to collect yourself, you examined them and their weapons. One was holding a stolen pitchfork, aimed at you, and the other wielded a...mop broom. Huh. You gave yourself a bit more room - or attempted to, as you backed away, they moved in - and decided that if you could do something about the sharp weapon, the other would be less of an issue if you decided to leg it.
 
-Again, you jumped back as suddenly the first Bokoblin thrust its pitchfork toward you, its buddy cheering it on. It came within a foot of you - man you were happy for your quick reactions here - and you got a good look of the rust and jagged shapes on the fork's points. *Fuck, yeah can't let /that/ touch me.* You thought you noticed the Bokoblin tip, as if it overextended? Hmm...
+Again, you jumped back as suddenly the first Bokoblin thrust its pitchfork toward you, its buddy cheering it on. It came within a foot of you - man you were happy for your quick reactions here - and you got a good look of the jagged rust on the fork's points. *Fuck, yeah can't let /that/ touch me.* You thought you noticed the Bokoblin tip, as if it overextended? Hmm...
 
 But it recovered after a moment, still holding its weapon, and you had to duck to dodge the mop head swinging at you. You pulled back further, on the edge of the wood again. You were starting to come up with a plan... if it worked, you might have yourself a weapon going forward.
 
-You waited for the Bokoblin with the pitchfork to thrust at you again. When it did, you jumped back again to avoid its points, but then you came forward as it overextended again, and grasped the other end of the pitchfork, tugging it toward you. It worked - the monster crashed into the dirt, and though it held onto the weapon, you had wrenched it from its hands shortly after.
+You waited, nervous and hopeful, for the Bokoblin with the pitchfork to thrust at you again. When it did, you jumped back again to avoid its points, but then you came forward as it overextended again, and grasped the other end of the pitchfork, tugging it toward you. It worked - the monster crashed into the dirt, and though it held onto the weapon, you had wrenched it from its hands shortly after.
 
 Reinvigorated with the feeling of a weapon in your hands, you arranged it in your hands so you could thrust back at them, ducking to avoid another swing at your head with the mop. You paused for a moment to consider what you were doing and then, with a deep breath, charged forward and impaled the second beast on the points of your fork. The poor thing screamed as four prongs pierced its chest, and as you pulled it back toward you it collapsed, its color quickly changing black before - *poof!* - bursting in a puff of Malice, leaving nothing but its weapon and various monster bits behind.
 
@@ -50,6 +50,8 @@ Fear you hadn't felt in this way before.
 
 ----
 
-Once you had managed to calm yourself down, you stood, and stretched, and looked forward at the path to come.
+Once you had managed to calm yourself down, your adrenaline drained away, you stood, and stretched, and looked forward at the path to come.
 
 The Cliffs of Quince.
+
+You were some distance away from it still, and couldn't get the full view of its structure, but 
