@@ -66,7 +66,7 @@ Octavio paused, and fixed his gaze on her. Gears were turning in his head. "...I
 
 "Good man. I'm proud of you." Lily smiled, a genuine one. 
 
-(In reality, Octavio had to lie to her. She was optimistic, and he liked some of the ideas she had, but it was far too late to change his path. The Octopia power situation was dire, and needed fixing near immediately, but he knew that a request to the surface for support would ultimately mean having to give up, well, *everything* about Octopia's identity. No, in this case it was easier for him to beg forgiveness.)
+(In reality, Octavio had to lie to her. She was optimistic of him, and he liked some of the ideas she had, but it was far too late to change his path. The Octopia power situation was dire, and needed fixing near immediately, but he knew that a request to the surface for support would ultimately mean having to give up, well, *everything* about Octopia's identity. No, in this case it was easier for him to beg forgiveness.)
 
 (He wasn't lying about his belief in Lily to mediate between him and the Inklings, though. Her interactions with and around him up at Tentakeel Hideout were testament to her ability to simply see the best of people.)
 
