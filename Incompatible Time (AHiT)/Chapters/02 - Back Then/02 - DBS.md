@@ -6,7 +6,7 @@ In the same instant, the Dead Bird Studios sets were thrown into chaos as owls a
 
 On opposite ends of the studio, both The Conductor and DJ Grooves were seen to suddenly throw their hands to their head, groaning as the memory of what they'd seen - and the memory of their sacrifices to help their star actor - were impressed upon them as if they had just experienced it in its totality just a moment ago.
 
-Because, for them, it had.
+Because, for them, they had.
 
 "CUT!" called the Conductor once he remembered where he was. "What in the peck just... eugh..." He shuffled off of his director's chair in the direction of the kitchen. "Take an hour, you lot. Somethin' big's just 'appened. Need ter... need ter reset."
 
