@@ -22,6 +22,10 @@ It was almost as if...
 
 *Was it over, then? Were things back to normal?*
 
+He reached his senses outward. His minions - were they alright? His memory from this day told him they were, and that some were gathered near the bridge playing some 'tag' game. He felt the familiar sense of the minions there, and sighed out.
+
+*Seems like things were as they should be.*
+
 He glanced up toward the sky. Though the ever-present night in his Forest clouded the view, he knew that that Kid's 'spaceship' was up there. 
 
 Perhaps it was time to make a visit.

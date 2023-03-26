@@ -37,3 +37,7 @@ DJ Grooves was the first to finish his coffee.
 "And the little darlin' saved all of us."
 
 "I'll drink to that."
+
+The two watched as crew from both teams filtered into the room. A few glanced over at the directors, seemingly seeking approval to be in the room. The Conductor nodded toward them. *'Course you're allowed in here, laddie.*
+
+Some of the owls and penguins, they noticed, also seemed to have just, for lack of a better phrase, 'returned' from the other reality, whatever that red-hooded peckneck had done. The directors could pick out fearful or confused faces amongst the crowd.
