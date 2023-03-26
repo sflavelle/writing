@@ -10,17 +10,17 @@ Because, for them, it had.
 
 "CUT!" called the Conductor once he remembered where he was. "What in the peck just... eugh..." He shuffled off of his director's chair in the direction of the kitchen. "Take an hour, you lot. Somethin' big's just 'appened. Need ter... need ter reset."
 
-He glanced back toward the set, the other part of him remembering what movie they had been shooting for now/back then. In fact, he remembered shooting this scene before he had discovered *Groooooves* and that Hat Kid scheming. And discovering her fondness for their new props.
+He glanced back toward the set, the other part of him remembering what movie they had been shooting for now/back then. In fact, these were the final scenes he shot before the film was complete. Soon he'd send it away, post-production would do their thing, and he'd have a *brilliant* action entry for the Bird Movie Awards, glittering with their hourglass props.
 
 *What new props?* Part of him piped up. *We don't have any new props.*
 
-*What? No, we had those hourglass props,* he thought back to himself, to the present... past... whatever version of himself was still experiencing today in linear time. *The Time Pieces. We taunted Groooooves and his penguins with them this morning, didn't we?*
+*What? No, we had those hourglass props,* he thought back to himself, to the present... past... whatever version of himself was still experiencing today in linear time. *The Time Pieces. We taunted Groooooves and his penguins with them early in production, didn't we?*
 
-*No?* He got back. *Am I goin' senile or somethin'?*
+*No?* He got back. *Am I goin' senile already or somethin'?*
 
 Ah.
 
-*No,* The Conductor settled on. *The Lass must've fixed it all.*
+*No,* The Conductor settled on. *Guess it's never happened, now. Lass must've fixed it all up.*
 
 Would he see her again?
 
