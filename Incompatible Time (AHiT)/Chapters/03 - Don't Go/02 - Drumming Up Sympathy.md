@@ -24,14 +24,20 @@ Conductor smiled. "And whose fault is that, peckneck?" He responded lighthearted
 
 Someone - rather, something - blinked into existence opposite them at the boardroom table.
 
-It was unmistakably the Subcon Snatcher.
+It was a strange entity, an almost completely black... *thing*, its only details two bright glowing eyes and a similarly luminescent fanged mouth, curled into a thin smile.
+
+Both birds floundered backward, crashing out of their chairs.
+
+"**YOU!**" cried the Conductor as he got to his feet first. "Yer that Snatcher of Subcon Forest, ain't ye?!"
+
+"***A pleasure to meet me properly, I'm sure.***" His smile grew into a grin.
 
 After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near my soul!"
 
-"***Any other day, birdbrain.***" Snatcher reclined in the chair he'd chosen. "***I'm glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.***"
+"***Any other day, birdbrain.***" Snatcher reclined in the chair he'd chosen. "***No, I'm just playing messenger today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.***"
 
 "What have you done to her?!" Grooves got to his feet, staring the spirit down.
 
 "If you so much as lay a finger on 'er after everything she's done..." began the Conductor.
 
-"***No, you morons! She wants to take her spaceship and leave! I don't want her to go, am i right in saying the two of you don't want to see her leave?***"
+"***No, you morons! It's not me this time! She's taking off on her own!***"

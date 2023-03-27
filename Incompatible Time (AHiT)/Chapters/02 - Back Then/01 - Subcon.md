@@ -14,7 +14,7 @@ Snatcher jolted upright in a flash, the book completely forgotten as he looked a
 
 He gathered his thoughts. He was just in that... *void*, for lack of a better word, and now he was here. 
 
-And his Forest. He floated out of his chair to survey the path toward the village. It was the same as it always was, but it had also, at the same time, been lost under unending lava flow.
+And his Forest. He floated out of his chair to survey the path toward the village. It was the same as it always was, but it had also, last he saw, been lost under unending lava flow.
 
 It was almost as if...
 
