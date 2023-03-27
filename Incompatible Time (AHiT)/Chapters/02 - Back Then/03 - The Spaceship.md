@@ -28,7 +28,7 @@ Oh. He totally did remember the other timeline. "You remember?" she asked him ca
 
 "I never signed that contract."
 
-"***Ah, but I remember writing it, and* you *remember signing it! So, even if it hasn't actually happened yet, that contract (and all the others, might I add) is completely valid, whether we like it or not!***" At least, that's how Snatcher figured it worked. Granted, his knowledge in law never had to stand up to time manipulation prior to now. "***But if you must insist, I came by to ask... what happens now.***"
+"***Ah, but I remember writing it, and* you *remember defiling* and *signing it! So, even if it hasn't actually happened yet, that contract (and all the others, might I add) is completely valid, whether we like it or not!***" At least, that's how Snatcher figured it worked. Granted, his knowledge in law never had to stand up to time manipulation prior to now. "***But if you must insist, I came by to ask... what happens now.***"
 
 "Now?" Hat Kid crossed her arms. "I've retrieved all the time fuel. This ship can actually move again. I'm doing a few last minute errands, and then I'm leaving. I'm going home."
 

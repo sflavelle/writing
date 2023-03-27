@@ -28,9 +28,9 @@ It was a strange entity, an almost completely black... *thing*, its only details
 
 Both birds floundered backward, crashing out of their chairs.
 
-"**YOU!**" cried the Conductor as he got to his feet first. "Yer that Snatcher of Subcon Forest, ain't ye?!"
+"**YOU!**" cried the Conductor as he got to his feet first. "Yer that Soul Snatcher of Subcon Forest, ain't ye?!"
 
-"***A pleasure to meet me properly, I'm sure.***" His smile grew into a grin.
+"***Just 'Snatcher' is fine. A pleasure to meet me properly, I'm sure.***" His smile grew into a grin.
 
 After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near my soul!"
 
@@ -40,4 +40,4 @@ After the Conductor's shock had worn off, he pulled one of his blades from his c
 
 "If you so much as lay a finger on 'er after everything she's done..." began the Conductor.
 
-"***No, you morons! It's not me this time! She's taking off on her own!***"
+"***Unfortunately, I'm legally not allowed to harm her anymore. No, this was her decision. She's leaving us to go back to her home planet. And I'd like to convince her to stay.***"
