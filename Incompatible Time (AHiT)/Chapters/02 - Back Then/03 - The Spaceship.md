@@ -46,17 +46,33 @@ Snatcher chuckled, despite the situation. "***Can't we convince you to stay for 
 
 Snatcher was silent, seemingly deflated by her refusal. He was almost shocked by her refusal to even have more time to bother him. "***Did you even* enjoy *your time with us?***"
 
-She paused. "...sometimes. I got to be a film star, I got to be friendly with your minions, I got to see the sights..."
+She paused. "...sometimes. I got to be a film star, I got to be friendly with your minions, I got to see the sights..." She scrunched up her face. "But it would've been fine if people on this planet weren't always chronic backstabbing pecknecks!"
 
-Hat Kid walked over to the captain's chair overlooking the planet, and sat down, spinning it around to face her guest. "Look, it's just... it shouldn't have happened in the first place. Look what those Time Pieces did to you. To... to her. It's my responsibility to be careful with them, to prevent accidents like this from happening."
+"***Kiddo, what do you* expect *from someone like myself?***"
+
+"No, you know what?" She pointed a finger accusingly at the ghost. "I *always* expected you to double-cross me. That was never a surprise. But the *directors*? *Mu*? Those cute cats up in the mountains?"
+
+Hat Kid walked over to the captain's chair overlooking the planet, and sat down, spinning it around to face her guest. "Time changes people. *Power* over Time changes people. It corrupts. Tells you you can fix that tiny little thing. But it's never enough. You aim higher. Fix bigger mistakes. Rewrite bigger stretches of Time. Create bigger and bigger rifts in the parts of Time you neglect. It ends up... making a monster out of you and itself. *That's* why we - me and my people - keep Time Pieces from being misused."
+
+"***And then you use it as... spaceship fuel.***"
+
+"Yes." She eyed the Snatcher carefully.
+
+"***Elaborate.***" One of his eyes widened - some equivalent to raising an eyebrow, she guessed.
+
+"No."
+
+"***Hmmmph.***" Snatcher glanced around himself at the interior again. "***And what did it do to me?***"
+
+"You? It promised you power, didn't it? You tried to kill me over it."
 
 "***I would have tried to kill you anyway, you know. That's my whole deal.***"
 
-"I know, but you would have just *done it*, you moron. You wouldn't have just lured me to an arena and then used all your power trying to defeat me instead of, I don't know, just snapping my head off."
+"I know, but you would have just *done it*, you moron. You wouldn't have lured me to an arena and then used all your power in a flashy display trying to defeat me instead of, I don't know, just snapping my head off."
 
 Snatcher *stared* at her. "***...I don't like how easily those words came out of your mouth.***"
 
-"Tough. Look, I got some things I need to do. If you *really* feel so strongly about it, then come say goodbye before I take off, hmm..." she checked her hat and did some mental calculations. "...tomorrow night. I got people waiting for me."
+"Tough. Look, I got pre-flight checks and things I gotta do. If you *really* feel so strongly about me going, then come say goodbye before I take off, hmm..." she checked her hat and did some mental calculations. "...tomorrow night. I got my family waiting for me."
 
 "..."
 
@@ -64,7 +80,7 @@ Snatcher *stared* at her. "***...I don't like how easily those words came out of
 
 "***...Alright kiddo, I will.***"
 
-"Fine. For now, look, just, I dunno, enjoy life I guess? Everything's back to normal, savour it."
+"Fine. For now, look, just, I dunno, enjoy life- uh, death I guess? Everything's back to normal, savour it."
 
 "***...Hmm. I do have one last question, then.***"
 
@@ -76,7 +92,7 @@ She glared at him. "What?"
 
 "***The hooded girl. Do you two have some 'beef' with each other or something?***"
 
-*Oh, Mustache Girl.* "She's an Earth native. She hates the Mafia."
+*Oh, he means Mu.* "She's an Earth native. She hates the Mafia."
 
 "***Wait- that's it? She put the planet through all* that *because she hated that Mafia Town? You're joking, right?***"
 
@@ -89,5 +105,7 @@ She glared at him. "What?"
 "***...Yeah. For now. Later, kiddo.***"
 
 "Bye, Snatcher. See you tomorrow, I guess."
+
+"***You will. We're not letting you leave without a fight.***"
 
 Snatcher began to sink back into the floor, and as he did so, he watched the kid jump back onto her feet and pace toward the machine room, murmuring to herself, "A lock, a lock..."
