@@ -12,7 +12,7 @@
 
 "But that's... not quite what I'm asking."
 
-Grooves lifted his glasses away from his face, setting them down on the table. "I mean... how does the next few weeks go? Becoming more self-centered, feeding into some of your worse characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
+Grooves lifted his glasses away from his face, setting them down on the table. "I mean... how did the next few weeks go? Becoming more self-centered, feeding into some of your worse characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
 
 "Don't remind me," Conductor spat, his features contorted in disgust. "Never thought I coulda sunk so low."
 
@@ -32,7 +32,7 @@ Grooves tilted his head to the side.
 
 "But ye didn't go for it, lad. What 'appened?"
 
-The penguin chuckled. "It's the darndest thing. It promised me so much, but I didn't think I could do it. So I gave them to someone who needed the confidence."
+The penguin chuckled. "It's the darndest thing. It promised me so much, but I didn't think I could do it. So I gave them to someone who I thought needed the confidence."
 
 "The lass..."
 
@@ -68,7 +68,7 @@ Both birds floundered backward, crashing out of their chairs.
 
 "*Just 'Snatcher' is fine. A pleasure to meet me properly, I'm sure.*" His smile grew into a grin.
 
-After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near my soul!"
+After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near me soul!"
 
 "*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm just playing messenger today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
 
@@ -86,7 +86,9 @@ Snatcher shook his head. "*No, this was her decision. She's... okay, look. This 
 
 "*Good! This'll make this go much quicker then.*" In a poof of purple smoke, Snatcher conjured a scroll of paper. "*Our kiddo has collected every single Time Piece on our planet as a result of undoing that... catastrophe. Therefore, she has no reason to hang around anymore.*" He let go of the scroll, and it poofed in front of the two birds. "*We need to* give *her a reason, or she'll vanish from right under our noses... and quite possibly for good.*"
 
-Grooves took the scroll and unfurled it. The word 'contract' was printed in calligraphy at the top. As he examined the wording carefully, Conductor watched their opponent, keeping the knife point held out. "And just what's in it for you? Erryone knows the Subcon Snatcher never offers anything without wantin' somethin' in return."
+Grooves took the scroll and unfurled it. The word 'contract' was printed in calligraphy at the top. He made a face at the other director and got reading.
+
+Conductor watched their opponent, keeping the knife point held out. "And just what's in it for you? Erryone knows the Subcon Snatcher never offers anything without wantin' somethin' in return."
 
 "*I don't believe I'm known to offer anything,* period."
 
@@ -94,7 +96,7 @@ Grooves took the scroll and unfurled it. The word 'contract' was printed in call
 
 "*Funny you should ask! No.*" Snatcher glanced toward DJ Grooves, who had put his glasses back on so he could read it better. "*Why don't you go ahead and read it out for him... 'darlin'.*"
 
-Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contract paper and read. "We the undersigned, hereby agree to form a temporary alliance for the sole purpose of encouraging- ... ah, that..." He paused to show Conductor the alien text Snatcher had carefully written out. "...hereby referred to as 'Hat Kid', to continue to live amongst us on Earth. The alliance will form upon signing, and will last until the apparent success or failure of the alliance's purpose."
+Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contract paper and read. "We the undersigned, hereby agree to form a temporary alliance for the sole purpose of encouraging- ... ah, that..." He paused to show Conductor the alien text Snatcher had carefully written out - the approximation of the kid's name. "...hereby referred to as 'Hat Kid', to continue to live amongst us on Earth. The alliance will form between its signatories upon signing, and will last until the apparent success or failure of the alliance's purpose."
 
 "*Thank you. Happy, old man?*" Snatcher eyed the Conductor with a grin.
 
