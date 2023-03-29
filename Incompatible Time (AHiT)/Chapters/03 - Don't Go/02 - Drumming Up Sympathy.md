@@ -18,7 +18,7 @@ Grooves lifted his glasses away from his face, setting them down on the table. "
 
 "But what about *this* time around?" Grooves rested a flipper against his colleague's shoulder. "We have a chance to do things right by her."
 
-"This time? There won't *be* a 'this time'."
+"This time? Heh. There won't *be* a 'this time'."
 
 Grooves tilted his head to the side.
 
@@ -96,7 +96,48 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "*Funny you should ask! No.*" Snatcher glanced toward DJ Grooves, who had put his glasses back on so he could read it better. "*Why don't you go ahead and read it out for him... 'darlin'.*"
 
-Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contract paper and read. "We the undersigned, hereby agree to form a temporary alliance for the sole purpose of encouraging- ... ah, that..." He paused to show Conductor the alien text Snatcher had carefully written out - the approximation of the kid's name. "...hereby referred to as 'Hat Kid', to continue to live amongst us on Earth. The alliance will form between its signatories upon signing, and will last until the apparent success or failure of the alliance's purpose."
+Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contract paper and read. "We the undersigned, hereby agree to form a temporary alliance for the sole purpose of encouraging- ... ah, that..." He paused to show Conductor the alien text Snatcher had carefully written out - the approximation of the kid's name. "...hereby referred to as 'Hat Kid', to continue to live amongst us on Earth.
+
+"We acknowledge the courage of Hat Kid to stand against us when times required it, and the ability to stand *for* us when we needed it, and request her to remain with us as a worthy equal. The alliance will form between its signatories upon signing, and will last until the apparent success or failure of the alliance's purpose."
 
 "*Thank you. Happy, old man?*" Snatcher eyed the Conductor with a grin.
 
+"There's gotta be a fine print." Conductor gestured toward Grooves for the scroll, and received it.
+
+"None that I saw, darlin'. This has to be a first." He smirked toward the Snatcher.
+
+"*I can put the standard soul clause in there if you* really *want. I won't fight it.*"
+
+"Eh, I'll pass." His eyes continued scanning the contract in front of him before, seemingly satisfied, he lowered it and gave a nod. "Yer showin' a different side with this, but I cannae find a problem with it."
+
+"*Let me put it this way. I believe it's fair to say we all lose something if she goes.*"
+
+"I'll agree on that," DJ Grooves said with a nod.
+
+Conductor simply nodded in reply. "Alright, I'll join this darn alliance."
+
+"*Excellent!*" A feather pen appeared before the Conductor, and after a moment of consideration, he took it and began to sign.
+
+"I only have one question, mister Snatcher." Grooves raised an eyebrow. "Just how do you plan to convince her?"
+
+"*Ah, you're thinking in there! I like that!*" Snatcher seemed to relax into his chair. "*Tomorrow evening, the Kid will be available to receive us in her spaceship. We'll come as a group, and make our case!*"
+
+"Her *what*?" Conductor eyed the ghost.
+
+"And what if she refuses?" Grooves spoke over his colleague.
+
+"*Then, perhaps we'll have to...* save *her from herself.*"
+
+"...Save her."
+
+"*It's our duty, big guy! Our duty as complete and utter bastards.*" There was a quality to Snatcher's grin that Grooves couldn't quite place, but it didn't sit well with him.
+
+Regardless, he took the contract from Conductor, and added his own signature. "Well, I hope it doesn't come to that."
+
+"*Who can say?*" The contract poofed away, and appeared again in the Snatcher's clawed hand. "*Don't you worry your pretty little heads about getting up there, I'll collect you when it's time.*" He stretched, and rose from the chair. "*Well! It's been wonderful doing business. If I can get the Mafia head's signature,* then *we'll be cooking. Ta ta for now!*"
+
+And with that, the Snatcher dove into the floor and disappeared, leaving a confused and nervous Conductor and DJ Grooves staring after him.
+
+----
+
+Mafia Town was much too bright for the Snatcher.
