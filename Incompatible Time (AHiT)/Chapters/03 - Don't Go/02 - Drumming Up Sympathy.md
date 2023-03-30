@@ -70,7 +70,7 @@ Both birds floundered backward, crashing out of their chairs.
 
 After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near me soul!"
 
-"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm just playing messenger today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
+"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm just playing negotiator today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
 
 "What have you done to her?!" Grooves got to his feet, staring the spirit down.
 
@@ -106,7 +106,7 @@ Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contr
 
 "None that I saw, darlin'. This has to be a first." He smirked toward the Snatcher.
 
-"*I can put the standard soul clause in there if you* really *want. I won't fight it.*"
+"*I can put the standard soul clause in there if you* really *want. I won't say no.*"
 
 "Eh, I'll pass." His eyes continued scanning the contract in front of him before, seemingly satisfied, he lowered it and gave a nod. "Yer showin' a different side with this, but I cannae find a problem with it."
 
@@ -122,7 +122,7 @@ Conductor simply nodded in reply. "Alright, I'll join this darn alliance."
 
 "*Ah, you're thinking in there! I like that!*" Snatcher seemed to relax into his chair. "*Tomorrow evening, the Kid will be available to receive us in her spaceship. We'll come as a group, and make our case!*"
 
-"Her *what*?" Conductor eyed the ghost.
+"Her what?" Conductor eyed the ghost, confused.
 
 "And what if she refuses?" Grooves spoke over his colleague.
 
@@ -138,6 +138,6 @@ Regardless, he took the contract from Conductor, and added his own signature. "W
 
 And with that, the Snatcher dove into the floor and disappeared, leaving a confused and nervous Conductor and DJ Grooves staring after him.
 
-----
+"...Her *what*?" Conductor repeated finally, turning his head toward Grooves.
 
-Mafia Town was much too bright for the Snatcher.
+"...Oh, *darlin'*..." Grooves took a deep breath, and began to patiently explain to him that Hat Kid was not from Earth.
