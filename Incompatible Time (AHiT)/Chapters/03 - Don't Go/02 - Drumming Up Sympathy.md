@@ -12,7 +12,7 @@
 
 "But that's... not quite what I'm asking."
 
-Grooves lifted his glasses away from his face, setting them down on the table. "I mean... It was about this time, the last go around that you  became... different, to forgo a more appropriate term. How did the next few weeks go? Becoming more self-centered, feeding into some of your worse characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
+Grooves lifted his glasses away from his face, setting them down on the table. "I mean... It was about this time, the last go around that you became... different, to forgo a more appropriate term. How did the next few weeks go? Becoming more self-centered, feeding into some of your worse characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
 
 "Don't remind me," Conductor spat, his features contorted in disgust. "Never thought I coulda sunk so low."
 
@@ -28,11 +28,15 @@ Grooves tilted his head to the side.
 
 "Ha, see, ah knew you couldn't relate. ...'ang on, what?" His head spun to face Grooves. "You felt it too?"
 
-"Ashamed to say I did, darlin'." Grooves sighed, tilting the chair back to look up at the ceiling. "When I held them, I thought - no, I knew - I could win the Award this time." He threw his flipper out in front of him. "Surely, my losing streak would be over! I could have the past Awards that *I knew* I had deserved!"
+"Ashamed to say I did, darlin'." Grooves sighed, tilting the chair back to look up at the ceiling. "When I held them, I thought - no, I knew - I could win the Award this time." He threw his flipper out in front of him. "Surely, my losing streak would be over! I could have the past Awards that *I knew* I had deserved! I could *finally* put you in your place!"
 
-"But ye didn't go for it, lad. What 'appened?"
+Conductor raised both eyebrows. "Excuse me?"
 
-The penguin chuckled. "It's the darndest thing. It promised me so much, but I didn't think I could do it. So I used my movies to give them to someone who I thought needed the confidence."
+"Don't tell me you don't have it comin'. 'Specially after what you pulled."
+
+The owl felt like he wanted to say somethin, but couldn't find the words. He decided to let it slide for now. "But ye didn't go for it, lad. What 'appened?"
+
+The penguin chuckled. "It's the darndest thing. It promised me so much, but I didn't think I could pull it off. So I used my movies to give them to someone who I thought could do it for me."
 
 "The lass..."
 
@@ -52,7 +56,7 @@ The laughter lasted just a few seconds too long, and ended when the two realised
 
 Someone *in the room* with them.
 
-"Who'ssat?!" Conductor growled, whipping his head around in search of the intruder. "I'll have you know this is a private meetin'!"
+"Who'ssat?!" Conductor growled, whipping his head around in search of the intruder. "I'll have ye know this is a private meetin'!"
 
 Eventually he took notice of a strange blob of shadow on the ceiling.
 
@@ -84,7 +88,7 @@ Snatcher shook his head. "*No, this was her decision. She's... okay, look. This 
 
 "Get to the point, peckneck," Conductor scowled, waggling his knife toward the spirit.
 
-"*Good! This'll make this go much quicker then.*" In a poof of purple smoke, Snatcher conjured a scroll of paper. "*Our kiddo has collected every single Time Piece on our planet as a result of undoing that... catastrophe. Therefore, she has no reason to hang around anymore.*" He let go of the scroll, and it poofed in front of the two birds. "*We need to* give *her a reason, or she'll vanish from right under our noses... and quite possibly for good.*"
+"*Good! This'll make this go much quicker then.*" In a poof of purple smoke, Snatcher conjured a scroll of paper. "*As you may or may not know, our kiddo arrived about the same time those Time Pieces fell. She scoured that Mafia Town, she did movies for you two for them, contracts for me, and who knows what else. She's now collected every single Time Piece on our planet as a result of undoing that... catastrophe. Therefore, she has no reason to hang around anymore.*" He let go of the scroll, and it poofed in front of the two birds. "*We need to* give *her a reason, or she'll vanish from right under our noses... and quite possibly for good.*"
 
 Grooves took the scroll and unfurled it. The word 'contract' was printed in calligraphy at the top. He made a face at the other director and got reading.
 
@@ -94,11 +98,19 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "Exactly. What, had a change o' heart?" Conductor smirked.
 
-"*Funny you should ask! No.*" Snatcher glanced toward DJ Grooves, who had put his glasses back on so he could read it better. "*Why don't you go ahead and read it out for him... 'darlin'.*"
+"*Funny you should ask! No.*" 
+
+"Really?" Grooves smirked, having just read the main paragraph of the text. "'Cuz a little birdie told us you two are now-"
+
+"*Oh, she told you that, did she?*" Snatcher growled in a low voice, glancing toward DJ Grooves, who had put his glasses back on so he could read it better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because of that stupid BFF contract.*"
+
+"How *lovely*," Grooves snarked. "Because what you've written here sounds positively glowing in comparison."
+
+Snatcher eyed the Conductor. "*Why don't you go ahead and read it out for him... 'darlin'.*"
 
 Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contract paper and read. "We the undersigned, hereby agree to form a temporary alliance for the sole purpose of encouraging- ... ah, that..." He paused to show Conductor the alien text Snatcher had carefully written out - the approximation of the kid's name. "...hereby referred to as 'Hat Kid', to continue to live amongst us on Earth.
 
-"We acknowledge the courage of Hat Kid to stand against us when times required it, and the ability to stand *for* us when we needed it, and request her to remain with us as a worthy equal. The alliance will form between its signatories upon signing, and will last until the apparent success or failure of the alliance's purpose."
+"We acknowledge the courage of Hat Kid to stand against us when times required it, and the ability to stand *for* us when we needed it, and request her to remain with us as an equal. The alliance will form between its signatories upon signing, and this contract will be terminated on the apparent success or failure of the alliance's purpose."
 
 "*Thank you. Happy, old man?*" Snatcher eyed the Conductor with a grin.
 
@@ -110,7 +122,7 @@ Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contr
 
 "Eh, I'll pass." His eyes continued scanning the contract in front of him before, seemingly satisfied, he lowered it and gave a nod. "Yer showin' a different side with this, but I cannae find a problem with it."
 
-"*Let me put it this way. I believe it's fair to say we all lose something if she goes.*"
+"*I have many complicated feelings on the brat, but let me put it this way. I believe it's fair to say we all lose something if she goes.*"
 
 "I'll agree on that," DJ Grooves said with a nod.
 

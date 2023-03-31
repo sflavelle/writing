@@ -8,7 +8,7 @@ On opposite ends of the studio, both The Conductor and DJ Grooves were seen to s
 
 Because, for them, they had.
 
-"CUT!" called the Conductor once he remembered where he was. "What in the peck just... eugh..." He shuffled off of his director's chair in the direction of the kitchen. "Take an hour, you lot. Somethin' big's just 'appened. Need ter... need ter reset."
+"CUT!" called the Conductor once he remembered where he was. "What in the peck just... eugh..." He shuffled off of his director's chair in the direction of the kitchen. "You all did fine, just... take an hour, you lot. Somethin' big's just 'appened. Need ter... need ter reset."
 
 He glanced back toward the set, the other part of him remembering what movie they had been shooting for now/back then. In fact, these were the final scenes he shot before the film was complete. Soon he'd send it away, post-production would do their thing, and he'd have a *brilliant* action entry for the Bird Movie Awards, glittering with their hourglass props.
 

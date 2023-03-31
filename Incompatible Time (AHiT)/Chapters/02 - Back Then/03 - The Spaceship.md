@@ -12,13 +12,13 @@ The Time Pieces were indeed all accounted for.
 
 She closed and tightened the vault door. She noted that she didn't feel comfortable just leaving it at that - perhaps she'd use her earnings from the film shoots to buy a good lock before she powered up the engines and *finally* resumed her journey back home.
 
-"*Well hello there, kiddo!*"
+"*Well helloooo there, kiddo!*"
 
 Hat Kid spun around to see Snatcher emerge through the carpet. Her brow furrowed. *But... I haven't met you yet...*
 
 "*Now, I can't say I entirely understand how your whole deal with Time works,*" the ghost began, eyeing her carefully, "*but I felt the need to come up and ask my most* resilient *servant: what in the* hell *just happened?*"
 
-Oh. He totally did remember the other timeline. "You remember?" she asked him carefully.
+Oh. He totally did remember the other timeline. "You remember the reset?" she asked him carefully.
 
 "*How could I not remember the loss of my Forest, and the brat judging everyone's existence? And that, that... place. But oh look, it's as if none of that ever happened.*" He twisted his form toward the viewport, glancing out toward the planet below them.
 
@@ -28,11 +28,11 @@ Oh. He totally did remember the other timeline. "You remember?" she asked him ca
 
 "I never signed that contract."
 
-"*Ah, but I remember writing it, and* you *remember defiling* and *signing it! So, even if it hasn't actually happened yet, that contract (and all the others, might I add) is completely valid, whether we like it or not!*" At least, that's how Snatcher figured it worked. Granted, his knowledge in law never had to stand up to time manipulation prior to now. "*But if you must insist, I came by to ask... what happens now.*"
+"*Ah, but I remember writing it, and* you *remember defiling* and *signing it! So even if it hasn't actually happened yet, that contract (and all the others, might I add) is completely valid, whether we like it or not!*" At least, that's how Snatcher figured it worked. Granted, his knowledge in law never had to stand up to time manipulation prior to now. "*But if you must insist, I came by to ask... what happens now.*"
 
 "Now?" Hat Kid crossed her arms. "I've retrieved all the time fuel. This ship can actually move again. I'm doing a few last minute errands, and then I'm leaving. I'm going home."
 
-"*Wait, you're* leaving? *After everything that's happened, you're just going to* go?**" Snatcher, even after everything, felt *offended*. Surely she'd stay a while? Even if it was just to make sure everything was back to how it was?
+"*Wait, you're* leaving? *After everything that's happened, you're just going to* go?" Snatcher, even after everything, felt *offended*. Surely she'd stay a while? Even if it was just to make sure everything was back to how it was?
 
 "*Yes!* I don't live here, Snatcher!" She grumbled. "I never wanted to stop here in the first place!"
 
@@ -68,7 +68,7 @@ Hat Kid walked over to the captain's chair overlooking the planet, and sat down,
 
 "*I would have tried to kill you anyway, you know. That's my whole deal.*"
 
-"I know, but you would have just *done it*, you moron. You wouldn't have lured me to an arena and then used all your power in a flashy display trying to defeat me instead of, I don't know, just snapping my head off."
+"I know, but you would have just *done it*, you moron. You wouldn't have lured me to an arena and then used all your power in a flashy display trying to defeat me instead of, I don't know, just snapping my head off my neck."
 
 Snatcher *stared* at her. "*...I don't like how easily those words came out of your mouth.*"
 
