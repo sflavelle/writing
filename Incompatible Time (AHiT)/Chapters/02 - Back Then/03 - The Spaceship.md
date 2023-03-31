@@ -16,7 +16,7 @@ She closed and tightened the vault door. She noted that she didn't feel comforta
 
 Hat Kid spun around to see Snatcher emerge through the carpet. Her brow furrowed. *But... I haven't met you yet...*
 
-"*Now, I can't say I entirely understand how your whole deal with Time works,*" the ghost began, eyeing her carefully, "*but I felt the need to come up and ask my most* resilient *servant: what in the* peck *just happened?*"
+"*Now, I can't say I entirely understand how your whole deal with Time works,*" the ghost began, eyeing her carefully, "*but I felt the need to come up and ask my most* resilient *servant: what in the* hell *just happened?*"
 
 Oh. He totally did remember the other timeline. "You remember?" she asked him carefully.
 

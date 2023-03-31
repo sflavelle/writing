@@ -12,17 +12,17 @@
 
 "But that's... not quite what I'm asking."
 
-Grooves lifted his glasses away from his face, setting them down on the table. "I mean... how did the next few weeks go? Becoming more self-centered, feeding into some of your worse characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
+Grooves lifted his glasses away from his face, setting them down on the table. "I mean... It was about this time, the last go around that you  became... different, to forgo a more appropriate term. How did the next few weeks go? Becoming more self-centered, feeding into some of your worse characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
 
 "Don't remind me," Conductor spat, his features contorted in disgust. "Never thought I coulda sunk so low."
 
-"But what about *this* time around?" Grooves rested a flipper against his colleague's shoulder. "We have a chance to do things right by her."
+"But what about *this* time around?" Grooves rested a flipper against his colleague's shoulder. "... Are you okay, basically?"
 
 "This time? Heh. There won't *be* a 'this time'."
 
 Grooves tilted his head to the side.
 
-"Look, I... I know this just sounds like I'm makin' excuses, but those Time Pieces we had... they did somethin' to my head. I wasn't... thinking the way I normally do. Ah just... how do I explain? Holdin' that much *potential* in my hands... I really did feel like I could do anything."
+"Look, I... I know this just sounds like I'm makin' excuses, but those Time Pieces we had... they did somethin' to my head. I wasn't... thinking the way I normally do. Ah just... how do I explain? Holdin' that much *potential* in my hands... It was exhilaratin'. I really did feel like I could do anything."
 
 "It *was* a rather intoxicating feeling, wasn't it?"
 
@@ -32,13 +32,13 @@ Grooves tilted his head to the side.
 
 "But ye didn't go for it, lad. What 'appened?"
 
-The penguin chuckled. "It's the darndest thing. It promised me so much, but I didn't think I could do it. So I gave them to someone who I thought needed the confidence."
+The penguin chuckled. "It's the darndest thing. It promised me so much, but I didn't think I could do it. So I used my movies to give them to someone who I thought needed the confidence."
 
 "The lass..."
 
 "Indeed." Grooves sighed, and rested his flippers on his front. "Least it got into the right hands. Just, be mindful, old friend. We may not have had the Time Pieces anymore, but you and I still know a fair bit about working ourselves way too hard."
 
-"You do?" The conductor chuckled. "And here I was, thinkin' all yer made were feel good pieces."
+"You do?" The conductor chuckled. "And here I was, thinkin' all yer made were feel good, glorified music videos."
 
 "Implying I don't chew through hundreds of takes trying to get my actors to perform." Grooves joined him in the laughter. 
 

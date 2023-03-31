@@ -34,7 +34,7 @@ DJ Grooves was the first to finish his coffee.
 
 "We saved 'er, lad," the owl nodded once he'd downed his drink.
 
-"And the little darlin' saved all of us."
+"And she... saved all of us."
 
 "I'll drink to that."
 
