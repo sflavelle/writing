@@ -24,7 +24,7 @@ With a snap of his fingers the contract appeared before the Mafia Boss. "*That k
 
 "Excuse me, mister Snatcher sir?"
 
-Snatcher paused on his way descending from the casino. A feminine, small voice had reached him. Not the Kid's, but... the Mafia didn't employ kids *or* women. So who...?
+Snatcher paused on his way descending from the casino. A small feminine voice had reached him. Not the Kid's, but... the Mafia didn't employ kids *or* women. So who...?
 
 "Psst, over to your left."
 
@@ -34,9 +34,9 @@ There it was. It was a cat, but... it wore a cook's outfit. Who...? "I don't sup
 
 Snatcher raised an eyebrow. He slowly drew closer, his fuzz a deep black. As he approached the cat, it was as if the light was being blotted out from the world, leaving his glowing yellow features the only light.
 
-Then, out of nowhere, lightning struck in the distance, and the two found themselves in a purple 'void', lined with spooky, dead trees.
+Then, out of nowhere, lightning struck in the distance, and the world lit up again, finding them in a purple 'void', lined with dead trees.
 
-The Snatcher towered over the animal. In a deep, low voice, he spoke, "You must be either very brave or very foolish to seek audience with me. Which is it?"
+The Snatcher towered over the animal. In a deep, low voice, he spoke, "*You must be either very brave or very foolish to seek audience with me. Which is it?*"
 
 "Why, you are *just* as spooky as the Kid said!" The cat beamed up at him. "Pleasure to make your acquaintance. I am Cooking Cat, TV chef extraordinaire! There's word among the Mafia you're trying to get the alien to stay."
 
@@ -52,7 +52,7 @@ She shrugged. "You should know that I've been investigating that alien and her s
 
 "It's the strangest thing! I decided to come on before she left Mafia Town. She said she was going to do some movies for the birds at Dead Bird Studios, and next thing I know, she says she's finished and was leaving tonight, and where could she drop me off?"
 
-Snatcher thought a moment. Interesting... this cat didn't mention Lava World at all. Compared to the few he'd talked to in the past 24 hours, it seemed Cooking Cat had no idea about the future that had already occurred and subsequently erased. "*Weeell... I wouldn't normally do this, but okay. Myself, the Boss and the two directors of Dead Bird Studios are going up there tonight. I can bring you along, but I'll have to get you to sign something, and it's only because of a trait I know she'll adore.*"
+Snatcher thought a moment. Interesting... this cat didn't mention Lava World at all. Compared to the few he'd talked to in the past 24 hours, it seemed Cooking Cat had no idea about the future that had already occurred and been subsequently erased. "*Weeell... I wouldn't normally do this, but okay. Myself, the Boss and the two directors of Dead Bird Studios are going up there tonight. I can bring you along, but I'll have to get you to sign something, and it's only because of a trait I know the Kid'll adore.*"
 
 "Of course! What do you mean?"
 

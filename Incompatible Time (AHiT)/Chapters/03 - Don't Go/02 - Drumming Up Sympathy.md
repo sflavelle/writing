@@ -32,7 +32,7 @@ Grooves tilted his head to the side.
 
 Conductor raised both eyebrows. "Excuse me?"
 
-"Don't tell me you don't have it comin'. 'Specially after what you pulled."
+"Don't tell me you don't have it comin'. 'Specially after what you pulled on our darlin'."
 
 The owl felt like he wanted to say somethin, but couldn't find the words. He decided to let it slide for now. "But ye didn't go for it, lad. What 'appened?"
 
@@ -88,7 +88,7 @@ Snatcher shook his head. "*No, this was her decision. She's... okay, look. This 
 
 "Get to the point, peckneck," Conductor scowled, waggling his knife toward the spirit.
 
-"*Good! This'll make this go much quicker then.*" In a poof of purple smoke, Snatcher conjured a scroll of paper. "*As you may or may not know, our kiddo arrived about the same time those Time Pieces fell. She scoured that Mafia Town, she did movies for you two for them, contracts for me, and who knows what else. She's now collected every single Time Piece on our planet as a result of undoing that... catastrophe. Therefore, she has no reason to hang around anymore.*" He let go of the scroll, and it poofed in front of the two birds. "*We need to* give *her a reason, or she'll vanish from right under our noses... and quite possibly for good.*"
+"*Good! This'll make this go much quicker then.*" In a poof of purple smoke, Snatcher conjured a scroll of paper. "*As you may or may not know, our kiddo arrived about the same time those Time Pieces fell from the sky. She scoured that Mafia Town, she did movies for you two for them, contracts for me, and who knows what else. She's now collected every single Time Piece on our planet as a result of undoing that recent... catastrophe. Therefore, she has no reason to hang around anymore.*" He let go of the scroll, and it poofed in front of the two birds. "*We need to* give *her a reason, or she'll vanish from right under our noses... and quite possibly for good.*"
 
 Grooves took the scroll and unfurled it. The word 'contract' was printed in calligraphy at the top. He made a face at the other director and got reading.
 
@@ -102,7 +102,7 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "Really?" Grooves smirked, having just read the main paragraph of the text. "'Cuz a little birdie told us you two are now-"
 
-"*Oh, she told you that, did she?*" Snatcher growled in a low voice, glancing toward DJ Grooves, who had put his glasses back on so he could read it better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because of that stupid BFF contract.*"
+"*Oh, she told you that, did she?*" Snatcher growled in a low voice, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because of that stupid BFF contract.*"
 
 "How *lovely*," Grooves snarked. "Because what you've written here sounds positively glowing in comparison."
 
