@@ -4,11 +4,11 @@
 
 In the same instant, the Dead Bird Studios sets were thrown into chaos as owls and penguins alike were suddenly laden with the memory of a future that no longer existed.
 
-On opposite ends of the studio, both The Conductor and DJ Grooves were seen to suddenly throw their hands to their head, groaning as the memory of what they'd seen - and the memory of their sacrifices to help their star actor - were impressed upon them as if they had just experienced it in its totality just a moment ago.
+On opposite ends of the studio, both The Conductor and DJ Grooves were seen to suddenly throw their hands to their head, groaning as the memory of what they'd seen - and the death they suffered to help their star actor - were impressed upon them as if they had just experienced it in its totality just a moment ago.
 
 Because, for them, they had.
 
-"CUT!" called the Conductor once he remembered where he was. "What in the peck just... eugh..." He shuffled off of his director's chair in the direction of the kitchen. "You all did fine, just... take an hour, you lot. Somethin' big's just 'appened. Need ter... need ter reset."
+"CUT!" called the Conductor, almost in instinct, once he remembered where he was. "What in the peck just... eugh..." He shuffled off of his director's chair in the direction of the kitchen. "You all did fine, just... take an hour, you lot. Somethin' big's just 'appened. Need ter... need ter reset."
 
 He glanced back toward the set, the other part of him remembering what movie they had been shooting for now/back then. In fact, these were the final scenes he shot before the film was complete. Soon he'd send it away, post-production would do their thing, and he'd have a *brilliant* action entry for the Bird Movie Awards, glittering with their hourglass props.
 
@@ -38,6 +38,11 @@ DJ Grooves was the first to finish his coffee.
 
 "I'll drink to that."
 
-The two watched as crew from both teams filtered into the room. A few glanced over at the directors, seemingly seeking approval to be in the room. The Conductor nodded toward them. *'Course you're allowed in here, laddie.*
+The two watched as crew from both teams filtered into the room. A few glanced over at the directors, seemingly seeking approval to be in the room. The Conductor nodded toward them. *'Course yer allowed in here, laddie.*
 
-Some of the owls and penguins, they noticed, also seemed to have just, for lack of a better phrase, 'returned' from the other reality, whatever that red-hooded peckneck had done. The directors could pick out fearful or confused faces amongst the crowd.
+Some of the owls and penguins, they noticed, also seemed to have just, for lack of a better phrase, 'returned' from the other reality, whatever that red-hooded peckneck had done. The directors could pick out fearful or confused faces amongst the crowd, whispering in hushed tones with their friends, asking what was going on, why they were back in the Studio suddenly, why the day felt so familiar.
+
+"Poor darlings," Grooves remarked. "I wouldn't be surprised to see a fair number of our staff go to therapy." He paused for just a moment, then turned to the Conductor. "You know, perhaps *we*--"
+
+"I'm *not* seeing a shrink," Conductor said firmly. "No way."
+

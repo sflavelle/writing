@@ -2,9 +2,9 @@
 
 "What is it this time, Grooves?" The Conductor growled as he entered the boardroom. "I'm *so close* to bein' done with our movie!"
 
-"I know, I know. Lock the door. I'll be quick, darlin'." DJ Grooves gestured to a seat by him. "I just want to check up on you, to be perfectly honest."
+"I know, I know. Lock the door. I'll be quick, darlin'." DJ Grooves gestured to a seat by him. "I just want to check up on you, to be perfectly honest. After yesterday and... well, everything."
 
-"Well, I'm *fine*. Just shook up." Conductor's voice showed exasperation, as if Grooves was *far* from the first to ask if he was 'okay' today. There was a soft click as the lock engaged, and the Conductor eyed the penguin warily as he took his seat. "It's been a wild coupl'a months, and yet... 'tis as if it was a rotten nightmare."
+"Well, I'm *fine*. Just shook up." Conductor's voice showed exasperation, as if Grooves was *far* from the first to ask if he was 'okay' today. There was a soft click as the lock engaged, and the Conductor eyed the penguin warily as he took his seat. "It's been a mad coupl'a months, and yet... 'tis as if it was a rotten nightmare."
 
 "We'll take it though, right?"
 
@@ -74,7 +74,7 @@ Both birds floundered backward, crashing out of their chairs.
 
 After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near me soul!"
 
-"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm just playing negotiator today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
+"*Any other day, birdbrain. I wouldn't even need to get closer.*" Snatcher reclined in the chair he'd chosen. "*No, I'm just playing negotiator today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
 
 "What have you done to her?!" Grooves got to his feet, staring the spirit down.
 
@@ -84,7 +84,7 @@ Snatcher shook his head. "*No, this was her decision. She's... okay, look. This 
 
 "Spare the essay, darlin'," Grooves cut in. "We're well aware of that lava castle and that red-hooded *monster*."
 
-"*And the fact you both gave your lives?*"
+"*And the fact you both gave your lives? Very touching, by the way.*"
 
 "Get to the point, peckneck," Conductor scowled, waggling his knife toward the spirit.
 
