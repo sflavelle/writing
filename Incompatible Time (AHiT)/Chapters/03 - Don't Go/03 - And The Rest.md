@@ -36,9 +36,9 @@ Snatcher raised an eyebrow. He slowly drew closer, his fuzz a deep black. As he 
 
 Then, out of nowhere, lightning struck in the distance, and the world lit up again, finding them in a purple 'void', lined with dead trees.
 
-The Snatcher towered over the animal. In a deep, low voice, he spoke, "*You must be either very brave or very foolish to seek audience with me. Which is it?*"
+The Snatcher towered over the animal. In a low voice, he spoke, "*You must be either very brave or very foolish to seek audience with me. Which is it?*"
 
-"Why, you are *just* as spooky as the Kid said!" The cat beamed up at him. "Pleasure to make your acquaintance. I am Cooking Cat, TV chef extraordinaire! There's word among the Mafia you're trying to get the alien to stay."
+"Why, you are *just* as spooky as the legends say!" The cat beamed up at him. "Pleasure to make your acquaintance. I am Cooking Cat, TV chef extraordinaire! There's word among the Mafia you're trying to get the alien to stay."
 
 Snatcher stared at her. "*What's a 'TV'? No, hang on - they're blabbing* already? *I just got out of there!*"
 

@@ -45,4 +45,3 @@ Some of the owls and penguins, they noticed, also seemed to have just, for lack 
 "Poor darlings," Grooves remarked. "I wouldn't be surprised to see a fair number of our staff go to therapy." He paused for just a moment, then turned to the Conductor. "You know, perhaps *we*--"
 
 "I'm *not* seeing a shrink," Conductor said firmly. "No way."
-

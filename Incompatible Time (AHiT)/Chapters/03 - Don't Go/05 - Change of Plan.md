@@ -36,12 +36,12 @@ Snatcher glanced about, and made for one of the buildings just off the main moon
 
 ----
 
-As he picked up his final passenger in the Mafia Town alleyways, Cooking Cat, movement from further up caught his attention.
+As he picked up his final passenger in the Mafia Town alleyways, Cooking Cat, movement from further up caught Snatcher's attention.
 
-A conspicuously non-Mafia person sat out at a café, drinking. They were turned away from the group, but even without seeing their face, something about them seemed... familiar. But they'd never seen them before, right?
+A conspicuously non-Mafia human sat out at a café, drinking. They were turned away from the group, but even without seeing their face, something about them seemed... familiar. But they'd never seen them before, right?
 
 He shook his head. No, he had something important to do. Whoever this nobody was, they didn't matter until the second they stepped into his forest.
 
 "*Right!*" He said as Cooking Cat chose a spot above DJ Grooves on his body. "*Let's go stop our brat from doing something she'll regret.*"
 
-One last time, Snatcher dove for the ground, and the five of them vanished.
+One last time, Snatcher dove for the ground, and the five of them vanished from Planet Earth.

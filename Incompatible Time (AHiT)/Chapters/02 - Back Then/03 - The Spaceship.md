@@ -38,7 +38,7 @@ Oh. He totally did remember the other timeline. "You remember the reset?" she as
 
 "*Then why did you come into- Wait, you didn't?*"
 
-"No! I wouldn't have ever stopped if the Mafia didn't try to extort me for safe passage!" She put on a deeper voice, trying to mimic the Mafia's vocal tone. "*All boats must pay toll, even in space! Blah blah blah!*"
+"No! I wouldn't have ever lost the Time Pieces or come down onto the planet if the Mafia didn't try to extort me for safe passage!" She put on a deeper voice, trying to mimic the Mafia's vocal tone. "*All boats must pay toll, even in space! Blah blah blah!*"
 
 Snatcher chuckled, despite the situation. "*Can't we convince you to stay for just a bit longer? I've got another contract with your name on it!*"
 

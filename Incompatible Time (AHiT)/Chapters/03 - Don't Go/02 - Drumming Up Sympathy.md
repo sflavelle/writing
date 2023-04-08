@@ -80,7 +80,7 @@ After the Conductor's shock had worn off, he pulled one of his blades from his c
 
 "If you so much as lay a finger on 'er after everything she's done..." began the Conductor.
 
-Snatcher shook his head. "*No, this was her decision. She's... okay, look. This needs some explaining. Technically we've already met. Just, it hasn't happened yet, because-*"
+Snatcher shook his head. "*No, this was her decision. She's... okay, look. This needs some explaining. Technically we've already met. Just, it hasn't happened yet and never will, because that future-*"
 
 "Spare the essay, darlin'," Grooves cut in. "We're well aware of that lava castle and that red-hooded *monster*."
 
@@ -100,7 +100,7 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "*Funny you should ask! No.*" 
 
-"Really?" Grooves smirked, having just read the main paragraph of the text. "'Cuz a little birdie told us you two are now-"
+"Really?" Grooves smirked, having just read the main paragraph of the text. "'Cuz a little birdie told us you two are now BFFs."
 
 "*Oh, she told you that, did she?*" Snatcher growled in a low voice, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because of that stupid BFF contract.*"
 
