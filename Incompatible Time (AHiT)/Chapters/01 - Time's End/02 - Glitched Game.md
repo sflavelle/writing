@@ -42,7 +42,7 @@ She thought she saw a light reflection, off a near invisible panel of glass that
 
 "Uhhh," vocalised the minion.
 
-"_Yeah guy, what is this cutscene now? Am I softlocked?_"
+"Yeah guy, what is this cutscene now? Am I softlocked?"
 
 That voice definitely came from the panel. It seemed to become more visible as she watched out of the corner of her vision.
 
@@ -110,7 +110,7 @@ The Time Piece, undamaged, bounced onto its side and rolled away.
 
 Mu watched it for just a second, before continuing her climb.
 
-And it was then that the giant doors burst open, punctuated with a childish "HEY!"
+And it was then that the giant doors burst open.
 
 Mu and the Minion turned.
 

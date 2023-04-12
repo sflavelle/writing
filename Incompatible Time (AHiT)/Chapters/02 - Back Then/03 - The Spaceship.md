@@ -34,7 +34,7 @@ Why did he remember? Had she done something wrong? She wracked her brain for ans
 
 "*Oh, you* wound *me, kiddo!*" Snatcher put on a fake melodramatic act, floating back as if onto a sofa with one of his arms raised above his face. "*How could you accuse your* BFF *of having such an ulterior motive?*"
 
-"I never signed that contract."
+"I haven't signed that contract."
 
 "*Ah, but I remember writing it, and* you *remember defiling* and *signing it! So even if it hasn't actually happened yet, that contract (and all the others, might I add) is completely valid, whether we like it or not!*" At least, that's how Snatcher figured it worked. Granted, his knowledge in law never had to stand up to time manipulation prior to now. "*But if you must insist, I came by to ask... what happens now.*"
 
@@ -76,7 +76,7 @@ Hat Kid walked over to the captain's chair overlooking the planet, and sat down,
 
 "*I would have tried to kill you anyway, you know. I use people and then I dispose of them. I told you right at the beginning. That's my whole deal.*"
 
-"I know, but you would have just *done it*, you moron. You wouldn't have lured me to an arena and then used all your power in a flashy display trying to defeat me instead of, I don't know, just snapping my head off my neck."
+"I know, but you should have just *done it*, you moron. You shouldn't have lured me to an arena and then done some flashy display trying to defeat me instead of, I don't know, just snapping my head off my neck."
 
 Snatcher *stared* at her. "*...I don't like how easily those words came out of your mouth.*"
 
@@ -104,7 +104,7 @@ She glared at him. "What?"
 
 "*Wait- that's it? She put the planet through all* that *because she hated that Mafia Town? You're joking, right?*"
 
-"That and she hated me for not abusing time to remove the Mafia from the island."
+"You heard her. She didn't think it fair that everyone else was living *mostly* happy lives. That and she hated me for not abusing time to remove the Mafia from the island."
 
 "*And, why didn't you?*"
 
