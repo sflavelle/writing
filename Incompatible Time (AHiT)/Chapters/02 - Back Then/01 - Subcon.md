@@ -54,7 +54,7 @@ The face of Snatcher appeared from the ground in front of them, causing them to 
 
 "Wh- I *didn't make it up*! The castle actually happened! We just, apparently got sent back in time to before it happened!"
 
-"Boss, tell him he's a moron."
+"Oh sure sure, nice excuse. Boss, tell him he's a moron."
 
 Snatcher widened an eye. So he wasn't the only one who remembered... interesting. "*Actually, they're right. If it wasn't for a living kid with a hat, the planet would be dead soon and none of us would even know.*"
 
@@ -76,7 +76,7 @@ Snatcher widened an eye. So he wasn't the only one who remembered... interesting
 
 "But... how's that possible? How don't they know?" Asked the first minion.
 
-"*Give the guy a break. A lot has happened in a very small amount of time. There has to be some correlation though...*"
+"*Give the guy a break. A lot has happened in a very short amount of time. There has to be some correlation though...*"
 
 He glanced up toward the sky. Though the ever-present night in his Forest clouded the view, though a part of him complained he didn't know about the alien up there, he knew that that Kid's 'spaceship' was somewhere overhead. 
 

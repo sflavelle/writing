@@ -22,7 +22,7 @@ Oh. Maybe he remembers the other timeline. "...Who are you?" she asked him caref
 
 Snatcher's eyes widened for just a moment, before settling into an expression of unamusement. "*No, no. Don't play dumb with me, kid. If I and some of my minions remember a world covered in lava and a brat judging everyone based on her warped sense of justice, then you certainly remember.*"
 
-The Kid's eyes widened. "What? But that's not possible!" She looked down at her hands. "There's no way you should remember that. Technically I haven't even met you yet."
+The Kid's eyes widened. "What? But that's not right!" She looked down at her hands. "There's no way you should remember that. Technically I haven't even met you yet."
 
 "*And yet here we are.*"
 
@@ -30,13 +30,19 @@ Why did he remember? Had she done something wrong? She wracked her brain for ans
 
 "*Sucks to be you, then. If I remember correctly, we should all be dead on a dead planet. But oh look, it's as if none of that ever happened.*" He twisted his form toward the viewport, glancing out toward the planet below them.
 
-"Well, if things have sorted out the way they should have, then no, it never did." The kid walked down the ramp onto the main floor, and moved herself back into Snatcher's vision, resting her hands on her hips. "What are you doing here, Snatcher? *You're* not here to take my Time Pieces, are you?"
+"Well, if things have sorted out the way they should have, then no, it never did." The kid walked down the ramp onto the main floor, and moved herself back into Snatcher's vision, resting her hands on her hips. "So who knows, then?"
+
+Snatcher eyed her. "At least one of my minions knows, sounds like he was in the time... *thing* with us. I know one of them has no idea at all about it."
+
+"Hmmm... well..." Hat Kid mentally checked off who had been present. Herself and Mu, of course. Snatcher, the directors... the Mountain Goats, some remaining Mafia, the Mafia Boss, and a few Subcon Minions, Owls and Moon Penguins. Was there someone else? ... oh, that knocked out person, but they would've returned to their dimension with the rewind. Could she live with them knowing what had happened?
+
+... She decided she was fine with it. In a strange sense, she saw them as friends now, but... "Well maybe you see now why Time is a dangerous thing to play with." If it disincentivises them from trying to use Time Pieces again, then so much the better.
 
 "*Oh, you* wound *me, kiddo!*" Snatcher put on a fake melodramatic act, floating back as if onto a sofa with one of his arms raised above his face. "*How could you accuse your* BFF *of having such an ulterior motive?*"
 
 "I haven't signed that contract."
 
-"*Ah, but I remember writing it, and* you *remember defiling* and *signing it! So even if it hasn't actually happened yet, that contract (and all the others, might I add) is completely valid, whether we like it or not!*" At least, that's how Snatcher figured it worked. Granted, his knowledge in law never had to stand up to time manipulation prior to now. "*But if you must insist, I came by to ask... what happens now.*"
+"*Ah, but I remember writing it, and* you *remember defiling* and *signing it back in the past! Or, uhh... our past. So even if it hasn't actually happened yet, that contract (and all the others, might I add) is completely valid, whether we like it or not!*" At least, that's how Snatcher figured it worked. Granted, his knowledge in law never had to stand up to time manipulation prior to now. "*But if you must insist, I came by to ask... what happens now.*"
 
 "Now?" Hat Kid crossed her arms. "I've retrieved all the time fuel. This ship can actually move again. I'm doing a few last minute errands, and then I'm leaving. I'm going home."
 
@@ -52,15 +58,15 @@ Snatcher chuckled, despite the situation. "*Can't we convince you to stay for ju
 
 "No. I've done enough, Snatcher." She sighed. "I just want to go *home*."
 
-Snatcher was silent, seemingly deflated by her refusal. He was almost shocked by her refusal to even have more time to bother him. "*Did you even* enjoy *your time with us?*"
+Snatcher was silent, seemingly deflated by her refusal. He was almost shocked by her refusal to even have more time to bother him.
 
-She paused. "...sometimes. I got to be a film star, I got to be friendly with your minions, I got to see the sights..." She scrunched up her face. "But it would've been fine if people on this planet weren't always chronic backstabbing pecknecks trying to keep things they don't know about for themselves!"
+She paused. "...I mean, don't get me wrong, it was kinda fun. I got to be a film star, I got to be friendly with your minions, I got to see the sights..." She scrunched up her face. "But it would've been fine if people on this planet weren't always chronic backstabbing pecknecks trying to keep things they don't know about for themselves!"
 
 "*Kiddo, what do you* expect *from someone like myself?*"
 
 "No, you know what?" She pointed a finger accusingly at the ghost. "I *always* expected you to double-cross me. That was never a surprise. But the *directors*? *Mu*? Those cute cats up in the mountains?"
 
-Hat Kid walked over to the captain's chair overlooking the planet, and sat down, spinning it around to face her guest. "Time changes people. *Power* over Time changes people. It corrupts. Tells you you can fix that tiny little thing. But it's never enough. You aim higher. Fix bigger mistakes. Rewrite bigger stretches of Time. Create bigger and bigger rifts in the parts of Time you neglect. It ends up... making a monster out of you and itself. That's why the world got so messed up. *That's* why we - me and my people - keep Time Pieces from being misused."
+Hat Kid walked over to the captain's chair overlooking the planet, and sat down, spinning it around to face her guest. "Time changes people. *Power* over Time changes people. It corrupts. Tells you you can fix that tiny little thing. But it's never enough. You aim higher. Fix bigger mistakes. Rewrite bigger stretches of Time. Create bigger and bigger rifts in the parts of Time you neglect. It ends up... making a monster out of you and itself. That's why the world got so messed up. *That's* why we - me and my people - keep Time from being misused."
 
 "*And then you use it as... spaceship fuel.*"
 

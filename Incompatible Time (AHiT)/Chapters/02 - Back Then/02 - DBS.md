@@ -14,7 +14,7 @@ He glanced back toward the set, the other part of him remembering what movie the
 
 *What new props?* Part of him piped up. *We don't have any new props.*
 
-*What? No, we had those hourglass props,* he thought back to himself, to the present... past... whatever version of himself was still experiencing today in linear time. *The Time Pieces. We taunted Groooooves and his penguins with them early in production, didn't we?*
+*What? No, we had those hourglass props,* he thought back to himself, to the present... past... whatever version of himself was still experiencing today in linear time. *What're they called? Time Pieces. We taunted Groooooves and his penguins with them early in production, didn't we?*
 
 *No?* He got back. *Am I goin' senile already or somethin'?*
 

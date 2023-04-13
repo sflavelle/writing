@@ -32,7 +32,7 @@ Snatcher glanced about, and made for one of the buildings just off the main moon
 
 "*Sure is! She's making a run. I'm not the most glamorous transport, but rest assured I'm the fastest.*"
 
-"Take his word for it," said the Conductor dangling from his arm and looking like he'd been shocked half to death.
+"Take his word for it, We've been to the moon and back," groaned the Conductor dangling from his arm, looking like he'd been shocked half to death.
 
 ----
 
