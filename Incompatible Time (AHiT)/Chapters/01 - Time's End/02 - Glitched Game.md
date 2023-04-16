@@ -68,7 +68,7 @@ This gave Mu an idea.
 
 "And Executioner!" With a particularly strong tug their body was pulled completely through, and the person fell with a thump onto the floor of the throne room. The minion jumped back as this third person seemed to appear out of thin air. Mu noticed this person was about a third taller than her.
 
-Everyone was quiet for a few moments.
+Everyone in the room was quiet for a few moments.
 
 The body on the floor, briefly still, began to move again, as they lifted their head up. "Oughhh... what the fuck..."
 

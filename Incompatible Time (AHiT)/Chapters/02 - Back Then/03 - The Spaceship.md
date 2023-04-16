@@ -34,13 +34,13 @@ Why did he remember? Had she done something wrong? She wracked her brain for ans
 
 Snatcher eyed her. "At least one of my minions knows, sounds like he was in the time... *thing* with us. I know one of them has no idea at all about it."
 
-"Hmmm... well..." Hat Kid mentally checked off who had been present. Herself and Mu, of course. Snatcher, the directors... the Mountain Goats, some remaining Mafia, the Mafia Boss, and a few Subcon Minions, Owls and Moon Penguins. Was there someone else? ... oh, that knocked out person, but they would've returned to their dimension with the rewind. Could she live with them knowing what had happened?
+"Hmmm... Okay, well..." Hat Kid mentally checked off who had been present. Herself and Mu, of course. Snatcher, the directors... the Mountain Goats, some remaining Mafia, the Mafia Boss, and a few Subcon Minions, Owls and Moon Penguins. Was there someone else? ... oh, that knocked out person, but they would've returned to wherever they had come from with the rewind. Could she live with them knowing what had happened?
 
-... She decided she was fine with it. In a strange sense, she saw them as friends now, but... "Well maybe you see now why Time is a dangerous thing to play with." If it disincentivises them from trying to use Time Pieces again, then so much the better.
+... She decided she was fine with it. In a strange sense, she saw them as friends now, but better they have knowledge of what can happen when messing with Time. "Well maybe you see now why Time is a dangerous thing to play with." If it disincentivises them from trying to use Time Pieces again, then so much the better.
 
 "*Oh, you* wound *me, kiddo!*" Snatcher put on a fake melodramatic act, floating back as if onto a sofa with one of his arms raised above his face. "*How could you accuse your* BFF *of having such an ulterior motive?*"
 
-"I haven't signed that contract."
+"That contract doesn't exist."
 
 "*Ah, but I remember writing it, and* you *remember defiling* and *signing it back in the past! Or, uhh... our past. So even if it hasn't actually happened yet, that contract (and all the others, might I add) is completely valid, whether we like it or not!*" At least, that's how Snatcher figured it worked. Granted, his knowledge in law never had to stand up to time manipulation prior to now. "*But if you must insist, I came by to ask... what happens now.*"
 
