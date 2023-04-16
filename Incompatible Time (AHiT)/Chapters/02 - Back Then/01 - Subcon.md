@@ -72,11 +72,15 @@ Snatcher widened an eye. So he wasn't the only one who remembered... interesting
 
 "I don't remember seeing any living kids in the forest..."
 
-"*Hmmm.*"
+"Ooh, I do!" The first minion jumped up and waved his little puppet arm in the air. "She's the newbie! Starts showing up next week, doesn't she?"
 
-"But... how's that possible? How don't they know?" Asked the first minion.
+"*I believe she does.*"
 
-"*Give the guy a break. A lot has happened in a very short amount of time. There has to be some correlation though...*"
+"What?!" yelled the second one. "How did I miss all this?!"
+
+"Yeah Boss... how's that possible? How don't they know?" Asked the first minion.
+
+"*Give the guy a break. I think all that mess has screwed up time in some way, and I'm not sure how we know but he doesn't. There has to be some correlation though...*"
 
 He glanced up toward the sky. Though the ever-present night in his Forest clouded the view, though a part of him complained he didn't know about the alien up there, he knew that that Kid's 'spaceship' was somewhere overhead. 
 

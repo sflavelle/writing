@@ -44,4 +44,16 @@ Some of the owls and penguins, they noticed, also seemed to have just, for lack 
 
 "Poor darlings," Grooves remarked. "I wouldn't be surprised to see a fair number of our staff go to therapy." He paused for just a moment, then turned to the Conductor. "You know, perhaps *we*--"
 
-"I'm *not* seeing a shrink," Conductor said firmly. "No way."
+"I'm *not* seeing a shrink," Conductor said firmly, turning to the counter to fix himself up another cup of coffee. "No way."
+
+"I'm just saying, it might be a good way to unravel what we've just been through."
+
+"What's there to unravel, peckneck?" He shot back. "Some brat decides she gets to decide who's good or bad, and *literally* burns it all down to do it. Executin' us. Nearly killin' the lass. In the end we got a second chance."
+
+"Wh-"
+
+"*Ah'm* not the one who needs a shrink, she is, if she's even still alive." Conductor took a deep swig of his second cup of coffee. "It's all subjective, innit? Sure, I've done awful things. Look at the recordin' for Train Rush, or the... er, 'basement incident'. Look at every single time I've rubbed those *damned* awards in your face. But we both keep many birds in employment, I run me public transport, you run yer disco, and we provide entertainment to the masses. It's not so black and white as she thinks."
+
+Grooves frowned, but nodded. He agreed with his colleague's reasoning, but that wasn't actually what he had meant. "I understand, but I more meant the fact that we were both *dead* for some time."
+
+"...Ah. Yes. Well." 
