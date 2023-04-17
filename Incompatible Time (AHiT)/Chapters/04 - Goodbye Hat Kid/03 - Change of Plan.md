@@ -38,10 +38,22 @@ Snatcher glanced about, and made for one of the buildings just off the main moon
 
 As he picked up his final passenger in the Mafia Town alleyways, Cooking Cat, movement from further up caught Snatcher's attention.
 
-A conspicuously non-Mafia human sat out at a café, drinking. They were turned away from the group, but even without seeing their face, something about them seemed... familiar. But they'd never seen them before, right?
+A conspicuously non-Mafia human sat out in front of what seemed like a café, drinking. They were turned away from the group, but even without seeing their face, something about them seemed... familiar. But they'd never seen them before, right?
 
 He shook his head. No, he had something important to do. Whoever this nobody was, they didn't matter until the second they stepped into his forest.
 
 "*Right!*" He said as Cooking Cat chose a spot above DJ Grooves on his body. "*Let's go stop our brat from doing something she'll regret.*"
 
-One last time, Snatcher dove for the ground, and the five of them vanished from Planet Earth.
+"One moment, please," said Grooves, tapping a flipper against Snatcher, and the spirit noticed he had also seen the person. "Doesn't that person look out of place?"
+
+"Now that y'all mention it," added Cooking Cat, "I've lived here all my life and I've *never* seen them before."
+
+"*Uh, time to go?*" prodded Snatcher.
+
+"Does anyone remember seeing them before that accursed castle?" Questioned the Mafia Boss, rubbing his beard in thought.
+
+Each of the crew's eyes opened wide as they came to a similar conclusion. Cooking Cat simply looked between them, confused.
+
+Snatcher sighed. "*Alright,* fine. *They can be our Plan B if the Kid doesn't budge. Now we really must go!*"
+
+Once all the passengers nodded or voiced their approval, Snatcher dove for the ground, and the five of them vanished from Planet Earth.
