@@ -122,7 +122,7 @@ Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contr
 
 "Eh, I'll pass." His eyes continued scanning the contract in front of him before, seemingly satisfied, he lowered it and gave a nod. "Yer showin' a different side with this, but I cannae find a problem with it."
 
-"*I have many complicated feelings on the brat, but let me put it this way. I believe it's fair to say we all lose something if she goes.*"
+"*I may have complicated feelings on the brat, but let me put it this way. I believe it's fair to say we all lose something if she goes.*"
 
 "I'll agree on that," DJ Grooves said with a nod.
 
@@ -132,7 +132,7 @@ Conductor simply nodded in reply. "Alright, I'll join this darn alliance."
 
 "I only have one question, mister Snatcher." Grooves raised an eyebrow. "Just how do you plan to convince her?"
 
-"*Ah, you're thinking in there! I like that!*" Snatcher seemed to relax into his chair. "*Tomorrow evening, the Kid will be available to receive us in her spaceship. We'll come as a group, and make our case!*"
+"*Ah, there* is *a brain in there! I like that!*" Snatcher seemed to relax into his chair. "*Tomorrow evening, the Kid will be available to receive us in her spaceship. We'll come as a group, and make our case!*"
 
 "Her what?" Conductor eyed the ghost, confused.
 
