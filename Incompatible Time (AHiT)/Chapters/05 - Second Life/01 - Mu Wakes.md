@@ -112,12 +112,44 @@ What did she do to earn this?
 
 "People *here* don't do things like that."
 
-"True. Uhh... well... The main thing is Seaside is my home... or was."
+"True. Uhh... well... The thing is... like... Seaside is my home... or was."
 
 "Seaside?"
 
-"I refuse to call it Mafia Town." She spat off into the distance. "But over the years, anyone who... who might have once called me family, or even just a friend, has taken off. I once had a roof over my head, a home, I didn't have to steal food..."
+"I *refuse* to call it Mafia Town." She spat off into the distance. "But over the years, anyone who... who might have once called me family, or even just a friend, has taken off. I once had a roof over my head, a home, I didn't have to steal food..."
 
-Mu sighed, and looked down into her lap. "Seaside is a shell of what it once was. It's only gotten worse since the Mafia have taken over. And I can't really go anywhere else. That bird country won't accept non-bird migrants, Subcon is... well you know, and I may be pretty outspoken, but I don't have the lung capacity for the Alps." Glancing up to Hat Kid's face, she deeply sighed. "So please... if you don't really have a place for me, just... just say so. I don't think I could... I could take it if I just got strung along on a joke."
+Mu sighed, and looked down into her lap. "Seaside is a shell of what it once was. It's only gotten worse since the Mafia have taken over. And I can't really go anywhere else. That bird country won't accept non-bird migrants, Subcon is... well you know, and I may be pretty outspoken, but I don't have the lung capacity for the Alps." Glancing up to Hat Kid's face, she deeply sighed. "So please... if this is a joke, just... just say so."
 
- 
+Hat Kid shook her head. "Not a joke. But, take your time and figure out what you want to do. I have a bit of time while I'm looking for someone."
+
+Mu slowly nodded. "...Okay. You're alright, kid."
+
+The other simply smiled. "Actually, I do need to ask you about them..."
+
+Mustache Girl raised an eyebrow. "Who's this?"
+
+"Well, from what I heard you managed to summon someone. Nobody knows who they are, and they're still running around here in Maf-- ...*Seaside*."
+
+Mu let her lips curl up into a small smile at the Kid's usage of the town name. But was confused as to who she meant. "Summon? I didn't summon any--"
+
+Suddenly her eyes snapped open as she realised who she might have meant. "WAIT, that guy? I thought he was stalking me for you!"
+
+"What? No! Stalking?"
+
+"Yeah! I always got that feeling of being watched around you, or that time I made it onto your ship! And it happened again in that throne room, and this time I found a guy hidden in some portal!"
+
+"You *what*?" Hat Kid's mouth dropped open slightly, and Mu could almost see the gears turning in her head. "I... I've had that same feeling ever since I arrived here. And this person was just watching us the whole time?"
+
+"Oh gosh, yeah. Sounds like it..."
+
+"...Are they here now? I don't... feel it."
+
+"No, me neither. Besides, I pulled them out of whatever thing made them invisible, and they seemed to be just... some guy." Mu glanced over at Hat Kid. "So you... rewinding time didn't send them home then?"
+
+"It seems that way, yeah."
+
+"...*Can* they be sent back?"
+
+Hat Kid sighed. "I... don't think so. Unless we could find whatever thing they came through, but... you said it was invisible? And whoeven knows if that portal exists anymore."
+
+Mu frowned. "So what do we do then?"
