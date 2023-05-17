@@ -36,7 +36,7 @@ Mu grumbled in response.
 
 "Well, things have kinda been rewound and set back to normal, and well, I think it's about... two weeks since we first met. Filming just wrapped at that bird studio."
 
-"Oh. So it's like... It never happened, right?"
+"Oh. So it's like... It never happened, right? Nobody else remembers?"
 
 "Uhh... You're not going to like the answer."
 
@@ -56,7 +56,7 @@ Mu glanced over at her, raising an eyebrow. "How can you *say* that?"
 
 "I mean... I'm going to guess you didn't mean to turn the planet into lava, right?"
 
-"Of course not! I mean... yeah, it ferried everyone to my castle of judgment, but..."
+"Of course not! I mean... yeah, it ferried everyone to my courtroom of judgment, but..."
 
 "It's just one of the possible consequences of messing with time. So many changes can really mess with the planet's structure. But you figured it out, right? It's not the foolproof way to fix the island that you wanted."
 
@@ -70,11 +70,11 @@ Mu glanced over at her, raising an eyebrow. "How can you *say* that?"
 
 "Well, yeah. They ruined my hometown. I'll never forgive them for that."
 
-"Right. But it might still be possible, even if you don't have the Time Pieces anymore. Look, I have... a bit of insider information." From a backpack She had brought with her, she retrieved a book - the storybook from the Mafia Boss's time rift. "The Mafia only settled here because they were fleeing a more boring situation, and this place is like a vacation to them. If I had to suggest an idea... I would find somewhere the Mafia might find better than this, and try to get them to move *there*."
+"Right. But it might still be possible, even if you don't have the Time Pieces anymore. Look, I have... a bit of insider information." From a backpack she had brought with her, she retrieved a book - the storybook from the Mafia Boss's time rift. "The Mafia only settled here because they were fleeing a more boring situation, and this place is like a vacation to them. If I had to suggest an idea... I would find somewhere the Mafia might find better than this, and try to get them to move *there*."
 
-Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but trust me, these guys are stubborn. Couldn't I like... go back in time with that better place and tell them to go there instead? Even if they're bad guys, that wouldn't hurt them, right?"
+Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but trust me, these guys are stubborn. Couldn't I like... go back in time before they even left wherever awful place Mafia come from, with that better place, and tell them to go there instead? Even if they're bad guys, that wouldn't hurt them, right?"
 
-"...Sorry, Mu. I like the idea, but I can't spare a Time Piece, or I won't be able to get home." Hat Kid shook her head.
+"...Sorry, Mu. I like the idea, but we've both messed with time enough, and I can't spare a Time Piece, or I won't be able to get home." Hat Kid shook her head.
 
 "Hmm? What do you mean, you won't get home without them?"
 
@@ -88,7 +88,7 @@ Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but tru
 
 "I can't really explain that. Trade secret."
 
-"Pfeh. How far away is home, anyway?"
+"Pfeh. Whatever, kid. How far away is home, anyway?"
 
 "About five light years away from here."
 
@@ -98,7 +98,7 @@ Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but tru
 
 "Yeah...?"
 
-"Imagine travelling that fast for five years straight."
+"Imagine travelling that fast for five years straight. Out of the solar system, maybe into another galaxy."
 
 "What the hell? You aliens are freaky."
 
@@ -106,7 +106,7 @@ Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but tru
 
 "But... okay, I guess I get why you were so set on getting them back."
 
-Hat Kid nodded. "But, I can maybe offer something else for you." She took a moment to think it through, then gave a soft smile. "I know this place has been rough to you, and while I think you can be rough around the edges... for me, anyway," she added, raising her hands in apology. "... You deserve a better life than you've had so far. You've had to fight for a bigger part of your life, Mu, and you deserve at least an alternative. I think you once wanted to be space adventurers together?"
+Hat Kid nodded. "But, I can maybe offer something else for you." She took a moment to think it through, then gave a soft smile. "I know this place has been rough to you, and while I think you can be rough around the edges... for me, anyway," she added, raising her hands in apology. "... You deserve a better life than you've had so far. You've had to fight for the better part of your life, Mu, and you deserve at least an alternative. I think you once wanted to be space adventurers together?"
 
 "I think I remember saying 'time-travelling crime fighters'. But space adventuring sounds cool too. I'm guessing the 'time-travelling' part is off the table?"
 
@@ -140,7 +140,7 @@ Mustache Girl raised an eyebrow. "Who's this?"
 
 Mu let her lips curl up into a small smile at the Kid's usage of the town name. But was confused as to who she meant. "Summon? I didn't summon any--"
 
-Suddenly her eyes snapped open as she realised who she might have meant. "WAIT, *that* guy? I thought he was stalking me for you!"
+Suddenly her eyes snapped open as she realised who she might have meant. "WAIT, *that* guy? I thought he was stalking me for *you*!"
 
 "What? No! Stalking?"
 
@@ -158,7 +158,7 @@ Suddenly her eyes snapped open as she realised who she might have meant. "WAIT, 
 
 "...*Can* they be sent back?"
 
-Hat Kid sighed. "I... don't think so. Unless we could find whatever thing they came through, but... you said it was invisible? And whoeven knows if that portal exists anymore."
+Hat Kid sighed. "I... don't know, but I don't think so. Unless we could find whatever thing they came through, but... you said it was invisible? And whoeven knows if that portal exists anymore."
 
 Mu frowned. "So what do we do then?"
 
@@ -188,5 +188,11 @@ Mustache Girl eyed the box suspiciously. "... What's the catch?"
 
 She shook her head, and carefully set it on Mu's lap. "Tell you what. If you see this guy tomorrow, and I'm not there? I'll get you one of my ship's distress signal boxes. Just flick that on, and I'll know to come find you."
 
-Mu eyed her suspiciously for a few seconds, then nodded, and opened up the box, and was met with the look and smell of delicious food... even some cooked stuff! She gasped. "You know, you might be a bad guy, *and* a good guy. But you know what? You really do seem to care..."
+Mu eyed her suspiciously for a few seconds, then nodded, and opened up the box, and was met with the look and smell of delicious food... even some cooked stuff! She stared at the meal in wonder, and her empty stomach promptly growled. "You know, you might be a bad guy, *and* a good guy. But you know what? You really do seem to care..."
+
+"I'm a bad guy still?" Hat Kid rolled tilted her head.
+
+"I mean, you did side with the other bad guys. And we did fight."
+
+"Heh." She wondered if she would need to show Mustache Girl that life wasn't just black and white. She *got* why she had to think that way but... well, if they were going to work together, maybe it was worth tearing off a few rhetorical bandaids.
 

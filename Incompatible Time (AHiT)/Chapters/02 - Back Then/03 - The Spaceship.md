@@ -18,7 +18,7 @@ Hat Kid spun around to see Snatcher emerge through the carpet. Her brow furrowed
 
 "*Now, I can't say I entirely understand how your whole deal with Time works,*" the ghost began, eyeing her suspiciously, "*but I felt the need to come up and ask my most* resilient *servant: what in the* hell *just happened?*"
 
-Oh. Maybe he remembers the other timeline. "...Who are you?" she asked him carefully. After all, in *this* timeline, she had not visited Subcon Forest yet...
+Oh. "... And who are you?" she asked him carefully. After all, in *this* timeline, she had not visited Subcon Forest yet...
 
 Snatcher's eyes widened for just a moment, before settling into an expression of unamusement. "*No, no. Don't play dumb with me, kid. If I and some of my minions remember a world covered in lava and a brat judging everyone based on her warped sense of justice, then you certainly remember.*"
 
@@ -60,7 +60,7 @@ Snatcher chuckled, despite the situation. "*Can't we convince you to stay for ju
 
 Snatcher was silent, seemingly deflated by her refusal. He was almost shocked by her refusal to even have more time to bother him.
 
-She paused. "...I mean, don't get me wrong, it was kinda fun. I got to be a film star, I got to be friendly with your minions, I got to see the sights..." She scrunched up her face. "But it would've been fine if people on this planet weren't always chronic backstabbing pecknecks trying to keep things they don't know about for themselves!"
+She paused. "...I mean, don't get me wrong, it was kinda fun. I got to be a film star, I got to be friendly with your minions, I got to see the sights..." She scrunched up her face. "But it would've been fine if people on this planet weren't backstabbing pecknecks trying to keep things they don't know about for themselves!"
 
 "*Kiddo, what do you* expect *from someone like myself?*"
 
@@ -72,7 +72,7 @@ Hat Kid walked over to the captain's chair overlooking the planet, and sat down,
 
 "Yes." She eyed the Snatcher carefully.
 
-"*Elaborate.*" One of his eyes widened - some equivalent to raising an eyebrow, she guessed.
+"*Explain.*" One of his eyes widened - some equivalent to raising an eyebrow, she guessed.
 
 "No."
 
