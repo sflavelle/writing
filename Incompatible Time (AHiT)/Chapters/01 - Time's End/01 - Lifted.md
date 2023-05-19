@@ -12,7 +12,9 @@ In her case, it was because this new development had quite literally wiped any o
 
 But as she paused, psyching herself up for whatever lay ahead, she realised something was missing.
 
-The feeling of being watched, monitored... was gone for the first time since she had made it to this planet.
+The feeling of being watched, monitored... A feeling she had had for the weeks, months she had been on this planet… was gone. 
+
+For the first time since she had made it to this planet, she felt truly alone.
 
 It was strange - even when she was all alone and *knew* nobody was around, that feeling had always been with her. She wished she could figure out what it had been, but, well, *this* was kind of a priority now.
 
