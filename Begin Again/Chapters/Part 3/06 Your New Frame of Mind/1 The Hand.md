@@ -24,7 +24,7 @@ She sighed, turning toward the open shower to one corner of the room.
 
 Lily didn't hear or see the door open while she was busy scrubbing her body clean, in the steam and the noise of the shower.
 
-The first indication that someone had entered the bathroom was a single tentacle reaching in, to gently brush over her body. She stiffened and snapped toward the intruder, only to notice the vague shape of her captive and companion behind the mist. "Oh. Morning."
+The first indication that someone had entered the bathroom was a single tentacle reaching in, to gently brush over her body. She stiffened and snapped toward the intruder, only to notice the vague shape of her captor and companion behind the mist. "Oh. Morning."
 
 "Good morning, my dear," came Octavio's gurgly voice from the other side of the steam cloud. "Sleep well?"
 
@@ -38,7 +38,7 @@ A chuckle came from behind the shower mist. "They're not meant to, dear."
 
 "...what, seriously?"
 
-"No, I kid. Like anything else, they should came with time. Mind if I join you? I ought to clean myself up as well."
+"No, I kid. Like anything else, they should fade with time. Mind if I join you? I ought to clean myself up as well."
 
 Lily gave it a moment's thought. "I guess I don't mind, no."
 
@@ -56,7 +56,7 @@ He paused to focus, and Lily waited for him to finish. "I genuinely think that y
 
 "Mmmm." A noncommittal noise from the octopus. "It's a thought in progress. The Great Turf War is way too ingrained in our culture for something like that to happen overnight."
 
-"Well, maybe it's time to take those first steps," Lily offered, moving closer, but mostly to wash the soap from her body. The sucker marks had begun to recede from an angry red, proving they would just come off with time. "You're right, societal change won't happen in a day, but there's still smaller actions you can take, symbolic gestures. You'll have to acclimate your people to the idea of a future where they won't *have* to fight. And acclimate *us* to the idea that you *can* negotiate without kidnapping or snatching power."
+"Well, maybe it's time to take those first steps," Lily offered, moving closer, but mostly to wash the soap from her body. The sucker marks had begun to recede from an angry red, proving they would just come off in with time. "You're right, societal change won't happen in a day, but there's still smaller actions you can take, symbolic gestures. You'll have to acclimate your people to the idea of a future where they won't *have* to fight. And acclimate *us* to the idea that you *can* negotiate without kidnapping or snatching power."
 
 "Hmm... it'll be hard."
 
@@ -66,7 +66,7 @@ Octavio paused, and fixed his gaze on her. Gears were turning in his head. "...I
 
 "Good man. I'm proud of you." Lily smiled, a genuine one. 
 
-(In reality, Octavio had to lie to her. She was optimistic of him, and he liked some of the ideas she had, but it was far too late to change his path. The Octopia power situation was dire, and needed fixing near immediately, but he knew that a request to the surface for support would ultimately mean having to give up, well, *everything* about Octopia's identity. No, in this case it was easier for him to beg forgiveness.)
+(In reality, Octavio had to lie to her. She was optimistic of him, and he liked some of the ideas she had, but it was far too late to change his path. The Octopia power situation was dire, and needed fixing near immediately, but he knew that a request to the surface for support would ultimately mean having to give up, well, *everything* about Octopia's identity. No, in this case it was easier for him to beg forgiveness than ask permission.)
 
 (He wasn't lying about his belief in Lily to mediate between him and the Inklings, though. Her interactions with and around him up at Tentakeel Hideout were testament to her ability to simply see the best of people.)
 

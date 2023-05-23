@@ -84,7 +84,7 @@ Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but tru
 
 "It's true!"
 
-"How can *time* be a fuel?!" Mu sat up, and Hat Kid got a good look at her drowsy, cold-addled expression.
+"How can *time* be a fuel?!" Mu sat up, pinching the bridge of her nose, and Hat Kid got a good look at her drowsy, cold-addled expression.
 
 "I can't really explain that. Trade secret."
 
@@ -190,9 +190,12 @@ She shook her head, and carefully set it on Mu's lap. "Tell you what. If you see
 
 Mu eyed her suspiciously for a few seconds, then nodded, and opened up the box, and was met with the look and smell of delicious food... even some cooked stuff! She stared at the meal in wonder, and her empty stomach promptly growled. "You know, you might be a bad guy, *and* a good guy. But you know what? You really do seem to care..."
 
-"I'm a bad guy still?" Hat Kid rolled tilted her head.
+"I'm a bad guy still?" Hat Kid tilted her head.
 
 "I mean, you did side with the other bad guys. And we did fight."
 
-"Heh." She wondered if she would need to show Mustache Girl that life wasn't just black and white. She *got* why she had to think that way but... well, if they were going to work together, maybe it was worth tearing off a few rhetorical bandaids.
+"Heh. I guess." She wondered if she would need to show Mustache Girl that life wasn't just black and white. She *got* why she had to think that way but... well, if they were going to work together, maybe it was worth tearing off a few rhetorical bandaids.
 
+For now though, she stood. "Well, I'll let you be. Enjoy your meal. I'll come by in the morning and drop off the signal device, and maybe we can find this guy."
+
+Mu nodded. "Sounds like a plan, kid."

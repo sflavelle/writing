@@ -14,7 +14,7 @@ It was perhaps fitting that it was right here, as you exited Ginner Woods, findi
 
 You jumped back as they sprang out of hiding, doing... some sort of battle-cry at you, you guessed, and after a moment to collect yourself, you examined them and their weapons. One was holding a stolen pitchfork, aimed at you, and the other wielded a...mop broom. Huh. You gave yourself a bit more room - or attempted to, as you backed away, they moved in - and decided that if you could do something about the sharp weapon, the other would be less of an issue if you decided to leg it.
 
-Again, you jumped back as suddenly the first Bokoblin thrust its pitchfork toward you, its buddy cheering it on. It came within a foot of you - man you were happy for your quick reactions here - and you got a good look of the jagged rust on the fork's points. *Fuck, yeah can't let /that/ touch me.* You thought you noticed the Bokoblin tip, as if it overextended? Hmm...
+Again, you jumped back as suddenly the first Bokoblin thrust its pitchfork toward you, its buddy cheering it on. It came within a foot of you - man you were happy for your quick reactions here - and you got a good look of the jagged rust on the fork's points. *Fuck, yeah can't let /that/ touch me.* You thought you noticed the Bokoblin tip and stumble, as if it overextended? Hmm...
 
 But it recovered after a moment, still holding its weapon, and you had to duck to dodge the mop head swinging at you. You pulled back further, on the edge of the wood again. You were starting to come up with a plan... if it worked, you might have yourself a weapon going forward.
 
@@ -38,7 +38,7 @@ And then you were heading into the valley along the river, and it seemed like yo
 
 Of course it was either that, or dying a painful death to a weak monster... you decided to just take the win.
 
-You gave yourself fifteen minutes to sit by the rock walls and catch your breath, and began to take stock of your body. You became aware of your shakiness, especially in your hands. The pounding of your heart against your chest.
+You gave yourself a few minutes to sit by the rock walls and catch your breath, and began to take stock of your body. You became aware of your shakiness, especially in your hands. The pounding of your heart against your chest.
 
 The signs of fear.
 
