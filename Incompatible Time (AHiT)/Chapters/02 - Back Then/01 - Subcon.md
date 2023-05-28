@@ -1,32 +1,60 @@
 ## Back Then
 
+The morning in Subcon Forest was much like any other morning in Subcon Forest.
+
+As the Snatcher's form wove between the trees looking for any new intruders, his minions would check the various traps he'd set, and then go about their duties.
+
+But it had been a while since any outsiders had come to the Forest.
+
+And tasks were beginning to pile up again.
+
+Subcon Well was yet again frozen shut, meaning the stream in the minions' village had dried up. Speaking of, Fire Spirits were starting to take up residence, and their magic was starting to create barriers to parts of the forest. If the minions didn't take action soon, they'd probably end up right in the village.
+
+Then there was the issue of *her*. It had been some time since he'd last had someone 'check on her', and he wanted to make sure she hadn't found a way out of her containment.
+
+But these things weren't Snatcher's problem. He was the Boss of Subcon! He shouldn't have to stoop down and do these mindless tasks!
+
+No, these tasks were saved for the equally mindless people that made their way into the forest.
+
+But as before, nobody was turning up.
+
+*Well,* Snatcher decided to himself, *the problem will solve itself in due time.*
+
+And so, since to him nothing needed doing, he decided to relax and read.
+
 It was one of Snatcher's guilty pleasures, the book he was currently reading.
 
 He hardly considered himself a fiction reader, having learned so much, of law, of the world, through books. Why muddle that knowledge with information that didn't apply?
 
-But this? This was the one series he considered his exception. The *Ace the Attorney* novels.
+But this? This was the one series he considered his exception.
 
-Right now, as his spectral body rested in his chair, in the one place in the Forest he could truly call 'his home', the main character of the novel, Ace, was defending his client from a murder charge.
+The *Ace the Attorney* novels.
+
+Right now, as his spectral form rested in his chair, in the one place in the Forest he could truly call 'his home', the main character of the novel, Ace, was defending his client from a murder charge.
 
 "*'Almost Christmas' means it wasn't Christmas!*" Snatcher allowed himself a chuckle upon reading the line. Yes, it sounded dumb, but it was small details like that which made all the difference, and he knew it. Surely this would be how Ace gets his client--
 
-Snatcher jolted upright in a flash, the book completely forgotten as he looked around himself. *Where? Where was he now?!* A voice in his mind told him that he'd always been here, but a second voice, still his own, told him he had just been somewhere else completely.
+Snatcher jolted upright in a flash, the book completely forgotten as he looked around himself. *What?! What in the heck is happening now?*
 
-He gathered his thoughts. He was just in that... *void*, for lack of a better word, and now he was here. 
+He scanned his surroundings, and found himself in his home. He looked down at himself, and saw that he was in his own body again, not the... absolute *nothing* he had just been.
 
-And his Forest. He floated out of his chair to survey the path toward the village. It was the same as it always was, but it had also, last he saw, been lost under unending lava flow.
+He gathered his thoughts. *What /had/ just happened?* He had been in that whirlwind of color and time, then an instant that felt like forever in that... *void*, that *nothing*.
+
+And now suddenly he was back here.
+
+In his Forest. He floated out of his chair to survey the path toward the village. It was the same as it always was, but it had also, last he saw, been lost under unending lava flow.
 
 It was almost as if...
 
 *That was it. Time, Time Pieces* - he'd been sent back in time, to a point before those changes happened.
 
-*Was it over, then? Were things back to normal?*
+*Had the brat won, then? Was it over? Were things back to normal?*
 
 He reached his senses outward. His minions - were they alright? His memory from this day told him they were, and that some were gathered near the bridge playing some 'tag' game. He felt the familiar sense of the minions there, and sighed out.
 
 *Seems like things were as they should be.*
 
-Snatcher decided he wanted to see them in person.
+Snatcher decided, for the sake of his sanity, that he wanted to see them in person.
 
 ----
 
@@ -46,9 +74,9 @@ Two Subcon minions sat to one side as they watched their friends run around. One
 
 The face of Snatcher appeared from the ground in front of them, causing them to jump.
 
-"B-Boss! Sorry, we were just-"
+"B-Boss! Sorry, we've done our duties, we were just-"
 
-"*No, don't worry. I just wanted to see how you're all doing.*" The rest of him casually slid out from the ground and he looked over at the group playing Tag. "*What, too tired to join your friends, you two?*"
+"*No, don't worry. I just wanted to see how you're all doing.*" The rest of him casually slid out from the ground and he looked over at the group playing Tag. "*What, too tired to join your friends?*"
 
 "We're fine, *he's* just telling me a story he made up."
 
@@ -82,6 +110,6 @@ Snatcher widened an eye. So he wasn't the only one who remembered... interesting
 
 "*Give the guy a break. I think all that mess has screwed up time in some way, and I'm not sure how we know but he doesn't. There has to be some correlation though...*"
 
-He glanced up toward the sky. Though the ever-present night in his Forest clouded the view, though a part of him complained he didn't know about the alien up there, he knew that that Kid's 'spaceship' was somewhere overhead. 
+He glanced up toward the sky. Though the ever-present night in his Forest clouded the view, though a part of him complained he didn't know about the alien up there, he knew that that Kid's 'spaceship' was somewhere overhead.
 
 Perhaps it was time to make a visit.

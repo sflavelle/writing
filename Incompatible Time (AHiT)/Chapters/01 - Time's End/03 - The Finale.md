@@ -30,8 +30,12 @@ With that, she smiled.
 
 As she took hold of the ball of Time Pieces, she thought hard on how she had remembered the planet looking. Its people, its landscape, the places... its timeline as it had once been, before it had been corrupted into... this.
 
-Once she was confident things will repair the way she intended, she took a deep breath...
+These feelings, these memories, flowed from her toward the cluster, influencing them. She didn't know where she had learned how to do this - it was such a long time ago now...
 
-And smashed the Time Pieces into the ground.
+Once she was confident things will repair the way she intended, she paused, looking around herself, then took a deep breath...
 
-There was a flash of white and a roar of sound and then-
+And flung the Time Pieces into the ground.
+
+There was a loud crash as they cracked and smashed into pieces, unleashing their power.
+
+There was a bright flash of white and a roar of sound and then-

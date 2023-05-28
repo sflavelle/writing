@@ -18,7 +18,7 @@ Moustache Girl halted the Subcon Minion who was entering the room, scanning the 
 
 "Hhhmm..." She wasn't so sure. Her hand slowly reached for the pull-chain that triggered the floor trap.
 
-"Oh this is new. What's going on now?"
+"*Oh this is new. What's going on now?*"
 
 There it was again. And with it came a feeling she hadn't felt for a while, but which she could recognise.
 
@@ -34,7 +34,7 @@ And now it was somewhere in this room.
 
 Moustache Girl thought. She rose from her throne and descended the pile of Time Pieces. She gestured for quiet as she listened for this intruder.
 
-"Huh, doesn't she only come down when I go to attack her?"
+"*Huh, doesn't she only come down when I go to attack her?*"
 
 *When you try to what?* This mystery voice was near the door, somewhere just left of the minion. She approached him, focusing her vision on him as she got close, stopping just in front of him. She didn't want this strange presence to know she was searching for him.
 
@@ -44,7 +44,7 @@ She thought she saw a light reflection, off a near invisible panel of glass that
 
 "Uhhh," vocalised the minion.
 
-"Yeah guy, what is this cutscene now? Am I softlocked?"
+"*Yeah guy, what is this cutscene now? Am I softlocked?*"
 
 That voice definitely came from the panel. It seemed to become more visible as she watched out of the corner of her vision.
 
@@ -52,13 +52,15 @@ Moustache Girl reached toward the minion...
 
 Then feinted left and dove for the panel, grabbing it in both hands. "Aha! Gotcha!"
 
-The panel burst into colour as she touched it, and she found herself looking at a person, captured on screen as if on one of those sci-fi communications devices on tv. "Who *are* you, you stalker?! Who are you to come in here and spy on ME?"
+The panel burst into colour as she touched it, and she found herself looking at a person in an unfamiliar room, captured on screen as if on one of those sci-fi communications devices on tv. "Who *are* you, you stalker?! Who are you to come in here and spy on ME?"
 
 In response, the person on the other side of the screen tried once again to press buttons on their controller in an attempt to skip the cutscene.
 
 "Oi! I'm talking to *you* in there, *nerd!*" She tapped at the screen toward the person as she said this, only for her pointed finger to hit nothing. Indeed, it seemed almost to pass through.
 
 "Yeah hi," said the person dismissively. "Can I please play the game now?"
+
+This person seemingly did not notice what had happened with Mu's finger.
 
 This gave Mu an idea.
 
@@ -84,7 +86,7 @@ Then the person jumped back onto their feet, backing away with an expression of 
 
 The minion forgotten, Mu approached this strange human-like figure. "You've been watching us all this whole time, haven't you?! With *her*!"
 
-"What?!" 
+"What?!"
 
 "Don't 'what' me!" She launched toward them and swung a punch hard into their stomach, causing them to double over. "I've felt your presence around *her* and her ship ever since you both arrived in Mafia Town!"
 
