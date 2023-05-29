@@ -186,7 +186,7 @@ Mustache Girl eyed the box suspiciously. "... What's the catch?"
 
 "Nah, there's a condition on getting this stuff. I know it."
 
-She shook her head, and carefully set it on Mu's lap. "Tell you what. If you see this guy tomorrow, and I'm not there? I'll get you one of my ship's distress signal boxes. Just flick that on, and I'll know to come find you."
+She shook her head, and carefully set it on Mu's lap. "Tell you what. If you see this guy, and I'm not there? I'll get you one of my ship's distress signal boxes. Just flick that on, and I'll know to come find you."
 
 Mu eyed her suspiciously for a few seconds, then nodded, and opened up the box, and was met with the look and smell of delicious food... even some cooked stuff! She stared at the meal in wonder, and her empty stomach promptly growled. "You know, you might be a bad guy, *and* a good guy. But you know what? You really do seem to care..."
 

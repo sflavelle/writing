@@ -10,7 +10,7 @@
 
 "Oh fer sure."
 
-"But that's... not quite what I'm asking."
+"But that's... not all I'm asking about."
 
 Grooves lifted his glasses away from his face, setting them down on the table. "I mean... It was about this time, the last go around that you became... different, to forgo a more appropriate term. How did the next few weeks go? Becoming more self-centered, feeding into some of your worse characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
 
@@ -56,7 +56,7 @@ The laughter lasted just a few seconds too long, and ended when the two realised
 
 Someone *in the room* with them.
 
-"Who'ssat?!" Conductor growled, whipping his head around in search of the intruder. "I'll have ye know this is a private meetin'!"
+"Who'ssat?!" Conductor growled, whipping his head around in search of the intruder. "I'll have yer know this is a private meetin'!"
 
 Eventually he took notice of a strange blob of shadow on the ceiling.
 

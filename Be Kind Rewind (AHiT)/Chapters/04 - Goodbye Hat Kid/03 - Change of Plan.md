@@ -46,13 +46,13 @@ He shook his head. No, he had something important to do. Whoever this nobody was
 
 "One moment, please," said Grooves, tapping a flipper against Snatcher, and the spirit noticed he had also seen the person. "Doesn't that person look out of place?"
 
-"Now that y'all mention it," added Cooking Cat, "I've lived here all my life and I've *never* seen them before."
+"Now that y'all mention it," added Cooking Cat, "I've lived here all my life and done my fair share of travel, and I've *never* seen them before."
 
 "*Uh, time to go?*" prodded Snatcher.
 
 "Does anyone remember seeing them before that accursed castle?" Questioned the Mafia Boss, rubbing his beard in thought.
 
-Each of the crew's eyes opened wide as they came to a similar conclusion. Cooking Cat simply looked between them, confused.
+Each of the crew's eyes opened wide as they came to a similar conclusion. Cooking Cat simply looked between them, confused. "The what now?"
 
 Snatcher sighed. "*Alright,* fine. *They can be our Plan B if the Kid doesn't budge. Now we really must go!*"
 

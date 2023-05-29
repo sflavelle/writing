@@ -52,7 +52,7 @@ She shrugged. "You should know that I've been investigating that alien and her s
 
 "It's the strangest thing! I decided to come on before she left Mafia Town. She said she was going to do some movies for the birds at Dead Bird Studios and said she'd be here a while, and next thing I know, she says she's finished and was leaving tonight, and where could she drop me off?"
 
-Snatcher thought a moment. Interesting... this cat didn't mention Lava World at all. Compared to the few he'd talked to in the past 24 hours, it seemed Cooking Cat had no idea about the future that had already occurred and been subsequently erased. "*Weeell... I wouldn't normally do this, but okay. Myself, the Boss and the two directors of Dead Bird Studios are going up there tonight. I can bring you along, but I'll have to get you to sign something, and it's only because of a trait I know the Kid'll adore.*"
+Snatcher thought a moment. Interesting... this cat didn't mention Lava World at all. Compared to the few he'd talked to in the past 24 hours, it seemed Cooking Cat might have no idea about the future that had already occurred and been subsequently erased. "*Weeell... I wouldn't normally do this, but okay. Myself, the Boss and the two directors of Dead Bird Studios are going up there tomorrow night. I can bring you along, but I'll have to get you to sign something, and it's only because of a trait I know the Kid'll adore.*"
 
 "Of course! What do you mean?"
 
