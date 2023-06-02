@@ -34,7 +34,7 @@ Right now, as his spectral form rested in his chair, in the one place in the For
 
 "*'Almost Christmas' means it wasn't Christmas!*" Snatcher allowed himself a chuckle upon reading the line. Yes, it sounded dumb, but it was small details like that which made all the difference, and he knew it. Surely this would be how Ace gets his client--
 
-Snatcher jolted upright in a flash, the book completely forgotten as he looked around himself. *What?! What in the heck is happening now?*
+Snatcher jolted upright in a flash, the book dropping from his claws, completely forgotten as he looked around himself. *What?! What in the heck is happening now?*
 
 He scanned his surroundings, and found himself in his home. He looked down at himself, and saw that he was in his own body again, not the... absolute *nothing* he had just been.
 
@@ -49,6 +49,12 @@ It was almost as if...
 *That was it. Time, Time Pieces* - he'd been sent back in time, to a point before those changes happened.
 
 *Had the brat won, then? Was it over? Were things back to normal?*
+
+And what of that void?
+
+Had *he*, the Subcon Snatcher, died again?
+
+*How?*
 
 He reached his senses outward. His minions - were they alright? His memory from this day told him they were, and that some were gathered near the bridge playing some 'tag' game. He felt the familiar sense of the minions there, and sighed out.
 
