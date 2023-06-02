@@ -4,9 +4,13 @@ Even after the few days she had spent unconscious, her being ached, fatigued and
 
 Blearily opening her eyes, she was greeted with flickering light cast upon the ceiling of what she recognised as her camp. In the corner of her vision she saw its source - her campfire was lit.
 
-Oh this was not good. 
+She, of course, had not lit it.
 
-Mu struggled to sit up, nearly falling right back into sleep.
+So clearly someone else had.
+
+...Uh oh.
+
+Mu struggled to sit up, nearly blacking right back out from the sudden exertion.
 
 "Hey. Relax. You've been through a lot."
 
@@ -46,7 +50,7 @@ Mu grumbled in response.
 
 Mu was silent as this sank in. Now this world full of bad guys was gonna be on the lookout for her specifically. Oh that... That felt *incredibly* crushing to know.
 
-"Look, uh... for what it's worth, I didn't intend for anyone to remember. So for what it's worth, um... sorry. I don't know what I did wrong."
+"Look, uh... for what it's worth, I didn't intend for anyone to remember. So um... sorry. I don't know what I did wrong."
 
 She sighed and sank deeper into the blanket. "Whatever. I guess I deserve it for being the only good guy, huh?"
 
