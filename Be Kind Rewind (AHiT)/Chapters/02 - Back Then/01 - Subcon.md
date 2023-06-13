@@ -48,7 +48,7 @@ It was almost as if...
 
 *That was it. Time, Time Pieces* - he'd been sent back in time, to a point before those changes happened.
 
-*Had the brat won, then? Was it over? Were things back to normal?*
+*Had the kid won, then? Was it over? Were things back to normal?*
 
 And what of that void?
 
@@ -106,7 +106,7 @@ Snatcher widened an eye. So he wasn't the only one who remembered... interesting
 
 "I don't remember seeing any living kids in the forest..."
 
-"Ooh, I do!" The first minion jumped up and waved his little puppet arm in the air. "She's the newbie! Starts showing up next week, doesn't she?"
+"Oh! Oh! I do!" The first minion jumped up and waved his little puppet arm in the air. "She's the newbie! Starts showing up next week, doesn't she?"
 
 "*I believe she does.*"
 

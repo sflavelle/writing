@@ -120,7 +120,7 @@ Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contr
 
 "*I can put the standard soul clause in there if you* really *want. I won't say no.*"
 
-"Eh, I'll pass." His eyes continued scanning the contract in front of him before, seemingly satisfied, he lowered it and gave a nod. "Yer showin' a different side with this, but I cannae find a problem with it."
+"Eh, I'll pass." His eyes continued scanning the contract in front of him before, seemingly satisfied, he lowered it and gave a nod. "Yer showin' a different side wi' this, but I cannae find a problem with it."
 
 "*I may have complicated feelings on the brat, but let me put it this way. I believe it's fair to say we all lose something if she goes.*"
 

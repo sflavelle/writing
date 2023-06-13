@@ -8,7 +8,7 @@ So when several Mafia burst into his theatre yelling about ghosts, it took him a
 
 And so, when the ghost indeed appeared before him, floating in through the doors (and promptly scaring off the mafia guarding them), the Mafia Boss was amused. "The Subcon Snatcher graces me with his presence! To what do I owe this unexpected surprise?"
 
-"*Always straight to business with you, huh?*" The Snatcher grinned. "*Good! I'll make this quick.*"
+"*Always straight to business with you, huh?*" The Snatcher grinned. "*I'll make this quick.*"
 
 With a snap of his fingers the contract appeared before the Mafia Boss. "*That kid with the hat is planning to leave, and I wondered if you, like me, have any objections with the idea.*"
 
@@ -46,7 +46,7 @@ She shrugged. "You should know that I've been investigating that alien and her s
 
 "*I've never seen you when I've visited.*"
 
-"I may have been *mostly* investigating the alien food."
+"I may have been *mostly* investigating the alien kitchens."
 
 "*Ooooof course you were. Also, only a couple days?*"
 
