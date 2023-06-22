@@ -16,7 +16,7 @@ She glanced down at her right hand, and was surprised to find it ungloved. She r
 
 The mark was looking a bit worse for wear this morning, or... whenever it actually was. It could do with a good clean, she decided.
 
-She sighed, turning toward the open shower to one corner of the room. 
+She sighed, turning toward the open shower to one corner of the room.
 
 *... yeah, alright.*
 
@@ -64,10 +64,22 @@ He paused to focus, and Lily waited for him to finish. "I genuinely think that y
 
 Octavio paused, and fixed his gaze on her. Gears were turning in his head. "...I'll see what I can do," he offered.
 
-"Good man. I'm proud of you." Lily smiled, a genuine one. 
+"Good man. I'm proud of you." Lily smiled, a genuine one.
 
 (In reality, Octavio had to lie to her. She was optimistic of him, and he liked some of the ideas she had, but it was far too late to change his path. The Octopia power situation was dire, and needed fixing near immediately, but he knew that a request to the surface for support would ultimately mean having to give up, well, *everything* about Octopia's identity. No, in this case it was easier for him to beg forgiveness than ask permission.)
 
 (He wasn't lying about his belief in Lily to mediate between him and the Inklings, though. Her interactions with and around him up at Tentakeel Hideout were testament to her ability to simply see the best of people.)
 
-"Thank you, dear." DJ Octavio's expression relaxed further. Lily thought he might be smiling behind his little 'moustache'. "Now, I will be giving a speech to the people, to boost morale and I would appreciate if you would be present."
+----
+
+The shower passed without further incident, but it was as Lily brushed her teeth by the mirror that Octavio, drying himself off with a massive plush towel, caught a glimpse of a mark on Lily. The conversation they were having had suddenly died.
+
+"...Tavi? All good?" Lily had lifted her gaze and turned toward him, her right hand hanging limp with toothbrush in its grip.
+
+The DJ's wide gaze was fixed on said hand.
+
+Lily's right hand sported a sickly green mark, like a burn, etched into the skin of her hand.
+
+The same sickly green as...
+
+*
