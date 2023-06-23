@@ -82,4 +82,38 @@ Lily's right hand sported a sickly green mark, like a burn, etched into the skin
 
 The same sickly green as...
 
-*
+*The settlement was a horror scene.*
+
+*As he was led through the scene by the commander on duty, the slain bodies littered the streets in every which direction he looked.*
+
+*All with the same marks.*
+
+*Some had had holes seemingly drilled into their temples. Some through tentacles, others missing a whole portion of their stomach.*
+
+*But in whichever gruesome these citizens and soldiers were murdered, they all bore the same green splotch around the wound. A mix of cyan and yellow... ink?*
+
+*The sight was sickening. How could this have happened to Opal Springs?*
+
+*Though he was sure of the answer, he asked the commander anyway. "Are there any survivors?"*
+
+*"Nobody, General. We've searched the entire settlement and... it seems Opal Springs has been wiped out."*
+
+*"But how...? Who...?"*
+
+*"We've no leads yet on the aggressor. But we did find something..."*
+
+*Then General Octavio had been led to the rear of the cave pocket where Opal Springs resided, to the blown out hole in the wall.*
+
+*"We found this intrusion where the attackers most likely came from. It's not in any of our systems. But take a look..."*
+
+*The hole, Octavio saw, led to some sort of concrete tunnel. It was not very deep, but instead seemed to lead off to the sides into the darkness. What kind of structure was this?*
+
+*Then he saw the body.*
+
+*He made his way forward, toward the entry point. Climbing the rubble on his tentacles.*
+
+*What he found was the recon squad that had been sent in to gather information on the space that had opened up.*
+
+*And these Octolings had fared much worse.*
+
+*Lifeless, discolored eyes stared up at him from pale, green skin.*
