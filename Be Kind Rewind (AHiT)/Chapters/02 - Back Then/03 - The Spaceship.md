@@ -16,13 +16,13 @@ She closed and tightened the vault door. She noted that she didn't feel comforta
 
 Hat Kid spun around to see Snatcher emerge through the carpet. Her brow furrowed. *But... I haven't met you yet...*
 
-"*Now, I can't say I entirely understand how your whole deal with Time works,*" the ghost began, eyeing her suspiciously, "*but I felt the need to come up and ask my most* resilient *servant: what in the* hell *just happened?*"
+"*Now, I can't say I entirely understand how your whole deal with Time works,*" the ghost began, eyeing her suspiciously, "*but I felt the need to come up and ask my most...* resilient *servant: what in the* hell *just happened?*"
 
 Oh. "... And who are you?" she asked him carefully. After all, in *this* timeline, she had not visited Subcon Forest yet...
 
 Snatcher's eyes widened for just a moment, before settling into an expression of unamusement. "*No, no. Don't play dumb with me, kid. If I and some of my minions remember a world covered in lava and a brat judging everyone based on her warped sense of justice, then you certainly remember.*"
 
-The Kid's eyes widened. "What? But that's not right!" She looked down at her hands. "There's no way you should remember that. Technically I haven't even met you yet."
+The Kid's eyes widened. "What? But that's not right!" She looked down at her hands. "There's no way you should remember that. Chronologically I haven't even met you yet."
 
 "*And yet here we are.*"
 
@@ -66,9 +66,9 @@ She paused. "...I mean, don't get me wrong, it was kinda fun. I got to be a film
 
 "No, you know what?" She pointed a finger accusingly at the ghost. "I *always* expected you to double-cross me. That was never a surprise. But the *directors*? *Mu*? Those cute cats up in the mountains?"
 
-Hat Kid walked over to the captain's chair overlooking the planet, and sat down, spinning it around to face her guest. "Time changes people. *Power* over Time changes people. It corrupts. Tells you you can fix that tiny little thing. But it's never enough. You aim higher. Fix bigger mistakes. Rewrite bigger stretches of Time. Create bigger and bigger rifts in the parts of Time you neglect. It ends up... making a monster out of you and itself. That's why the world got so messed up. *That's* why we - me and my people - keep Time from being misused."
+Hat Kid walked over to the captain's chair overlooking the planet, and sat down, spinning it around to face her guest. "Time changes people. *Power* over Time changes people. It corrupts. Tells you you can fix that tiny little thing. But it's never enough. You aim higher. Fix bigger mistakes. Rewrite bigger stretches of Time. Create bigger and bigger rifts and errors in the parts of Time you neglect. It ends up... making a monster out of you and itself. That's why the world got so messed up. *That's* why we - me and my people - keep Time from being misused."
 
-"*And then you use it as... spaceship fuel.*"
+"*And... then you use it as... spaceship fuel.*"
 
 "Yes." She eyed the Snatcher carefully.
 
