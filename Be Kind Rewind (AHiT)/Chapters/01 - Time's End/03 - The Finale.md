@@ -8,7 +8,7 @@ Reshaping reality was not a known side-effect of wielding Time, after all. Then 
 
 But as she stood over Mu's unconscious body, back in the throne room, she wondered briefly where the people who had come to her aid had gone. Surely they should have popped out of... Time with her?
 
-She considered that they had been trapped in whatever pocket of Time that Mu had wrenched open, and when it collapsed, when Mu's power had exhausted, they had... ceased to be.
+She considered that they had been trapped in whatever pocket of Time that Mu had wrenched open, and when it collapsed, when Mu's power had exhausted, they had... ceased to be, become lost in the time-stream.
 
 Well, good thing she had won. And the floating ball of Time Pieces lay just beyond, waiting for her to take hold and fix this whole wretched mess.
 

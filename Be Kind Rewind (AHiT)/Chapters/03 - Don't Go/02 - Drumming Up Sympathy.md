@@ -4,7 +4,7 @@
 
 "I know, I know. Lock the door. I'll be quick, darlin'." DJ Grooves gestured to a seat by him. "I just want to check up on you, to be perfectly honest. After yesterday and... well, everything."
 
-"Well, I'm *fine*. Just shook up." Conductor's voice showed exasperation, as if Grooves was *far* from the first to ask if he was 'okay' today. There was a soft click as the lock engaged, and the Conductor eyed the penguin warily as he took his seat. "It's been a mad coupl'a months, and yet... 'tis as if it was a rotten nightmare."
+"Well, I'm *fine*. Just shook up." Conductor's voice showed exasperation, as if Grooves was *far* from the first to ask if he was 'okay' today. There was a soft click as the lock engaged, and the Conductor eyed the penguin warily as he took his seat. "It's been a mad coupl'a months, and yet... 'tis as if a rotten nightmare."
 
 "We'll take it though, right?"
 
@@ -74,7 +74,7 @@ Both birds floundered backward, crashing out of their chairs.
 
 After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near me soul!"
 
-"*Any other day, birdbrain. I wouldn't even need to get closer.*" Snatcher reclined in the chair he'd chosen. "*No, I'm just playing negotiator today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
+"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm just playing negotiator today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
 
 "What have you done to her?!" Grooves got to his feet, staring the spirit down.
 
@@ -110,7 +110,7 @@ Snatcher eyed the Conductor. "*Why don't you go ahead and read it out for him...
 
 Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contract paper and read. "We the undersigned, hereby agree to form a temporary alliance for the sole purpose of encouraging- ... ah, that..." He paused to show Conductor the alien text Snatcher had carefully written out - the approximation of the kid's name. "...hereby referred to as 'Hat Kid', to continue to live amongst us on Earth.
 
-"We acknowledge the courage of Hat Kid to stand against us when times required it, and the ability to stand *for* us when we needed it, and request her to remain with us as an equal. The alliance will form between its signatories upon signing, and this contract will be terminated on the apparent success or failure of the alliance's purpose."
+"We acknowledge the courage of Hat Kid to stand against us when circumstances required it, and the ability to stand *for* us when we needed it, and request her to remain with us as an equal. The alliance will form between its signatories upon signing, and this contract will be terminated on the apparent success or failure of the alliance's purpose."
 
 "*Thank you. Happy, old man?*" Snatcher eyed the Conductor with a grin.
 
@@ -122,7 +122,7 @@ Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contr
 
 "Eh, I'll pass." His eyes continued scanning the contract in front of him before, seemingly satisfied, he lowered it and gave a nod. "Yer showin' a different side wi' this, but I cannae find a problem with it."
 
-"*I may have complicated feelings on the brat, but let me put it this way. I believe it's fair to say we all lose something if she goes.*"
+"*I may have complicated feelings on the brat, but let me put it this way - I believe it's fair to say we all lose something if she goes.*"
 
 "I'll agree on that," DJ Grooves said with a nod.
 

@@ -18,7 +18,7 @@ Though he couldn't speak for the others, Snatcher had rounded up his minions the
 
 Then he talked to them about a kid with a hat - Hat Kid, the newbie, Kid, etc - who had made their way into the forest like any other sucker, been brought under his will through the contracts, and then... err, released in a gesture of good will! Yes, it can happen, sometimes! (*Minions in the know whispered the truth to their friends after he left.*)
 
-That the Kid returned when it seemed like the planet was done for, and stood up for Subcon - and all of Earth- against the child tyrant, defeating her and restoring time such that the changes she made were undone.
+That the Kid returned when it seemed like the planet was done for, and stood up for Subcon - and all of Earth - against the child tyrant, defeating her and restoring time such that the changes she made were undone.
 
 Snatcher then explained that the Kid would likely not visit - unless her objective called for it - because she was on the hunt for a *human*.
 

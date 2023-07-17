@@ -90,7 +90,7 @@ The face of Snatcher appeared from the ground in front of them, causing them to 
 
 "Oh sure sure, nice excuse. Boss, tell him he's a moron."
 
-Snatcher widened an eye. So he wasn't the only one who remembered... interesting. "*Actually, they're right. If it wasn't for a living kid with a hat, the planet would be dead soon and none of us would even know.*"
+Snatcher widened an eye. So he wasn't the only one who remembered... interesting. "*Actually, they're right. If it wasn't for a living kid with a hat, the planet would be consumed by lava soon and none of us would even know.*"
 
 "See! I told you!"
 

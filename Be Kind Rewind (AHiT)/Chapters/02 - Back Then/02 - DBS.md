@@ -52,8 +52,34 @@ Some of the owls and penguins, they noticed, also seemed to have just, for lack 
 
 "Wh-"
 
-"*Ah'm* not the one who needs a shrink, she is, if she's even still alive." Conductor took a deep swig of his second cup of coffee. "It's all subjective, innit? Sure, I've done awful things. Look at the recordin' for Train Rush, or the... er, 'basement incident'. Look at every single time I've rubbed those *damned* awards in your face. But we both keep many birds in employment, I run me public transport, you run yer disco, and we provide entertainment to the masses. It's not so black and white as she thinks."
+"*Ah'm* not the one who needs a shrink, she is, if she's even still alive." Conductor took a deep swig of his second cup of coffee. "It's all subjective, innit? Sure, I've done awful things. Look at the recordin' for Train Rush, or the... er, 'basement incident'. Look at every single time I've rubbed those *damned* awards in your face. But we both keep many birds in employment, I run me public transport, you run yer disco, and we provide entertainment to the masses. It's not as black and white as she thinks."
 
-Grooves frowned, but nodded. He agreed with his colleague's reasoning, but that wasn't actually what he had meant. "I understand, but I more meant the fact that we were both *dead* for some time."
+Grooves frowned, but nodded. He agreed with his colleague's, but the owl had missed his point. "I understand, but I more meant the fact that we were both *dead* for some time."
 
-"...Ah. Yes. Well." 
+"...Ah. Yes. Well." There was another pause from the Conductor as he thought. "We knew we'd come back, didn't we?"
+
+"...Well, you do you, darlin'." It seemed the Conductor would not be convinced... Not that Grooves expected him to be. "Well, I dunno about you, but death has made me real peckish. I think I'll grab a meal from the cafeteria before we resume."
+
+The moon penguin nodded his head toward his colleague. "Til next time, Connie." Then he flicked his empty cup toward the bin, and strode away toward the cafeteria line.
+
+Conductor watched him briefly, then let out a sigh. He held his half-empty cup as he moved among the tables of owls and penguins, catching snippets of conversation.
+
+"What are you talking about--"
+
+"--they told her to get lost--"
+
+"--punched each other's lights out--"
+
+"--don't you think that story's a little--"
+
+"--that Snatcher guy gives me the creeps--"
+
+*You and me both, lad*, he thought as he found an empty table and took a seat, glancing down at the coffee cup in his hands.
+
+It seemed like there were more than a few birds that had no recollection of the timeline the rest of them had just experienced.
+
+He thought of his wife and children, back at home.
+
+*Maybe they didn't remember.*
+
+Conductor hoped they didn't.

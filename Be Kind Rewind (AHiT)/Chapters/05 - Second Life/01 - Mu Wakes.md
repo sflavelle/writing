@@ -32,7 +32,7 @@ When Hat Kid didn't immediately respond, Mu glanced over at her, and saw her in 
 
 "...Well," Hat Kid began taking out a pocket watch and glancing at it. "I think it's been three full days since we fought."
 
-"You mean to tell me I've slept for *three days*?!"
+"You mean to tell me I've been out for *three days*?!"
 
 "I guess so. Don't ask me, I've only been here with you for a few hours. But uh, you know how we're back in Mafia Town?"
 
@@ -116,7 +116,7 @@ Hat Kid nodded. "But, I can maybe offer something else for you." She took a mome
 
 "Duh. How attached do you feel to this planet?"
 
-Mu stared at her, jaw dropping. In another timeline, they'd beaten each other up at the end of Time itself - and now this kid was willing to just let it go and be friends again?
+Mu stared at her, jaw dropping. In another timeline, they'd beaten each other up at the end of Time itself - and now this kid was willing to just let it go and be friends again? Even inviting her to work together?
 
 What did she do to earn this?
 
@@ -162,7 +162,7 @@ Suddenly her eyes snapped open as she realised who she might have meant. "WAIT, 
 
 "...*Can* they be sent back?"
 
-Hat Kid sighed. "I... don't know, but I don't think so. Unless we could find whatever thing they came through, but... you said it was invisible? And whoeven knows if that portal exists anymore."
+Hat Kid sighed. "I... don't know, but I don't think so. Maybe we could find whatever thing they came through, but... you said it was invisible? And whoeven knows if that portal exists anymore."
 
 Mu frowned. "So what do we do then?"
 
@@ -198,7 +198,7 @@ Mu eyed her suspiciously for a few seconds, then nodded, and opened up the box, 
 
 "I mean, you did side with the other bad guys. And we did fight."
 
-"Heh. I guess." She wondered if she would need to show Mustache Girl that life wasn't just black and white. She *got* why she had to think that way but... well, if they were going to work together, maybe it was worth tearing off a few rhetorical bandaids.
+"Heh. I guess." She wondered if she would need to show Mustache Girl that life wasn't just black and white. She *got* why she had to think that way but... well, if they were going to work together, maybe it was worth tearing off a few metaphorical bandaids.
 
 For now though, she stood. "Well, I'll let you be. Enjoy your meal. I'll come by in the morning and drop off the signal device, and maybe we can find this guy."
 

@@ -1,6 +1,6 @@
 ----
 
-Hat Kid felt the familiar jolt as the timelines settled back into place and her consciousness returned, finding herself heading up toward the command deck of her spaceship from the machinery room.
+Hat Kid felt the familiar jolt as the timelines settled back into place and her consciousness returned, movement stuttering as she found herself heading up toward the command deck of her spaceship from the machinery room.
 
 Looking about herself, it seems the timelines had realigned shortly after she'd finished filming with the directors. She'd expected time to have gone back to before she'd even landed on the planet in the first place, but, even if she knew how to work with Time Pieces, she couldn't always predict how far the Time inside them would rewind.
 
@@ -84,7 +84,7 @@ Hat Kid walked over to the captain's chair overlooking the planet, and sat down,
 
 "I know, but you should have just *done it*, you moron. You shouldn't have lured me to an arena and then done some flashy display trying to defeat me instead of, I don't know, just snapping my head off my neck."
 
-Snatcher *stared* at her. "*...I don't like how easily those words came out of your mouth.*"
+Snatcher *stared* at her. "*...I don't like how easily those words came out of your mouth. That's something* I *should be saying.*"
 
 "Tough. Look, I got pre-flight checks and things I gotta do. If you *really* feel so strongly about me going, then come say goodbye before I take off, hmm..." she checked her hat and did some mental calculations. "...tomorrow night. I got my family waiting for me."
 
