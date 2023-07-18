@@ -48,6 +48,8 @@ It was almost as if...
 
 *That was it. Time, Time Pieces* - he'd been sent back in time, to a point before those changes happened.
 
+It couldn't have been just him, right? Considering everything?
+
 *Had the kid won, then? Was it over? Were things back to normal?*
 
 And what of that void?

@@ -34,7 +34,7 @@ Conductor raised both eyebrows. "Excuse me?"
 
 "Don't tell me you don't have it comin'. 'Specially after what you pulled on our darlin'."
 
-The owl felt like he wanted to say somethin, but couldn't find the words. He decided to let it slide for now. "But ye didn't go for it, lad. What 'appened?"
+The owl felt like he wanted to say somethin, but couldn't find the words. He decided to let it slide for now. "...'spose I'm due another loss eventually. ...But ye didn't go for it, lad. What 'appened?"
 
 The penguin chuckled. "It's the darndest thing. It promised me so much, but I didn't think I could pull it off. So I used my movies to give them to someone who I thought could do it for me."
 
@@ -74,7 +74,7 @@ Both birds floundered backward, crashing out of their chairs.
 
 After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near me soul!"
 
-"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm just playing negotiator today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
+"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I come with an offer today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
 
 "What have you done to her?!" Grooves got to his feet, staring the spirit down.
 

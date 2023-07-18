@@ -4,11 +4,11 @@ Hat Kid felt the familiar jolt as the timelines settled back into place and her 
 
 Looking about herself, it seems the timelines had realigned shortly after she'd finished filming with the directors. She'd expected time to have gone back to before she'd even landed on the planet in the first place, but, even if she knew how to work with Time Pieces, she couldn't always predict how far the Time inside them would rewind.
 
-First things first. She strode into the command deck, climbing the ladder to the Time Vault. The display beside it read that it was full - 40/40 Time Pieces. Loosening the vault door, she pulled it open to check for herself, and smiled.
+First things first. She strode into the command deck, climbing the ladder to the Time Vault. The display beside it read that it was full - 56 out of... 40 Time Pieces? Was she reading that right? Loosening the vault door, she pulled it open to check for herself, and smiled.
 
 The Vault was full. Just to be sure, she counted each one, and let out a sigh of relief once she was finished.
 
-The Time Pieces were indeed all accounted for.
+The Time Pieces were indeed all accounted for, including the extras she had found on the cruise ship, and in the territory of the Nyakuza. Her superiors would be proud!
 
 She closed and tightened the vault door. She noted that she didn't feel comfortable just leaving it at that - perhaps she'd use her earnings from the film shoots to buy a good lock before she powered up the engines and *finally* resumed her journey back home.
 
@@ -34,7 +34,7 @@ Why did he remember? Had she done something wrong? She wracked her brain for ans
 
 Snatcher eyed her. "At least one of my minions knows, sounds like he was in the time... *thing* with us. I know one of them has no idea at all about it."
 
-"Hmmm... Okay, well..." Hat Kid mentally checked off who had been present. Herself and Mu, of course. Snatcher, the directors... the Mountain Goats, some remaining Mafia, the Mafia Boss, and a few Subcon Minions, Owls and Moon Penguins. Was there someone else? ... oh, that knocked out person, but they would've returned to wherever they had come from with the rewind. Could she live with them knowing what had happened?
+"Hmmm... Okay, well..." Hat Kid mentally checked off who had been present. Herself and Mu, of course. Snatcher, the directors... the Mountain Goats, some remaining Mafia, the Mafia Boss, and a few Subcon Minions, Owls and Moon Penguins. Was there someone else? Could she live with them knowing what had happened?
 
 ... She decided she was fine with it. In a strange sense, she saw them as friends now, but better they have knowledge of what can happen when messing with Time. "Well maybe you see now why Time is a dangerous thing to play with." If it disincentivises them from trying to use Time Pieces again, then so much the better.
 
@@ -54,7 +54,7 @@ Snatcher eyed her. "At least one of my minions knows, sounds like he was in the 
 
 "No! I wouldn't have ever lost the Time Pieces or come down onto the planet if the Mafia didn't try to extort me for safe passage!" She put on a deeper voice, trying to mimic the Mafia's vocal tone. "*All boats must pay toll, even in space! Blah blah blah!*"
 
-Snatcher chuckled, despite the situation. "*Can't we convince you to stay for just a bit longer? I've got another contract with your name on it!*"
+Snatcher chuckled, despite the situation. "*Yep, that sounds like the idiots we know and love. Can't we convince you to stay for just a bit longer? I've got another contract with your name on it!*"
 
 "No. I've done enough, Snatcher." She sighed. "I just want to go *home*."
 
