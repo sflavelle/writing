@@ -1,6 +1,6 @@
 ----
 
-Hat Kid felt the familiar jolt as the timelines settled back into place and her consciousness returned, movement stuttering as she found herself heading up toward the command deck of her spaceship from the machinery room.
+Hat Kid felt the familiar jolt as the timelines settled back into place and her consciousness returned, movement stuttering, nearly tripping as she found herself heading up toward the command deck of her spaceship from the machinery room.
 
 Looking about herself, it seems the timelines had realigned shortly after she'd finished filming with the directors. She'd expected time to have gone back to before she'd even landed on the planet in the first place, but, even if she knew how to work with Time Pieces, she couldn't always predict how far the Time inside them would rewind.
 
@@ -12,7 +12,7 @@ The Time Pieces were indeed all accounted for, including the extras she had foun
 
 She closed and tightened the vault door. She noted that she didn't feel comfortable just leaving it at that - perhaps she'd use her earnings from the film shoots to buy a good lock before she powered up the engines and *finally* resumed her journey back home.
 
-"*Well helloooo there, kiddo!*"
+"*Why helloooo there, kiddo!*"
 
 Hat Kid spun around to see Snatcher emerge through the carpet. Her brow furrowed. *But... I haven't met you yet...*
 
@@ -20,7 +20,7 @@ Hat Kid spun around to see Snatcher emerge through the carpet. Her brow furrowed
 
 Oh. "... And who are you?" she asked him carefully. After all, in *this* timeline, she had not visited Subcon Forest yet...
 
-Snatcher's eyes widened for just a moment, before settling into an expression of unamusement. "*No, no. Don't play dumb with me, kid. If I and some of my minions remember a world covered in lava and a brat judging everyone based on her warped sense of justice, then you certainly remember.*"
+Snatcher's eyes widened for just a moment, before settling into an expression of unamusement. "*No, no. Don't play dumb with me, kid. You just rewound everything, didn't you? Beat that brat into the ground. Tore her into pieces, I hope.*"
 
 The Kid's eyes widened. "What? But that's not right!" She looked down at her hands. "There's no way you should remember that. Chronologically I haven't even met you yet."
 

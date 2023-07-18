@@ -54,11 +54,15 @@ Some of the owls and penguins, they noticed, also seemed to have just, for lack 
 
 "*Ah'm* not the one who needs a shrink, she is, if she's even still alive." Conductor took a deep swig of his second cup of coffee. "It's all subjective, innit? Sure, I've done awful things. Look at the recordin' for Train Rush, or the... er, 'basement incident'. Look at every single time I've rubbed those *damned* awards in your face. But we both keep many birds in employment, I run me public transport, you run yer disco, and we provide entertainment to the masses. It's not as black and white as she thinks."
 
-Grooves frowned, but nodded. He agreed with his colleague's, but the owl had missed his point. "I understand, but I more meant the fact that we were both *dead* for some time."
+Grooves frowned, but nodded. He agreed with his colleague's, but the owl had missed his point. "I understand, but I more meant the fact that we were both... er, *dead* for some time."
 
-"...Ah. Yes. Well." There was another pause from the Conductor as he thought. "We knew we'd come back, didn't we?"
+"...Ah. Well." There was another pause from the Conductor as he thought. "Well, we knew we'd come back, didn't we?"
 
-"...Well, you do you, darlin'." It seemed the Conductor would not be convinced... Not that Grooves expected him to be. "Well, I dunno about you, but death has made me real peckish. I think I'll grab a meal from the cafeteria before we resume."
+"Yes, but--"
+
+"Look, peckneck. I know ye mean well." He looked away. "Just... jus' let me process it all on me own time."
+
+"...Alright, you do you, darlin'." It seemed the Conductor would not be convinced... Not that Grooves expected him to be. "Well, I dunno about you, but death has made me real peckish. I think I'll grab a meal from the cafeteria before we resume."
 
 The moon penguin nodded his head toward his colleague. "Til next time, Connie." Then he flicked his empty cup toward the bin, and strode away toward the cafeteria line.
 
@@ -74,12 +78,18 @@ Conductor watched him briefly, then let out a sigh. He held his half-empty cup a
 
 "--that Snatcher guy gives me the creeps--"
 
-*You and me both, lad*, he thought as he found an empty table and took a seat, glancing down at the coffee cup in his hands.
+*You and me both*, he thought as he found an empty table and took a seat, glancing down at the coffee cup in his hands.
 
-It seemed like there were more than a few birds that had no recollection of the timeline the rest of them had just experienced.
+It seemed to him that there were more than a few birds that had no recollection of the timeline the rest of them had just experienced. *Probably some weird time nonsense from the lass,* he thought.
 
 He thought of his wife and children, back at home.
 
 *Maybe they didn't remember.*
 
-Conductor hoped they didn't.
+Conductor hoped they didn't. It was a damn awful thing to live through, let alone remember. The days and weeks of worry. The grief when he lost them in the planet's sudden extreme seismic movements. The sense of standing at the entrance to Hell when he, and the planet's survivors, were suddenly transported to the red hooded peckneck's castle.
+
+He gave his life once already to see peace return to his world. Would he give it again to see his family safe and happy?
+
+Thinking of his wife's loving expression and the little tykes, his answer was clear.
+
+The Conductor allowed himself a few more moments of looking back, before letting his mind wander to the movie being shot, thinking over what would still need to be done.
