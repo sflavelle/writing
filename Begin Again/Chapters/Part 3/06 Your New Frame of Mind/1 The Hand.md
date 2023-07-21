@@ -110,6 +110,8 @@ The same sickly green as...
 
 *The hole, Octavio saw, led to some sort of concrete tunnel. It was not very deep, but instead seemed to lead off to the sides into the darkness. What kind of structure was this?*
 
+"Octavio? Can you hear me...?"
+
 *Then he saw the body.*
 
 *He made his way forward, toward the entry point. Climbing the rubble on his tentacles.*
@@ -119,3 +121,103 @@ The same sickly green as...
 *And these Octolings had fared much worse.*
 
 *Lifeless, discolored eyes stared up at him from pale, green skin.*
+
+*Suddenly one was reaching out at him--*
+
+"GAH!" Octavio flinched and recoiled, shocked out of his trance as Lily's arm reached out and brushed against him. Her right arm, with the stained hand, was covering her chest.
+
+"I'm sorry!" Lily whimpered. "You weren't responsive, I thought something had... had happened."
+
+The octopus's eyes were still whipping back and forth as he tried to get his breath under control. It... it had been a *long* time since he'd had that nightmare.
+
+For the first time in a *very, very* long time... he felt fear.
+
+Whatever had wiped out Opal Springs all those years ago...
+
+It was still alive.
+
+It had gotten to the human.
+
+And yet...
+
+Slowly, his eyes refocused on Lily, and again drifted down to her hand. She seemed to notice, and turned such that it was out of his view. "S-sorry," she said. "I know it's hideous. There's a reason I wear that glove all the time."
+
+"...You're alive." Octavio's eyes flicked up to her face.
+
+"Uh... what?"
+
+"...Lily, I apologise. Just, I..." He paused, unable to come up with the words. "...How... did you get that scar?"
+
+Lily looked away, and took a moment to respond. "...I... don't actually know the full details."
+
+"What? How's that?"
+
+"...Well, a bit of my memory is just... gone. What I do know is, it happened when I went out to Triggerfish Forest last year, y'know, all that business around Commander Tartar?"
+
+Octavio's eyes snapped up. *Commander Tartar*...
+
+He was, according to the New Squidbeak Splatoon on the surface, an AI created by humanity before their demise. He had at one point threatened the lives of those on the surface, and they seemed convinced that whatever world-ending weapon he had would affect those in his underground society...
+
+"You said you had met him, right?" Octavio asked quietly.
+
+Lily nodded.
+
+"Did he give that to you?"
+
+Lily thought, then raised her hands in an 'I don't know' gesture. "My friends say he did... That's all I know."
+
+*That's all she knows...*
+
+*So whatever this Tartar did to her must have scrambled her memory of that event.*
+
+"...Lily, do you know anything about a settlement called Opal Springs?" DJ Octavio had stopped shivering, but still looked fearful. 
+
+"Um... Enlighten me."
+
+"Okay. We should... take this back to the bedroom. This seems like the wrong place to discuss such matters."
+
+Lily noted as they exited the bathroom that her clothes had reappeared, neatly folded in a chair near the doorway. "Ah, laundry service has been," Octavio commented. "Go ahead, my dear."
+
+As she began to dress, DJ Octavio began to talk, watching her but gradually seeming to zone out, her eyes looking past her into space. "Opal Springs was one of our oldest settlements after the war, on the outer edges of our civilization. So named for the plentiful opal veins and fresh mineral water pockets that it was famous for. The Octarians used that opal as jewellery, in their houses, in weapons. It... was a small settlement, but a fairly opulent one, forgive the pun."
+
+"Well, the settlement lasted for about twenty years. Twenty two, I believe. And then..."
+
+Octavio took a breath. "One day, a 'Kook arrives at the palace. We didn't have our transport network then, so this messenger navigated from the outer reaches of Octopia to reach us. And he says the settlement is under attack. We organise a small detachment from a nearby pocket to engage the attackers, thinking it's just some stupid inklings trying to start trouble. And then a few Octocommanders, Octolings, and I march from the capitol in defense of our land."
+
+Lily pulled her hoodie on, now fully clothed, and lowered herself to the floor, sitting cross-legged before Tavi as he told his tale.
+
+"When we arrive... the battle is already over. The attackers are gone. But every single living resident of Opal Springs, plus the detachment we sent, are slain."
+
+"Oh, fuck," Lily mouthed. "Octavio, I'm so sorry. That sounds horrifying."
+
+Octavio nodded. "There's a hole in the back of the settlement where the attackers made their entry. A Commander sends a recon team in straight away while we investigate the bodies."
+
+He took a deep breath. "Lily, no matter how each individual was murdered, each of them had the same green mark around their wound. ...I still clearly remember it. It's the same kind of mark as the one on your hand."
+
+Lily's eyes widened. Octavio watched her as she glanced down at her right hand, her brows furrowing. When she looked back up at him, there was a question in her eyes.
+
+The same question Octavio himself had, he felt. *Was Commander Tartar, who had laid his mark on Lily just last year, the same being behind the attack on Opal Springs seventy-nine years ago?*
+
+There was a tap on the door. Octavio sighed. "Enter," he called in Octarian.
+
+The door edged open, and one of his Octarian Palais guards poked its head in. "Good morning, sire. People are beginning to gather at the palace steps. I believe word has spread of your return, and the public are hoping to hear from you."
+
+"I plan on it. We'll be out shortly."
+
+"'We'?" The guard shot a glare at the inkling, who glanced between them, unable to understand the language.
+
+"This is the human from the past, of course I'll introduce her," Octavio replied. "The public should be aware of her, if we don't any unforeseen accidents to befall her."
+
+"...Very well, sire. I take me leave." The Octarian nodded toward the King, and he bowed out of the room.
+
+Octavio sighed. "...Sorry about that, Lily," he said, switching back to her language. "Seems people are already aware we're here. I think we should go greet them."
+
+"'We'?" Lily cocked her head to the side. "Are you sure that's wise?"
+
+"Well, I wasn't exactly planning on having you stay in the Palais for all time." The octopus chuckled. Then his expression shifted back to the slightly vacant one he had had while talking about Opal Springs. "But I hope you understand... this revelation... even if Tartar is deceased, I can't help but wonder just what he's been up to for all of these years. I will... get my people to look into things. Perhaps we can learn more about what this affliction actually is."
+
+Lily nodded, then suddenly her expression dropped. "...I'm not going to die from this, do you think?"
+
+Octavio frowned and thought... then shook his head. "If this caused death, dear, it would have taken you much earlier. I think you'll be fine."
+
+With that, he lifted himself onto his tentacles. "Now then, let's go meet our people."
