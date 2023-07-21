@@ -12,7 +12,7 @@ While they waited, Alex tapped away at their phone, looking through the day's ph
 
 Alex looked up, surprised, not expecting a female voice. They had to look around for the source, and their eyes eventually landed on an orange cat in a chef's outfit.
 
-*Wait, that's Cooking Cat*, you realised. You tried to keep your face from reacting, but your eyes did widen in recognition. "Ah, no, not yet."
+*Wait, that's Cooking Cat*, they realised. They tried to keep your face from reacting, but Alex's eyes did widen in recognition. "Ah, no, not yet."
 
 "Probably for the better, then. The funeral is not worth eating the Mafia's cooking." She shook her head. "Mind if I take a seat?"
 
