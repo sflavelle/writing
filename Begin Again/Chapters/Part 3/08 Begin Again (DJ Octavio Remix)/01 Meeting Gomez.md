@@ -12,7 +12,7 @@ The inkling stepped out of the front doors of the palace, squeezing past several
 
 Lily spun around, trying to find the source of the voice. "Yes? Hello?" She asked no one in particular as she tried to find who it might have been. Several Octarians nearby gave her weird looks as they passed.
 
-It had been a Tentakook - seemingly a messenger, judging by its bag and hat. He raced up to Lily excitedly, and she could see that he was about chest-tall to her. "Greetings! I'm told you're headed out to the Opal Springs outpost?"
+It had been a Tentakook - seemingly a messenger, judging by its bag and hat. He raced up the stairs to Lily excitedly, and she could see that he was about chest-tall to her. "Greetings! I'm told you're headed out to the Opal Springs outpost?"
 
 She nodded. "That's right. How do you know?"
 
