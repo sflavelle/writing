@@ -8,7 +8,7 @@ And, glancing up at the Deca Tower, she saw the Great Zapfish, curled up around 
 
 Her lips curled into a smile. *Good.*
 
-Though she noted a single lit window above the Ammo Knights storefront. The shop itself was unlit. She wondered if Sheldon, the shop owner, had simply forgotten to turn off the light.
+But she noted a single lit window above the Ammo Knights storefront. The shop itself was unlit. She wondered if Sheldon, the shop owner, had simply forgotten to turn off the light.
 
 In any case, she was satisfied. She walked back to the grate and, facing the Square, stomped her right foot on it three times, the muffled sound of rubber sole on dense metal making a quiet ring.
 
@@ -100,7 +100,7 @@ Then, taking the weapon-like device Renki handed to her, she smacked the butt of
 
 As Kae and Mori stuck the bag on him, Lux looked up toward Lily. "Not bad, if a bit dramatic."
 
-Lily paused, looking at Sheldon for just a moment longer, then she finally released the breath she had been holding, and cocked her head to one side as she looked toward the squad leader. "I admit I have a flair for playing up the evil and dramatic." She stood and, turning away from the squad and from Sheldon's body, taking a proper hold of the device. "But that's not what we came here to do."
+Lily paused, looking at Sheldon for just a moment longer, then she finally released the breath she had been holding, and cocked her head to one side as she looked toward the squad leader. "I admit I have a flair for playing up the dramatic." She stood and, turning away from the squad and from Sheldon's body, taking a proper hold of the device. "No idea where it came from. But that's not what we came here to do."
 
 "No, it's not. Are you ready, Lily?" Lux asked as she joined her at the foot of the Tower once again.
 

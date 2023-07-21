@@ -78,7 +78,7 @@ The shower passed without further incident, but it was as Lily brushed her teeth
 
 The DJ's wide gaze was fixed on said hand.
 
-Lily's right hand sported a sickly green mark, like a burn, etched into the skin of her hand.
+Lily's right hand sported a sickly green mark, like a burn, covering most of the skin of her hand.
 
 The same sickly green as...
 
@@ -90,7 +90,7 @@ The same sickly green as...
 
 *Some had had holes seemingly drilled into their temples. Some through tentacles, others missing a whole portion of their stomach.*
 
-*But in whichever gruesome these citizens and soldiers were murdered, they all bore the same green splotch around the wound. A mix of cyan and yellow... ink?*
+*But in whichever gruesome these citizens and soldiers were murdered, they all bore the same sickly green splotch around the wound. A mix of cyan and yellow... ink?*
 
 *The sight was sickening. How could this have happened to Opal Springs?*
 
@@ -99,6 +99,8 @@ The same sickly green as...
 *"Nobody, General. We've searched the entire settlement and... it seems Opal Springs has been wiped out."*
 
 *"But how...? Who...?"*
+
+"Tavi...?"
 
 *"We've no leads yet on the aggressor. But we did find something..."*
 
