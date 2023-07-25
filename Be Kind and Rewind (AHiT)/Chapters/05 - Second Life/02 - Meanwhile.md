@@ -25,3 +25,9 @@ Snatcher then explained that the Kid would likely not visit - unless her objecti
 He told his minions that this human would be about the same general shape as Hat Kid, only grown up - and finally asked that anyone who saw the human or had information on them was to come to him directly.
 
 And sure enough, that evening, one of the minions sought him out, claiming to have been in the throne room of the tyrant's castle when they appeared.
+
+"They were in this panel type of thing, and she was really upset that they were watching her. They were holding this... thing in their hands, pressing buttons on it."
+
+"*Any idea what they were doing with it?*"
+
+"None. 

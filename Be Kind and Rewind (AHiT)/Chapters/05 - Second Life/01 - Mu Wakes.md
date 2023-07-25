@@ -158,11 +158,11 @@ Suddenly her eyes snapped open as she realised who she might have meant. "WAIT, 
 
 "No, me neither. Besides, I pulled them out of whatever thing made them invisible, and they seemed to be just... some guy." Mu glanced over at Hat Kid. "So you... rewinding time didn't send them home then?"
 
-"It seems that way, yeah."
+"I don't know for sure, but everyone seems to be thinking that way, yeah."
 
 "...*Can* they be sent back?"
 
-Hat Kid sighed. "I... don't know, but I don't think so. Maybe we could find whatever thing they came through, but... you said it was invisible? And whoeven knows if that portal exists anymore."
+Hat Kid sighed. "I... don't think so. Maybe we could find whatever thing they came through, but... you said it was invisible? And whoeven knows if that portal exists anymore."
 
 Mu frowned. "So what do we do then?"
 
@@ -198,8 +198,22 @@ Mu eyed her suspiciously for a few seconds, then nodded, and opened up the box, 
 
 "I mean, you did side with the other bad guys. And we did fight."
 
-"Heh. I guess." She wondered if she would need to show Mustache Girl that life wasn't just black and white. She *got* why she had to think that way but... well, if they were going to work together, maybe it was worth tearing off a few metaphorical bandaids.
+"Heh. I guess." She wondered if she would need to show Mustache Girl that life wasn't just black and white. She *got* why she had to think that way in the past but... well, if they were going to work together, maybe it was worth tearing off a few metaphorical bandaids.
 
 For now though, she stood. "Well, I'll let you be. Enjoy your meal. I'll come by in the morning and drop off the signal device, and maybe we can find this guy."
 
-Mu nodded. "Sounds like a plan, kid."
+Mu nodded and shot her a thumbs up. "Sounds like a plan, kid."
+
+"I'll see you around." Hat Kid stepped out into the open air, and shivered lightly as she glanced up at the sky.
+
+"Hey, kid?"
+
+She turned to look at Mu.
+
+"...Thank you."
+
+She smiled. "No worries."
+
+Then Hat Kid seemed to press something on her hat, and after a moment, a bright spear of light engulfed her, causing Mu to flinch and cover her eyes.
+
+When Mu looked back, Hat Kid was gone.

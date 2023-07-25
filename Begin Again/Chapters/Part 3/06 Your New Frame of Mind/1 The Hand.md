@@ -208,7 +208,7 @@ The door edged open, and one of his Octarian Palais guards poked its head in. "G
 
 "This is the human from the past, of course I'll introduce her," Octavio replied. "The public should be aware of her, if we don't any unforeseen accidents to befall her."
 
-"...Very well, sire. I take me leave." The Octarian nodded toward the King, and he bowed out of the room.
+"...Very well, sire. I take my leave." The Octarian nodded toward the King, and he bowed out of the room.
 
 Octavio sighed. "...Sorry about that, Lily," he said, switching back to her language. "Seems people are already aware we're here. I think we should go greet them."
 

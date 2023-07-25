@@ -26,7 +26,7 @@ Alex nodded, and extended their hand to shake Cookie's. "I'm Alex, happy to meet
 
 ...
 
-"Listen, Alex, dear." Cooking Cat leaned in. "I'm not entirely sure what's going on, but you ought to know that you've picked up the attention of some... fairly powerful people on this planet. I would be *very* careful over the next few days, lest you end up on the wrong side of a contract or blade."
+"Listen, Alex, dear." Cooking Cat leaned in. "I'm not entirely sure what's going on, but I think you should know that you've picked up the attention of some... fairly powerful people on this planet. I would be *very* careful over the next few days, lest you end up on the wrong side of a contract or blade."
 
 Alex blinked. Powerful people? Contracts? Blades? What did Snatcher or the Conductor want with them? "Uh... what did I allegedly do?"
 
