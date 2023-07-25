@@ -24,6 +24,8 @@ There it was again. And with it came a feeling she hadn't felt for a while, but 
 
 Something was watching her.
 
+But Hat Kid wasn't here.
+
 She once thought this particular 'something' she had gained a sense for was attributable to that brat Hat Kid - it was something she quickly recognised as a second presence whenever she was around. She thought it was just a weird alien thing.
 
 But then she had felt it when she had broken into the alien's ship - even though Hat Kid was nowhere to be seen, this feeling was stronger than ever, as if she had caught the attention of something...
@@ -54,7 +56,7 @@ Then feinted left and dove for the panel, grabbing it in both hands. "Aha! Gotch
 
 The panel burst into colour as she touched it, and she found herself looking at a person in an unfamiliar room, captured on screen as if on one of those sci-fi communications devices on tv. "Who *are* you, you stalker?! Who are you to come in here and spy on ME?"
 
-In response, the person on the other side of the screen tried once again to press buttons on their controller in an attempt to skip the cutscene.
+In response, the person on the other side of the screen tried once again to press buttons on their controller in an attempt to skip the 'cutscene'.
 
 "Oi! I'm talking to *you* in there, *nerd!*" She tapped at the screen toward the person as she said this, only for her pointed finger to hit nothing. Indeed, it seemed almost to pass through.
 
@@ -66,9 +68,9 @@ This gave Mu an idea.
 
 "Yeah, I got a game, it's called *Judge-*" She thrust her hand into the screen, reaching in to grab the person's clothes.
 
-"Jury-" she pulled as hard as she could, hearing things knock over as the person's head appeared through the screen.
+"*Jury-*" she pulled as hard as she could, hearing things knock over as the person's head appeared through the screen.
 
-"And Executioner!" With a particularly strong tug their body was pulled completely through, and the person fell with a thump onto the floor of the throne room. The minion jumped back as this third person seemed to appear out of thin air. Mu noticed this person was about a third taller than her.
+"And *Executioner*!" With a particularly strong tug their body was pulled completely through, and the person fell with a thump onto the floor of the throne room. The minion jumped back as this third person seemed to appear out of thin air. Mu noticed this person was about a third taller than her.
 
 Everyone in the room was quiet for a few moments.
 
