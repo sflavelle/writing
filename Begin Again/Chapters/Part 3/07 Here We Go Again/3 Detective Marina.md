@@ -1,6 +1,6 @@
 ***
 
-As he scrawled a quick "closed for business" letter inside Ammo Knights, Pearl and Marina leaned over the counter as Sheldon started from the beginning, recounting his memory of yesterday night. "So I stayed back after closing for a while. Thing is, Lorne's understandably worried over Lily going missing. I had a phonecall with her to try to comfort her."
+As he scrawled a quick 'closed for business' letter inside Ammo Knights, Pearl and Marina leaned over the counter as Sheldon started from the beginning, recounting his memory of yesterday night. "So I stayed back after closing for a while. Thing is, Lorne's understandably worried over Lily going missing. I had a phonecall with her to try to comfort her."
 
 "How's she holding up?" Marina asked, taking a notepad Pearl had handed to her and jotting notes.
 
@@ -28,7 +28,7 @@ As he scrawled a quick "closed for business" letter inside Ammo Knights, Pearl a
 > 
 > \- Sheldon
 
-"As I was saying," continued the horseshoe crab, taking his seat back at the counter. "I was leaving late that night, and-- oh, cod, right. Um..."
+"As I was saying," continued the horseshoe crab, taking his seat back at the counter and taking occasional sips at the drink he had been furnished with. "I was leaving late that night, and-- oh, cod, right. Um..."
 
 "What is it?" Pearl and Marina glanced at each other, then back at him with concern.
 
@@ -72,7 +72,7 @@ Pearl furrowed her brows at Marina for a moment, then lowered her head to work t
 
 "Did... *Lily* steal the Great Zapfish?"
 
-Marina stopped pacing for a moment, and simply stared at her. Then she started to think about it, and the increasing expression of concern did not ease Pearl's or Sheldon's worries. Finally she said, "I... can't answer that. And that scares me."
+Marina stopped pacing for a moment, and simply stared at her. Then she started to think about it, and the increasing expression of concern did not ease Pearl's or Sheldon's worries. Finally she said, "...if she did, it wouldn't have been of her free will."
 
 "Well, let's assume for a sec. She, or at least this group of Octolings she was with, took it. Why might they do that?"
 
@@ -90,11 +90,11 @@ Marina stopped pacing for a moment, and simply stared at her. Then she started t
 
 "Well, they all used to at one point," he recalled. "But Lily still does, every Friday night."
 
-"Okay, so I guess it can't be him, but what if..."
+"Okay, so I guess it can't be him, but what if he organised someone to..."
 
 Marina trailed off.
 
-As the realisation dawned on her, her eyes darted to Sheldon, whose hands clasped over his mouth.
+As the realisation of what Sheldon's words meant dawned on her, her eyes darted to Sheldon, whose hands clasped over his mouth.
 
 Pearl's head kept turning to see both of their expressions, before gasping, realising what conclusion they were drawing.
 

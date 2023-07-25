@@ -46,7 +46,7 @@ Sheldon himself looked like he'd had a rough night. His left cheek was bruised, 
 
 "What the hell *happened*, Sheldon?" the octoling asked with worry as she knelt down with Pearl beside him, offering a large cup of Ink Recovery Up.
 
-"I... don't remember," Sheldon said simply before taking the cup and taking large gulps. The ability was of course useless on him, but the flavor and hydration was refreshing. "Only that I seemingly got beaten up when closing the shop last night..."
+"I... don't remember yet," Sheldon said simply before taking the cup and taking large gulps. The ability was of course useless on him, but the flavor and hydration was refreshing, revitalising. "Only that I seemingly got beaten up when closing the shop last night..."
 
 "You woke up today bound up in a garbage bag and a bruised face, Sheldon," Pearl pointed out. "I'd say that's why."
 
