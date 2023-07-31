@@ -30,4 +30,19 @@ And sure enough, that evening, one of the minions sought him out, claiming to ha
 
 "*Any idea what they were doing with it?*"
 
-"None. 
+"None. It got left behind when they got pulled through, so I didn't get to see it after that."
+
+"*Uh huh. It doesn't sound like they were working together.*"
+
+"Yeah, I really don't think so, boss." The minion reached up to scratch the back of his hood. "In fact, I don't know if they're worth looking for, the impression I got is that they knew her, even if she didn't know them. I... think they might know more about things than they're letting on. The girl made some comment to me that this was all a game to them, and their reply was 'you have no idea' all smug-like."
+
+"*What's all that supposed to mean?*"
+
+The minion shrugged. "So *maybe* they know something? But really they're just nobody. I wouldn't worry about them, boss."
+
+"*Good. That's good.*" Even so, Snatcher's claws rested just below his face, thinking. "*Perhaps we can put them to use, then.*"
+
+"Boss?"
+
+"*Well let's be honest with ourselves here, that hat brat won't fall for our traps a second time. Perhaps if we find the other dipshit girl we can put her into service. But the kid's leaving, and we have this stranger as a replacement. I think either way, we have a new towel boy. We just need to lure them to the forest.*"
+

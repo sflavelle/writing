@@ -96,7 +96,7 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "*I don't believe I'm known to offer anything,* period."
 
-"Exactly. What, had a change o' heart?" Conductor smirked.
+"Exactly. What, had a change of 'eart?" Conductor smirked.
 
 "*Funny you should ask! No.*" 
 
@@ -146,7 +146,9 @@ Conductor simply nodded in reply. "Alright, I'll join this darn alliance."
 
 Regardless, he took the contract from Conductor, and added his own signature. "Well, I hope it doesn't come to that."
 
-"*Who can say?*" The contract poofed away, and appeared again in the Snatcher's clawed hand. "*Don't you worry your pretty little heads about getting up there, I'll collect you when it's time.*" He stretched, and rose from the chair. "*Well! It's been wonderful doing business. If I can get the Mafia head's signature,* then *we'll be cooking. Ta ta for now!*"
+"*Who can say?*" The contract poofed away, and appeared again in the Snatcher's clawed hand. "*Don't you worry your pretty little heads about getting up there, I'll collect you when it's time.*"
+
+He stretched, and rose from the chair. "*Well! It's been wonderful doing business. If I can get the Mafia head's signature,* then *we'll be cooking. Ta ta for now!*"
 
 And with that, the Snatcher dove into the floor and disappeared, leaving a confused and nervous Conductor and DJ Grooves staring after him.
 
