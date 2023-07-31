@@ -1,3 +1,5 @@
+----
+
 The Square was empty as Lily climbed up through the grate.
 
 Its lights and billboards still shone brightly, but as Lily adjusted her glasses, it seemed that nobody at all was around.
@@ -24,7 +26,7 @@ Lily simply nodded. "I must. Anything to help the Octarians."
 
 Lux smirked. She seemed impressed with the effect of these special glasses on her. Like Callie, the hypnoshades didn't seem to drastically alter Lily's personality - it simply tweaked her allegiances. And though the King had apparently built in a way to enforce his will upon her, as she had seen back home, it hadn't had much adverse effect upon her.
 
-Though, in this bright light, she noted an odd bump forming in the ends of her tentacles...
+Though, in this bright light, she noted an odd bump forming on the ends of her tentacles...
 
 "This place is amazing!" Renki said softly, staring up at the scenery around them.
 
@@ -96,7 +98,7 @@ It finally sunk in for the crab as the Octolings loomed over him, Lily approachi
 
 She knelt down in front of Sheldon, whose eyes went wide. "Let this be a warning for the lot of you: *your time is over*."
 
-Then, taking the weapon-like device Renki handed to her, she smacked the butt of the device firmly into Sheldon's head, which knocked him out. His body slumped to the ground.
+Then, taking the weapon-like device Mori handed to her, she smacked the butt of the device firmly into Sheldon's head, which knocked him out. His body slumped to the ground.
 
 As Kae and Mori stuck the bag on him, Lux looked up toward Lily. "Not bad, if a bit dramatic."
 
