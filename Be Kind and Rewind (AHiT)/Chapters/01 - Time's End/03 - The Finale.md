@@ -4,9 +4,7 @@ The battle at the end of Time had been long and hard-fought.
 
 Hat Kid had known Time to change people, sure. But whatever it had done to Mustache Girl was on another level entirely. It was as if the power that the people of this planet *thought* the Time Pieces would give them, had manifested in Mu. 
 
-Reshaping reality was not a known side-effect of wielding Time, after all.
-
-Then again, people didn't normally wield *this much* Time.
+Reshaping reality was not a known side-effect of wielding Time, after all. Then again, people didn't normally wield *this much* Time.
 
 But as she stood over Mu's unconscious body, back in the throne room, she wondered briefly where the people who had come to her aid had gone. Surely they should have popped out of... Time with her?
 
