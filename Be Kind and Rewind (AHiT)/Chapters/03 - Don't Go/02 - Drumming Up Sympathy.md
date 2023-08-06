@@ -102,7 +102,7 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "Really?" Grooves smirked, having just read the main paragraph of the text. "'Cuz a little birdie told us you two are now BFFs."
 
-"*Oh, she told you that, did she?*" Snatcher growled in a low voice, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because of that stupid BFF contract.*"
+"*Oh, she told you that, did she?*" Snatcher growled in a low voice, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because I tried to let her get out of our agreement.*"
 
 "How *lovely*," Grooves snarked. "Because what you've written here sounds positively glowing in comparison."
 
