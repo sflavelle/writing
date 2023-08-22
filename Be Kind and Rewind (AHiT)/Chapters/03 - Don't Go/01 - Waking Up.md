@@ -12,22 +12,31 @@ They felt the breeze again, and shivered. In a groggy voice, they called to thei
 
 Alex shot up, their eyes slamming open.
 
-And was immediately face to face with one of the Mafia Goons. "Mafia is Mafia," he continued, amused at her reaction. "Young lady look like she saw ghost."
+And was immediately face to face with one of the Mafia Goons. "Mafia is Mafia," he continued, amused at their reaction. "Young lady look like she saw ghost."
 
-She looked around. She had been laying in a corner of the sidewalk that seemed to be used for disposing of garbage. She quickly got to her feet as she realised her 'bed' had been bags of garbage beneath her, eliciting a chuckle from the goon who had found her.
+Alex looked around. They had been laying in a corner of the sidewalk that seemed to be used for disposing of garbage. They quickly got to their feet as she realised their 'bed' had been bags of garbage beneath them, eliciting a chuckle from the goon who had found them.
 
-A tarp that had been draped over the area had a hole torn it above where she had lain. Had she made that?
+A tarpaulin sheet that had been draped over the area had a hole torn it above where they had lain. Had they made that?
 
 *Oh.*
 
-Now she remembered this area. As if she needed confirmation.
+Now Alex remembered this area. As if they needed confirmation.
 
 This was Mafia Town.
 
 *...last night's 'dream' was not a dream.*
 
-But even so, how had she ended up here?
+But even so, how had they ended up here?
 
 "How did young lady get here? Tourism board currently closed."
 
-Alex cleared her throat, turning to him. "...That is a *very* good question." 
+Alex cleared their throat, turning to him. "...That is a *very* good question." They stepped out from beneath the tarp into the sunlight, covering their eyes as they looked around. They noticed the expression of confusion on the Mafia goon's face, and added, "I don't know how I got *here*, really."
+
+"Little lady is strange."
+
+"I'm sure I am." They nodded. Then, slightly overwhelmed by the realizations, they walked down the path away from the Mafia goon, gazing around at the world they'd only previously seen through a screen.
+
+Why were they here?
+
+There was... whatever happened before with Mustache Girl, but how had she gone from that to... this?
+
