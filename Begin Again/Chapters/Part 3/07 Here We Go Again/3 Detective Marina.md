@@ -72,7 +72,13 @@ Pearl furrowed her brows at Marina for a moment, then lowered her head to work t
 
 "Did... *Lily* steal the Great Zapfish?"
 
-Marina stopped pacing for a moment, and simply stared at her. Then she started to think about it, and the increasing expression of concern did not ease Pearl's or Sheldon's worries. Finally she said, "I... can't answer that. And that scares me."
+Marina stopped pacing for a moment, and simply stared at her. Then she started to think about it, and the increasing expression of concern did not ease Pearl's or Sheldon's worries. Finally she said, "I... can't answer that. Sheldon, I don't suppose your cameras record to standard micro-storage?"
+
+"Hmm, no sorry. They *do* record to a main storage drive, but if you have an adapter you could... probably get last night's data on that laptop of yours."
+
+"Oh, yeah, good idea! We should probably check Friday night too, just in case... let's see..."
+
+Half-talking to herself, she began to recount. "Okay, Friday night, Lily does her set and then vanishes. Nobody sees her until Saturday night," she nods at Sheldon, "and by then she's under their control. Wherever she went, the Octarians were right on her."
 
 "Well, let's assume for a sec. She, or at least this group of Octolings she was with, took it. Why might they do that?"
 
@@ -102,4 +108,4 @@ Pearl's head kept turning to see both of their expressions, before gasping, real
 
 "Uhh, T-Tentakeel Hideout."
 
-Immediately Pearl was pulled along as Marina briskly walked out the door. "Right. We're going to check."
+Immediately Marina briskly made her way out the door. "Right. I'll be back. I'm going to check. And hope."
