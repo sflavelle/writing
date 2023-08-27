@@ -28,7 +28,7 @@ She nodded. "That's right. How do you know?"
 
 'Wh--- Ha! Okay!" Grinning, Lily took off after him at a sprint - and shortly after, she tripped in the outfit's high-heeled shoes and crashed down on the ground, having underestimated the effect they would have on her movement. The crash also briefly knocked her glasses off, and she was left dazed for a few moments, her mind a fog.
 
-One of the civilian Octarians passing by deftly slipped the hypnoshades back onto her, as if this sort of thing had happened before, and called to Gomez. "Hey, bud! Keep a better watch on your pet!"
+One of the civilian Octarians passing by deftly slipped the hypnoshades back onto her, as if this sort of thing had happened many times before, and called to Gomez. "Hey, bud! Keep a better watch on your pet!"
 
 "Huh?" The Tentakook turned around, confused, and saw Lily dazed and knocked on her front. "Oh, dear! Thanks!" Gomez easily ran back to her. "You alright there, ma'am? Sorry about that..."
 

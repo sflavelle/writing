@@ -34,7 +34,7 @@ Lily bit her lip. "Ah, um... something like that. Uh, but what're you guys doing
 
 Lily bit her lip. "I don't know, yet. That's why I look like one of those 'smelly agents', in your words. I'm investigating something." She briefly explained why she had been sent down to the Metro.
 
-"Ohhh! Well that might be why we've not seen any of those evil Octarians lately."
+"Ohhh! Well that might be why we've not seen any of those zombie Octarians lately."
 
 "They've been down here too?!"
 
