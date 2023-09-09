@@ -1,18 +1,28 @@
 ----
 
+The End of the Line.
+
+Most discussions and arguments made their way here eventually. 
+
+A cafe and parlour situated in the previously unused basements of the studio, the owls that ran this establishment for the staff of Dead Bird Studio took pride in having created a gathering place for all. It was almost considered a second home for some, a cosy atmosphere away from the monotony above. 
+
+Disregarding the events of a previous timeline, of course. 
+
+And here, tucked away in the corner of the parlour was DJ Grooves, awaiting his coffee break guest. 
+
 "What is it this time, Grooves?" The Conductor growled as he entered the boardroom. "I'm *so close* to bein' done with our movie!"
 
 "I know, I know. Lock the door. I'll be quick, darlin'." DJ Grooves gestured to a seat by him. "I just want to check up on you, to be perfectly honest. After yesterday and... well, everything."
 
 "Well, I'm *fine*. Just shook up." Conductor's voice showed exasperation, as if Grooves was *far* from the first to ask if he was 'okay' today. There was a soft click as the lock engaged, and the Conductor eyed the penguin warily as he took his seat. "It's been a mad coupl'a months, and yet... 'tis as if a rotten nightmare."
 
-"We'll take it though, right?"
+"We'll take it, right?"
 
 "Oh fer sure."
 
 "But that's... not all I'm asking about."
 
-Grooves lifted his glasses away from his face, setting them down on the table. "I mean... It was about this time, the last go around that you became... different, to forgo a more appropriate term. How did the next few weeks go? Becoming more self-centered, feeding into some of your worse characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
+Grooves lifted his glasses away from his face, setting them down on the table. "I mean... It was about this time, the last go around that you became... different, to forgo a more appropriate term. How did the next few weeks go? Becoming more self-centered, feeding into some of your worst characteristics, right up to and after the Bird Movie Awards presentation... leading up to you *pulling a knife* on your star, and almost... eurgh... splattering her all over the walls of the basement."
 
 "Don't remind me," Conductor spat, his features contorted in disgust. "Never thought I coulda sunk so low."
 
@@ -34,13 +44,13 @@ Conductor raised both eyebrows. "Excuse me?"
 
 "Don't tell me you don't have it comin'. 'Specially after what you pulled on our darlin'."
 
-The owl felt like he wanted to say somethin, but couldn't find the words. He decided to let it slide for now. "...'spose I'm due another loss eventually. ...But ye didn't go for it, lad. What 'appened?"
+The owl felt like he wanted to say something, but he couldn't find the words. He decided to let it slide for now. "...'spose, I'm due another loss eventually. ... But ye didn't go for it, lad. What 'appened?"
 
 The penguin chuckled. "It's the darndest thing. It promised me so much, but I didn't think I could pull it off. So I used my movies to give them to someone who I thought could do it for me."
 
 "The lass..."
 
-"Indeed." Grooves sighed, and rested his flippers on his front. "Least it got into the right hands. Just, be mindful, old friend. We may not have had the Time Pieces anymore, but you and I still know a fair bit about working ourselves way too hard."
+"Indeed." Grooves sighed and rested his flippers on his front. "Least it got into the right hands. Just be mindful, old friend. We may not have had the Time Pieces anymore, but you and I still know a fair bit about working ourselves way too hard."
 
 "You do?" The conductor chuckled. "And here I was, thinkin' all yer made were feel good, glorified music videos."
 
@@ -52,13 +62,13 @@ Conductor smiled. "And whose fault is that, peckneck?" He responded lighthearted
 
 "We gotta get her in next year's movies!" The owl agreed, laughing with him.
 
-The laughter lasted just a few seconds too long, and ended when the two realised there was another voice laughing with them.
+The laughter lasted just a few seconds too long and ended when the two realised there was another voice laughing with them.
 
 Someone *in the room* with them.
 
 "Who'ssat?!" Conductor growled, whipping his head around in search of the intruder. "I'll have yer know this is a private meetin'!"
 
-Eventually he took notice of a strange blob of shadow on the ceiling.
+Eventually, he took notice of a strange blob of shadow on the ceiling.
 
 As the two birds watched, something formed from it, dropping downward until it emerged completely, sat in the chair opposite them.
 
@@ -144,14 +154,14 @@ Conductor simply nodded in reply. "Alright, I'll join this darn alliance."
 
 "*It's our duty, big guy! Our duty as complete and utter bastards.*" There was a quality to Snatcher's grin that Grooves couldn't quite place, but it didn't sit well with him.
 
-Regardless, he took the contract from Conductor, and added his own signature. "Well, I hope it doesn't come to that."
+Regardless, he took the contract from Conductor and added his own signature. "Well, I hope it doesn't come to that."
 
-"*Who can say?*" The contract poofed away, and appeared again in the Snatcher's clawed hand. "*Don't you worry your pretty little heads about getting up there, I'll collect you when it's time.*"
+"*Who can say?*" The contract poofed away and appeared again in the Snatcher's clawed hand. "*Don't you worry your pretty little heads about getting up there, I'll collect you when it's time.*"
 
-He stretched, and rose from the chair. "*Well! It's been wonderful doing business. If I can get the Mafia head's signature,* then *we'll be cooking. Ta ta for now!*"
+He stretched and rose from the chair. "*Well! It's been wonderful doing business. If I can get the Mafia head's signature,* then *we'll be cooking. Ta ta for now!*"
 
 And with that, the Snatcher dove into the floor and disappeared, leaving a confused and nervous Conductor and DJ Grooves staring after him.
 
 "...Her *what*?" Conductor repeated finally, turning his head toward Grooves.
 
-"...Oh, *darlin'*..." Grooves took a deep breath, and began to patiently explain to him that Hat Kid was not from Earth.
+"... Oh, *darlin'*..." Grooves took a deep breath and began to patiently explain to him that Hat Kid was not from Earth.

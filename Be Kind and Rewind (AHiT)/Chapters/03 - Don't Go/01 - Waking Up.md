@@ -6,7 +6,7 @@ Coming to consciousness, their first thought was, *how did I make it to bed?*
 
 It wasn't the most comfortable she'd been, but it was probably something to do with how she'd forgotten the end of the previous night. And that strange dream she had...
 
-They felt the breeze again, and shivered. In a groggy voice, they called to their smartphone, "Siri, turn off the tower fan."
+They felt the breeze again and shivered. In a groggy voice, they called to their smartphone, "Siri, turn off the tower fan."
 
 "Mafia is not Siri."
 
@@ -30,7 +30,7 @@ But even so, how had they ended up here?
 
 "How did young lady get here? Tourism board currently closed."
 
-Alex cleared their throat, turning to him. "...That is a *very* good question." They stepped out from beneath the tarp into the sunlight, covering their eyes as they looked around. They noticed the expression of confusion on the Mafia goon's face, and added, "I don't know how I got *here*, really."
+Alex cleared their throat, turning to him. "...That is a *very* good question." They stepped out from beneath the tarp into the sunlight, covering their eyes as they looked around. They noticed the expression of confusion on the Mafia goon's face and added, "I don't know how I got *here*, really."
 
 "Little lady is strange."
 
@@ -40,3 +40,4 @@ Why were they here?
 
 There was... whatever happened before with Mustache Girl, but how had she gone from that to... this?
 
+Alex's gawking led them over two bridges and into a street where many units and apartments packed against each other. The sea breeze blowing through was refreshing, but the smell of coal and smoke from the industrial area of the island was not. It was a reminder that the Mafia weren't native here. 
