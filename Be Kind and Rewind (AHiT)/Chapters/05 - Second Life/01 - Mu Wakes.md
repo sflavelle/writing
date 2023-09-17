@@ -174,7 +174,7 @@ Mu frowned. "So what do we do then?"
 
 "Why not?!"
 
-"Surely they can't be worse than the Mafia for you. Also, spending the next few weeks with the Mafia Boss in a jar on my spaceship really turned me off the idea."
+"*Surely* they can't be worse than the Mafia for you. Also, spending the next few weeks with the Mafia Boss in a jar on my spaceship really turned me off the idea."
 
 "Aww, I thought you *liked* my 'gift'!"
 
@@ -182,7 +182,7 @@ Mu frowned. "So what do we do then?"
 
 Mu huffed. "Fiiiine. We'll do it your way."
 
-"Thanks. Here." Hat Kid pulled something new from the backpack - it looked to be a lunch box of some kind. "Cooking Cat schmoozed up to me with a bunch of food. I thought I'd pack some for you. So you wouldn't have to go stealing anything."
+"Thanks. Here." Hat Kid pulled something new from the backpack - it looked to be a lunch box of some kind. "Cooking Cat schmoozed up to me with a bunch of food to get me to stay a while longer. I thought I'd pack some for you. So you don't have to go stealing anything."
 
 Mustache Girl eyed the box suspiciously. "... What's the catch?"
 

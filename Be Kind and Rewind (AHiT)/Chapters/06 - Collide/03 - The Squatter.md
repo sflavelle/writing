@@ -24,7 +24,7 @@ The light emanated from a flat rectangular device, revealing Alex and the bread 
 
 Alex's response was muffled as they finished chewing the slice of bread they had been eating. Swallowing, Alex repeated themselves. "I have no money."
 
-Mu stared. She thought she was going into a hideout, about to face off with someone evil, the element of surprise hers. "...Who are you, anyway?"
+Mu stared. She thought she was going into a hideout, about to face off with someone evil, the element of surprise hers. But this scene she had stumbled upon felt like she was harassing a homeless person. Her emotions deflated, a tinge of guilt tugging at her. "...Who are you, anyway?"
 
 Alex paused. There was the brief flicker of a smirk on their lips, amusement that they were only asking now, but it quickly vanished. She sat up and replied, "I'm Alex. I'm just a nobody from Earth. And before you ask, I didn't want to sleep outside and I didn't want to be harassed by Mafia in the night. So I found this empty unlocked house."
 
