@@ -38,6 +38,18 @@ Alex cleared their throat, turning to him. "...That is a *very* good question." 
 
 Why were they here?
 
-There was... whatever happened before with Mustache Girl, but how had she gone from that to... this?
+There was... whatever happened before with Mustache Girl, but how had they gone from that to... this?
 
-Alex's gawking led them over two bridges and into a street where many units and apartments packed against each other. The sea breeze blowing through was refreshing, but the smell of coal and smoke from the industrial area of the island was not. It was a reminder that the Mafia weren't native here. 
+Alex's gawking led them over two bridges and into a street where many units and apartments packed against each other. The sea breeze blowing through was refreshing, but the smell of coal and smoke invading her senses from the industrial area of the island was not. It was a reminder that the Mafia weren't native here. Alex hacked and coughed as the irritating smell burned their nostrils. "Ugh..."
+
+Walking past the bridge and into the housing district, they felt as if they were being watched, and paused. Slowly they turned, and scanned their surroundings.
+
+They didn't spot anyone clearly watching them... but then they saw a fleck of space by a crane warp and glitch.
+
+A space where they remembered the Badge Seller being - but nobody was there right now.
+
+Of course they would have caught the inter-dimensional traveller's attention.
+
+They turned back around, took a deep breath, and continued along.
+
+Alex had to figure out what to do, after all.

@@ -96,7 +96,7 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "*I don't believe I'm known to offer anything,* period."
 
-"Exactly. What, had a change of 'eart?" Conductor smirked.
+"Exactly. What, had a change of heart?" Conductor smirked.
 
 "*Funny you should ask! No.*" 
 

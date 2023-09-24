@@ -44,5 +44,5 @@ The minion shrugged. "So *maybe* they know something? But really they're just no
 
 "Boss?"
 
-"*Well let's be honest with ourselves here, that hat brat won't fall for our traps a second time. Perhaps if we find the other dipshit girl we can put her into service. But the kid's leaving, and we have this stranger as a replacement. I think either way, we have a new towel boy. We just need to lure them to the forest.*"
+"*Well let's be honest with ourselves here, that hat kid won't fall for our traps a second time. Perhaps if we find the evil little girl we can put her into service. But the kid's leaving, and we have this stranger as a replacement. I think either way, we have a new towel boy. We just need to lure them to the forest.*"
 

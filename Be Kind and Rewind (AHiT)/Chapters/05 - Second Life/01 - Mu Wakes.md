@@ -74,7 +74,7 @@ Mu glanced over at her, raising an eyebrow. "How can you *say* that?"
 
 "Well, yeah. They ruined my hometown. I'll never forgive them for that."
 
-"Right. But it might still be possible, even if you don't have the Time Pieces anymore. Look, I have... a bit of insider information." From a backpack she had brought with her, she retrieved a book - the storybook from the Mafia Boss's time rift. "The Mafia only settled here because they were fleeing a more boring situation, and this place is like a vacation to them. If I had to suggest an idea... I would find somewhere the Mafia might find better than this, and try to get them to move *there*."
+"Right. But it might still be possible, even if you don't have the Time Pieces anymore. Look, I have... a bit of insider information." From a backpack she had brought with her, she retrieved a book - the storybook from the Mafia Boss's time rift. "The Mafia only settled here because they were fleeing a more boring life, and this place is like a vacation to them. If I had to suggest an idea... I would find somewhere the Mafia might find better than this, and try to get them to move *there*."
 
 Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but trust me, these guys are stubborn. Couldn't I like... go back in time before they even left wherever awful place Mafia come from, with that better place, and tell them to go there instead? Even if they're bad guys, that wouldn't hurt them, right?"
 
