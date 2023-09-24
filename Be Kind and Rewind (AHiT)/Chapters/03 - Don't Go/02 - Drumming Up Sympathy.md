@@ -1,15 +1,5 @@
 ----
 
-The End of the Line.
-
-Most discussions and arguments made their way here eventually. 
-
-A cafe and parlour situated in the previously unused basements of the studio, the owls that ran this establishment for the staff of Dead Bird Studio took pride in having created a gathering place for all. It was almost considered a second home for some, a cosy atmosphere away from the monotony above. 
-
-Disregarding the events of a previous timeline, of course. 
-
-And here, tucked away in the corner of the parlour was DJ Grooves, awaiting his coffee break guest. 
-
 "What is it this time, Grooves?" The Conductor growled as he entered the boardroom. "I'm *so close* to bein' done with our movie!"
 
 "I know, I know. Lock the door. I'll be quick, darlin'." DJ Grooves gestured to a seat by him. "I just want to check up on you, to be perfectly honest. After yesterday and... well, everything."

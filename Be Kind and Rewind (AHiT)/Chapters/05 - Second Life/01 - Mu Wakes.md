@@ -90,7 +90,7 @@ Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but tru
 
 "How can *time* be a fuel?!" Mu sat up, pinching the bridge of her nose, and Hat Kid got a good look at her drowsy, cold-addled expression.
 
-"I can't really explain that. Trade secret."
+"Trade secret." Hat Kid grinned toothily.
 
 "Pfeh. Whatever, kid. How far away is home, anyway?"
 
@@ -98,7 +98,7 @@ Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but tru
 
 "Light... *years*?" 
 
-"Uhh... light travels really, *really* fast, right?"
+"Uhh... light travels really, *really* fast, right? Like near-instantly it seems?"
 
 "Yeah...?"
 
