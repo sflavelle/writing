@@ -74,7 +74,7 @@ Both birds floundered backward, crashing out of their chairs.
 
 After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near me soul!"
 
-"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I come with an offer today, and I'm rather glad I've found the both of you in one place. I'm afraid I bear the bad news that your... 'diva' is about to leave the planet for good.*"
+"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm here for business, not pleasure - and I'm rather glad I've found the both of you in one place. I bear the bad news that your... 'diva' is about to leave the planet for good.*"
 
 "What have you done to her?!" Grooves got to his feet, staring the spirit down.
 
@@ -102,7 +102,9 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "Really?" Grooves smirked, having just read the main paragraph of the text. "'Cuz a little birdie told us you two are now BFFs."
 
-"*Oh, she told you that, did she?*" Snatcher growled in a low voice, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because I tried to let her get out of our agreement.*"
+"A wee little birdie with a wee little hat-" The snarking Conductor was cut off by a sharp nudge in the ribs by the other director.
+
+"*Oh, she told you that, did she?*" Snatcher growled in a low voice, leaning menacingly over the table, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because I tried to let her get out of our agreement.*"
 
 "How *lovely*," Grooves snarked. "Because what you've written here sounds positively glowing in comparison."
 
@@ -118,11 +120,11 @@ Grooves glanced up at him, raising an eyebrow. Then, he looked back to the contr
 
 "None that I saw, darlin'. This has to be a first." He smirked toward the Snatcher.
 
-"*I can put the standard soul clause in there if you* really *want. I won't say no.*"
+"*I can put my standard soul clause in there if you* really *want. I won't say no.*"
 
 "Eh, I'll pass." His eyes continued scanning the contract in front of him before, seemingly satisfied, he lowered it and gave a nod. "Yer showin' a different side wi' this, but I cannae find a problem with it."
 
-"*I may have complicated feelings on the brat, but let me put it this way - I believe it's fair to say we all lose something if she goes.*"
+"*Don't get me wrong, I would love for her to have never stepped into my forest in the first place, but let me put it this way - I believe we all lose something if she goes.*"
 
 "I'll agree on that," DJ Grooves said with a nod.
 
@@ -144,14 +146,18 @@ Conductor simply nodded in reply. "Alright, I'll join this darn alliance."
 
 "*It's our duty, big guy! Our duty as complete and utter bastards.*" There was a quality to Snatcher's grin that Grooves couldn't quite place, but it didn't sit well with him.
 
-Regardless, he took the contract from Conductor and added his own signature. "Well, I hope it doesn't come to that."
+Regardless, he took the contract from Conductor and added his own signature. "Well, I hope it doesn't come to that, but... okay, I'm in."
 
 "*Who can say?*" The contract poofed away and appeared again in the Snatcher's clawed hand. "*Don't you worry your pretty little heads about getting up there, I'll collect you when it's time.*"
 
-He stretched and rose from the chair. "*Well! It's been wonderful doing business. If I can get the Mafia head's signature,* then *we'll be cooking. Ta ta for now!*"
+He stretched and rose from the chair. "*Well! It's been wonderful doing business. I'm off to wrangle a few more signatures,* then *we'll be cooking. Ta ta for now!*"
 
 And with that, the Snatcher dove into the floor and disappeared, leaving a confused and nervous Conductor and DJ Grooves staring after him.
 
 "...Her *what*?" Conductor repeated finally, turning his head toward Grooves.
+
+"Hmm? Something wrong?"
+
+"...that li'l lass has a *spaceship*?"
 
 "... Oh, *darlin'*..." Grooves took a deep breath and began to patiently explain to him that Hat Kid was not from Earth.

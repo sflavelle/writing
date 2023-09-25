@@ -10,7 +10,7 @@ And so, when the ghost indeed appeared before him, floating in through the doors
 
 "*Always straight to business with you, huh?*" The Snatcher grinned. "*I'll make this quick.*"
 
-With a snap of his fingers the contract appeared before the Mafia Boss. "*That kid with the hat is planning to leave, and I wondered if you, like me, have any objections with the idea.*"
+With a snap of his fingers the contract appeared before the Mafia Boss. "*That kid with the hat is planning to leave Earth, and I wondered if you, like me, have any objections with the idea.*"
 
 "Of course I do!" Was the Boss's response. "She is rude and has no respect! But she is a damn good fighter, and I'll be damned if she leaves us on some flight of fancy!"
 
