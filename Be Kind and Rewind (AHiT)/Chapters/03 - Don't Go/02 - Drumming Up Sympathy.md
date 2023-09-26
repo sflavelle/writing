@@ -44,7 +44,7 @@ The penguin chuckled. "It's the darndest thing. It promised me so much, but I di
 
 "You do?" The conductor chuckled. "And here I was, thinkin' all yer made were feel good, glorified music videos."
 
-"Implying I don't chew through hundreds of takes trying to get my actors to perform." Grooves joined him in the laughter. 
+"Implying I don't chew through hundreds of takes trying to get my actors to perform." Grooves snorted, joining him in the laughter. 
 
 Conductor smiled. "And whose fault is that, peckneck?" He responded lightheartedly.
 
@@ -74,7 +74,7 @@ Both birds floundered backward, crashing out of their chairs.
 
 After the Conductor's shock had worn off, he pulled one of his blades from his coat and brandished it at the Snatcher. "I dunno how yer got here, but yer **not** gettin' anywhere near me soul!"
 
-"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm here for business, not pleasure - and I'm rather glad I've found the both of you in one place. I bear the bad news that your... 'diva' is about to leave the planet for good.*"
+"*Any other day, birdbrain.*" Snatcher reclined in the chair he'd chosen. "*No, I'm here for business, not pleasure - and I'm rather glad I've found the both of you in one place. I bear the bad news that your 'diva' is about to leave the planet... for good.*"
 
 "What have you done to her?!" Grooves got to his feet, staring the spirit down.
 
@@ -88,9 +88,9 @@ Snatcher shook his head. "*No, this was her decision. She's... okay, look. This 
 
 "Get to the point, peckneck," Conductor scowled, waggling his knife toward the spirit.
 
-"*Good! This'll make this go much quicker then.*" In a poof of purple smoke, Snatcher conjured a scroll of paper. "*As you may or may not know, our kiddo arrived about the same time those Time Pieces fell from the sky. She scoured that Mafia Town, she did movies for you two for them, contracts for me, and who knows what else. She's now collected every single Time Piece on our planet as a result of undoing that recent... catastrophe. Therefore, she has no reason to hang around anymore.*" He let go of the scroll, and it poofed in front of the two birds. "*We need to* give *her a reason, or she'll vanish from right under our noses... and quite possibly for good.*"
+"*Good! Let's get to the point then.*" In a poof of purple smoke, Snatcher conjured a scroll of paper. "*As you may or may not know, our kiddo arrived about the same time those Time Pieces fell from the sky. She scoured that Mafia Town, she did movies for you two for them, contracts for me, and who knows what else. She's now collected every single Time Piece on our planet as a result of undoing that recent... catastrophe. Therefore, she has no reason to hang around anymore.*" He let go of the scroll, and it poofed in front of the two birds. "*We need to* give *her a reason, or she'll vanish from right under our noses... and quite possibly for good.*"
 
-Grooves took the scroll and unfurled it. The word 'contract' was printed in calligraphy at the top. He made a face at the other director and got reading.
+Grooves took the scroll and unfurled it. The word 'contract' was printed in calligraphy at the top. He made a sour face at the other director and got reading.
 
 Conductor watched their opponent, keeping the knife point held out. "And just what's in it for you? Erryone knows the Subcon Snatcher never offers anything without wantin' somethin' in return."
 
@@ -104,7 +104,7 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "A wee little birdie with a wee little hat-" The snarking Conductor was cut off by a sharp nudge in the ribs by the other director.
 
-"*Oh, she told you that, did she?*" Snatcher growled in a low voice, leaning menacingly over the table, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because I tried to let her get out of our agreement.*"
+"*Oh, she told you that, did she?*" Snatcher growled in a low voice, leaning menacingly over the table, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. The spirit's grin grew a touch more sinister. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because I tried to let her get out of our agreement.*"
 
 "How *lovely*," Grooves snarked. "Because what you've written here sounds positively glowing in comparison."
 

@@ -44,6 +44,12 @@ Snatcher stared at her. "*What's a 'TV'? No, hang on - they're blabbing* already
 
 She shrugged. "You should know that I've been investigating that alien and her spaceship for a few days, and if you'll have me, I may be able to help appeal to her."
 
+Snatcher stared at the creature. His first instinct told him to silence it permanently and devour its soul but this... 'Cooking Cat' might know how to convince the kid to hang around.
+
+... oh, he hoped this wouldn't be taken for weakness... "*Today's your lucky day, cat. You have sixty seconds. Explain why you can get her to stay and why I shouldn't have your soul as a snack.*"
+
+.
+
 "*I've never seen you when I've visited.*"
 
 "I may have been *mostly* investigating the alien kitchens."

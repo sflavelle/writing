@@ -48,7 +48,13 @@ They didn't spot anyone clearly watching them... but then they saw a fleck of sp
 
 A space where they remembered the Badge Seller being - but nobody was there right now.
 
+*Or maybe they just couldn't see him.*
+
+Alex assumed that, whatever power he actually had, probably allowed him to control who saw him - they didn't remember anyone other than Hat Kid interacting with or even perceiving him in the game...
+
 Of course they would have caught the inter-dimensional traveller's attention.
+
+*Nothing to see here...*
 
 They turned back around, took a deep breath, and continued along.
 
