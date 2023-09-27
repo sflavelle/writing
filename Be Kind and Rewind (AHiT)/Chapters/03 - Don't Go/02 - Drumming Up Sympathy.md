@@ -102,7 +102,7 @@ Conductor watched their opponent, keeping the knife point held out. "And just wh
 
 "Really?" Grooves smirked, having just read the main paragraph of the text. "'Cuz a little birdie told us you two are now BFFs."
 
-"A wee little birdie with a wee little hat-" The snarking Conductor was cut off by a sharp nudge in the ribs by the other director.
+"A wee little birdie with a wee little hat-" The smirking Conductor was cut off by a sharp nudge in the ribs by the other director.
 
 "*Oh, she told you that, did she?*" Snatcher growled in a low voice, leaning menacingly over the table, glancing toward DJ Grooves, who had put his glasses back on so he could read the contract better. The spirit's grin grew a touch more sinister. "*I should have popped her head off when I had the chance. But I didn't, and now I* can't *because I tried to let her get out of our agreement.*"
 
