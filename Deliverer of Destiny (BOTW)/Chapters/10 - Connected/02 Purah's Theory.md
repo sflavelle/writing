@@ -40,7 +40,7 @@ Purah turned and started to rummage through a pile of books on her desk. "This o
 
 "So what are you saying about now? What am I holding, anyway?" You glanced down and noticed the unique handle... more of a hilt, actually. "Wait, isn't this-"
 
-"The Master Sword, yes," Purah waved off the question.
+"The Master Sword, yes," Purah casually waved off the question.
 
 "Wh- **Purah**!" You fumbled the sword briefly, before deciding to quickly set it down against a table. It was in its sheath, which seemed to be why you and Purah were able to hold it, but you didn't want to take the chance of it acting against you. "Can't this sword only be used by Link?!"
 

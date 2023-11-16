@@ -1,0 +1,1 @@
+Basically a home for short 'crackfic' crossover ideas for things that sometimes tumble through my head.
