@@ -44,7 +44,7 @@ Snatcher stared at her. "*What's a 'TV'? No, hang on - they're blabbing* already
 
 She shrugged. "You should know that I've been investigating that alien and her spaceship for a few days, and if you'll have me, I may be able to help appeal to her."
 
-Snatcher stared at the creature. His first instinct told him to silence it permanently and devour its soul but this... 'Cooking Cat' might know how to convince the kid to hang around.
+Snatcher stared at the creature. His first instinct told him to silence it permanently and devour its soul but this... 'Cooking Cat' might know how to convince the kid to hang around, if she's been on her ship.
 
 ... oh, he hoped this wouldn't be taken for weakness... "*Today's your lucky day, cat. You have sixty seconds. Explain why you can get her to stay and why I shouldn't have your soul as a snack.*"
 
@@ -56,7 +56,7 @@ Snatcher stared at the creature. His first instinct told him to silence it perma
 
 "*Ooooof course you were. Also, only a couple days?*"
 
-"It's the strangest thing! I decided to come on before she left Mafia Town. She said she was going to do some movies for the birds at Dead Bird Studios and said she'd be here a while, and next thing I know, she says she's finished and was leaving tonight, and where could she drop me off?"
+"It's the strangest thing! I decided to come on before she left Mafia Town. She said she was going to do some movies for the birds at Dead Bird Studios and said she'd be here a while, but then next thing I know, she says she's finished and was leaving tonight, and where could she drop me off?"
 
 Snatcher thought a moment. Interesting... this cat didn't mention Lava World at all. Compared to the few he'd talked to in the past 24 hours, it seemed Cooking Cat might have no idea about the future that had already occurred and been subsequently erased. "*Weeell... I wouldn't normally do this, but okay. Myself, the Boss and the two directors of Dead Bird Studios are going up there tomorrow night. I can bring you along, but I'll have to get you to sign something, and it's only because of a trait I know the Kid'll adore.*"
 
