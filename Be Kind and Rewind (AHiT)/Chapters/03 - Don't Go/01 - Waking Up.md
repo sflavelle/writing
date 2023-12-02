@@ -44,7 +44,7 @@ Alex's gawking led them over two bridges and into a street where many units and 
 
 Walking past the bridge and into the housing district, they felt as if they were being watched, and paused. Slowly they turned, and scanned their surroundings.
 
-They didn't spot anyone clearly watching them... but then they saw a fleck of space by a crane warp and glitch.
+They didn't spot anyone clearly watching them... but then they saw a fleck of space by a crane warp and glitch, very subtly.
 
 A space where they remembered the Badge Seller being - but nobody was there right now.
 

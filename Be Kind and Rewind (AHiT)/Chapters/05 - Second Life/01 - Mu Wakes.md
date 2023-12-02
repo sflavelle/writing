@@ -22,7 +22,7 @@ Mu sighed and flopped back under the blanket she had been given. "...Come to rub
 
 "Not really. How ya feeling?"
 
-"Like shi--peck." She yawned, blinking her eyes a few times.
+"Like shi--peck." She yawned, censoring herself in front of the Kid, blinking her eyes a few times.
 
 "Sorry."
 
@@ -44,7 +44,7 @@ Mu grumbled in response.
 
 "Uhh... You're not going to like the answer."
 
-"Ah, fu-... they all remember, don't they."
+"Ah, fu-... they *all* remember, don't they."
 
 "..." Hat Kid sighed. "Not *all*, but... you kinda painted a target on your head, yeah."
 
@@ -92,13 +92,17 @@ Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but tru
 
 "Trade secret." Hat Kid grinned toothily.
 
-"Pfeh. Whatever, kid. How far away is home, anyway?"
+"That explains nothing!"
+
+"It's the only answer I can give." She shrugged.
+
+Mu glared at her, before letting out a sigh and settling back down. "Pfeh. Whatever, kid. How far away is home, anyway?"
 
 "About five light years away from here."
 
 "Light... *years*?" 
 
-"Uhh... light travels really, *really* fast, right? Like near-instantly it seems?"
+"Uhh... light travels really, *really* fast, right? You learned that in school?"
 
 "Yeah...?"
 
@@ -110,7 +114,7 @@ Mu pinched the book from the Kid's hands, and flipped through it. "Sure, but tru
 
 "But... okay, I guess I get why you were so set on getting them back."
 
-Hat Kid nodded. "But, I can maybe offer something else for you." She took a moment to think it through, then gave a soft smile. "I know this place has been rough to you, and while I think you can be rough around the edges... for me, anyway," she added, raising her hands in apology. "... You deserve a better life than you've had so far. You've had to fight for the better part of your life, Mu, and you deserve at least an alternative. I think you once wanted to be space adventurers together?"
+Hat Kid nodded. "But, I can maybe offer something else for you." She took a moment to think it through, then gave a soft smile. "I know this place has been rough to you, and while I think you can be rough around the edges... for me, anyway," she added, raising her hands in apology. "... You deserve a better life than you've had so far. You've had to fight for the better part of your life, Mu, and you deserve at least an alternative. And... I think you once wanted to be space adventurers together?"
 
 "I think I remember saying 'time-travelling crime fighters'. But space adventuring sounds cool too. I'm guessing the 'time-travelling' part is off the table?"
 
@@ -128,7 +132,7 @@ What did she do to earn this?
 
 "Seaside?"
 
-"I *refuse* to call it Mafia Town." She spat off into the distance. "But over the years, anyone who... who might have once called me family, or even just a friend, has taken off. I once had a roof over my head, a home, I didn't have to steal food..."
+"I *refuse* to call it Mafia Town any longer." She spat off into the distance. "It used to be called Seaside. Back before *they* turned up. But over the years, anyone who... who might have once called me family, or even just a friend, has taken off, scared off by the Mafia. I once had a roof over my head, a home, I didn't have to steal food..."
 
 Mu sighed, and looked down into her lap. "Seaside is a shell of what it once was. It's only gotten worse since the Mafia have taken over. And I can't really go anywhere else. That bird country won't accept non-bird migrants, Subcon is... well you know, and I may be pretty outspoken, but I don't have the lung capacity for the Alps." Glancing up to Hat Kid's face, she deeply sighed. "And even if I could go to those places, well ... as you said, I've made a lot of enemies now. So please... if this is a joke, just... just say so."
 
@@ -162,7 +166,7 @@ Suddenly her eyes snapped open as she realised who she might have meant. "WAIT, 
 
 "...*Can* they be sent back?"
 
-Hat Kid sighed. "I... don't think so. Maybe we could find whatever thing they came through, but... you said it was invisible? And whoeven knows if that portal exists anymore."
+Hat Kid sighed. "I... don't think so. Maybe we could find whatever thing they came through, but... you said it was invisible? And who even knows if that portal exists anymore."
 
 Mu frowned. "So what do we do then?"
 
@@ -188,7 +192,7 @@ Mustache Girl eyed the box suspiciously. "... What's the catch?"
 
 "No catch?" The kid raised an eyebrow.
 
-"Nah, there's a condition on getting this stuff. I know it."
+"Nah, there's a condition on getting this stuff. There always is."
 
 She shook her head, and carefully set it on Mu's lap. "Tell you what. If you see this guy, and I'm not there? I'll get you one of my ship's distress signal boxes. Just flick that on, and I'll know to come find you."
 
@@ -212,7 +216,7 @@ She turned to look at Mu.
 
 "...Thank you."
 
-She smiled. "No worries."
+She smiled, and threw up a peace sign. "No worries."
 
 Then Hat Kid seemed to press something on her hat, and after a moment, a bright spear of light engulfed her, causing Mu to flinch and cover her eyes.
 

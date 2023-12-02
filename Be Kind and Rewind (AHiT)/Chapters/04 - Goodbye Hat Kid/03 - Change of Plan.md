@@ -1,3 +1,5 @@
+----
+
 "I-I'm just not sure there's a world where we can be happy together."
 
 "But Robin, wasn't it You that said, 'if you believe in something hard enough, nothing can-"
@@ -8,7 +10,7 @@ For once, the call *didn't* come from the Conductor. In fact, from the middle of
 
 "*Come on, you lot! Break time! I gotta borrow the old man.*"
 
-"Snatcher, yer fool! Can't you tell time?"
+"Snatcher, ye fool!" Shouted the Conductor from his directors chair. "Can't you tell time?"
 
 "*There's been a change of plan. She's leaving **right now**. We're off to catch her*."
 
@@ -18,7 +20,7 @@ And next thing he knew, he was on the Moon. It was as if it laid just below the 
 
 Snatcher glanced about, and made for one of the buildings just off the main moon set, one that marked Grooves's office. Spectators gasped upon seeing him - and seeing him with the Conductor screaming out as they both passed straight through the wall.
 
-"Good gracious!" DJ Grooves bolted upright, clutching his heart as both Snatcher *and* the Conductor phased into the room, the latter screaming. "You gotta warn me before doin' that, darlings! Is it time already?"
+"Good gracious!" DJ Grooves bolted upright, clutching his heart as both Snatcher *and* the Conductor phased into the room in front of him, the latter screaming. "You gotta warn me before doin' that, darlings! Is it time already?"
 
 "*It wasn't, but she's trying to ditch us early. Hop on, we have two quick stops to make.*"
 
