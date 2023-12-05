@@ -1,22 +1,18 @@
 param (
-    [string]$Part,
     [string]$ChapterNumber,
     [string]$ChapterName,
-    [string]$OutputName = "BeginAgain",
+    [string]$OutputName = "BeKindRewind",
     [switch]$Verbose = $false,
     [switch]$ePub = $false,
     [switch]$HTML = $true,
     [string]$Format
 )
 
-$contentPath = if ( $Part -and $ChapterNumber ) { 
-    Get-ChildItem -Directory -Path ".\Chapters\Part $Part" | Where-Object {$_.Name -match "^$("{0:d2}" -f $ChapterNumber) "} | Select-Object -ExpandProperty FullName
+$contentPath = if ( $ChapterNumber ) { 
+    Get-ChildItem -Directory -Path ".\Chapters" | Where-Object {$_.Name -match "^$("{0:d2}" -f $ChapterNumber) "} | Select-Object -ExpandProperty FullName
 }
-elseif ( $Part -and $ChapterName ) {
-    Get-ChildItem -Directory -Path ".\Chapters\Part $Part" | Where-Object {$_.Name -match $ChapterName} | Select-Object -ExpandProperty FullName
-}
-elseif ( $Part ) {
-    Get-ChildItem -Directory -Path ".\Chapters\Part $Part" | Select-Object -ExpandProperty FullName
+elseif ( $ChapterName ) {
+    Get-ChildItem -Directory -Path ".\Chapters" | Where-Object {$_.Name -match $ChapterName} | Select-Object -ExpandProperty FullName
 }
 else { Get-Item Chapters | Select-Object -ExpandProperty FullName }
 

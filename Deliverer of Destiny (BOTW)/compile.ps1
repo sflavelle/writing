@@ -38,17 +38,17 @@ if ( $Verbose )
 # to ePub
 if ( $ePub ) {
     Write-Host "Compiling to ePub..."
-    Get-Variable content -ValueOnly | pandoc --verbose --defaults pandoc-defaults.yaml --metadata-file=Resources/metadata.yaml --to epub -o Compiled/$OutputName.epub
+    Get-Variable content -ValueOnly | pandoc --verbose --defaults ../pandoc.yaml --metadata-file=Resources/metadata.yaml --to epub -o Compiled/$OutputName.epub
 }
 # to HTML
 if ( $HTML ) {
     Write-Host "Compiling to HTML..."
-    Get-Variable content -ValueOnly | pandoc --verbose --defaults pandoc-defaults.yaml --metadata-file=Resources/metadata.yaml --to html -o Compiled/$OutputName.html
+    Get-Variable content -ValueOnly | pandoc --verbose --defaults ../pandoc.yaml --metadata-file=Resources/metadata.yaml --to html -o Compiled/$OutputName.html
 }
 
 if ( $Format ) {
     Write-Host "Compiling to $Format..."
-    Get-Variable content -ValueOnly | pandoc --verbose --defaults pandoc-defaults.yaml --metadata-file=Resources/metadata.yaml --to $Format -o Compiled/$OutputName.$Format
+    Get-Variable content -ValueOnly | pandoc --verbose --defaults ../pandoc.yaml --metadata-file=Resources/metadata.yaml --to $Format -o Compiled/$OutputName.$Format
 }
 
 Write-Host "Done!"
