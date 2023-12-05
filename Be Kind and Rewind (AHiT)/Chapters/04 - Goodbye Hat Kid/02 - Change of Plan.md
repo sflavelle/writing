@@ -1,8 +1,10 @@
 ----
 
+*That same late afternoon...*
+
 "I-I'm just not sure there's a world where we can be happy together."
 
-"But Robin, wasn't it You that said, 'if you believe in something hard enough, nothing can-"
+"But Robin, wasn't it You that said, 'if you believe in something hard enough, nothing can get in our-"
 
 "*CUT!*"
 

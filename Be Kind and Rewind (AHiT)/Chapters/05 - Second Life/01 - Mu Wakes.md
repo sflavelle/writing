@@ -220,4 +220,4 @@ She smiled, and threw up a peace sign. "No worries."
 
 Then Hat Kid seemed to press something on her hat, and after a moment, a bright spear of light engulfed her, causing Mu to flinch and cover her eyes.
 
-When Mu looked back, Hat Kid was gone.
+When the light was gone, Mu looked back, and Hat Kid was gone.
