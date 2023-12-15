@@ -38,7 +38,7 @@ And sure enough, that evening, one of the minions sought him out, claiming to ha
 
 "*What's all that supposed to mean?*"
 
-The minion shrugged. "So *maybe* they know something? But really they're just nobody. I wouldn't worry about them, boss."
+The minion shrugged. "So *maaaybe* they know something? But really they're just nobody. I wouldn't worry about them, boss."
 
 "*Good. That's good.*" Even so, Snatcher's claws rested just below his face, thinking. "*Perhaps we can put them to use, then.*"
 

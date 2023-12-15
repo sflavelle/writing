@@ -1,4 +1,4 @@
-It was a cold evening in Mafia Town when Mustache Girl finally stirred.
+It was a cool evening in Mafia Town when Mustache Girl finally stirred.
 
 Even after the few days she had spent unconscious, her being ached, fatigued and drained. Had she come down with a cold? Figures.
 
@@ -16,7 +16,7 @@ Mu struggled to sit up, nearly blacking right back out from the sudden exertion.
 
 She froze. Blinking her eyes into focus, she saw that she indeed had a visitor.
 
-It was that damn Hat Kid. And looking at herself, it seemed the alien had brought a pillow and spare blanket for Mu. But... why?
+It was that damn Hat Kid. And looking at herself, it seemed the alien had brought a pillow and spare blanket for Mu, going so far as to rest her head on the pillow and drape the blanket carefully over her. But... why?
 
 Mu sighed and flopped back under the blanket she had been given. "...Come to rub it in, huh."
 
@@ -26,7 +26,7 @@ Mu sighed and flopped back under the blanket she had been given. "...Come to rub
 
 "Sorry."
 
-"Not you, I think. Musta... picked up a cold or something while I was down. How long was I...?"
+"Not you, I think. Well... maybe a bit. But I musta... picked up a cold or something while I was down. How long was I out...?"
 
 When Hat Kid didn't immediately respond, Mu glanced over at her, and saw her in thought. "Uhh, kid? How long?"
 
