@@ -10,7 +10,11 @@ So clearly someone else had.
 
 ...Uh oh.
 
-Mu struggled to sit up, nearly blacking right back out from the sudden exertion.
+Mu struggled to sit up, and promptly blacked right back out from the sudden exertion.
+
+...
+
+When she awoke again, it was still night, and the fire now cast shadows of a second person in her cave. This time she turned herself over to see who it was.
 
 "Hey. Relax. You've been through a lot."
 
@@ -136,15 +140,17 @@ What did she do to earn this?
 
 Mu sighed, and looked down into her lap. "Seaside is a shell of what it once was. It's only gotten worse since the Mafia have taken over. And I can't really go anywhere else. That bird country won't accept non-bird migrants, Subcon is... well you know, and I may be pretty outspoken, but I don't have the lung capacity for the Alps." Glancing up to Hat Kid's face, she deeply sighed. "And even if I could go to those places, well ... as you said, I've made a lot of enemies now. So please... if this is a joke, just... just say so."
 
-Hat Kid shook her head. "Not a joke. But, take your time and figure out what you want to do. I have a bit of time while I'm looking for someone."
+Hat Kid shook her head. "Not a joke. But, take your time and figure out what you want to do. I have a bit of time before I leave."
 
 Mu slowly nodded. "...Okay. You're alright, kid."
 
-The other simply smiled. "Actually, I do need to ask you about them..."
+The other simply smiled. 
+
+There was a calm silence in the air as Mu settled back into the sheets and the Kid stoked the flames. Eventually her head turned Mu's way again and she asked, "Can I ask... do you know much about this mystery person supposedly running around?"
 
 Mustache Girl raised an eyebrow. "Who's this?"
 
-"Well, from what I heard you managed to summon someone. Nobody knows who they are, and they're still running around here in Maf-- ...*Seaside*."
+"Well, from what I heard you managed to summon someone. Nobody knows who they are, and they're still here in Maf-- ...*Seaside*."
 
 Mu let her lips curl up into a small smile at the Kid's usage of the town name. But was confused as to who she meant. "Summon? I didn't summon any--"
 
