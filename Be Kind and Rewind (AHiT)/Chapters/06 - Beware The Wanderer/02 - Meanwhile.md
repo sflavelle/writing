@@ -1,4 +1,4 @@
-----
+### Beware the Wanderer
 
 "*Wait. You've* met *them?*"
 
@@ -12,7 +12,7 @@ It was the night after Snatcher's successful visit to the spaceship. Hat Kid was
 
 Telling her that a *someone* from that day at Time's End was still among them.
 
-They gave as good a description as they could, and the Kid reluctantly agreed to check them out, on the condition that she leave once the person was found and appropriate action taken - whatever that might be.
+They gave as good a description as they could, and the Kid reluctantly agreed to check them out, on the condition that she be allowed to leave once the person was found and appropriate action taken - whatever that might be.
 
 Though he couldn't speak for the others, Snatcher had rounded up his minions the next day and told them about-- well, not quite everything, but the *gist* of everything. Explaining the confusion about 'time travel' chatter amongst some of the minions, and talking about the castle the 'hero' had summoned everyone to, judging them with her black and white tones of 'good and evil', and essentially killing them.
 

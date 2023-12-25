@@ -1,3 +1,5 @@
+### Good Guys and Bad Guys
+
 It was a cool evening in Mafia Town when Mustache Girl finally stirred.
 
 Even after the few days she had spent unconscious, her being ached, fatigued and drained. Had she come down with a cold? Figures.
@@ -144,9 +146,17 @@ Hat Kid shook her head. "Not a joke. But, take your time and figure out what you
 
 Mu slowly nodded. "...Okay. You're alright, kid."
 
+<<<<<<< HEAD:Be Kind and Rewind (AHiT)/Chapters/05 - Second Life/01 - Mu Wakes.md
 The other simply smiled. 
 
 There was a calm silence in the air as Mu settled back into the sheets and the Kid stoked the flames. Eventually her head turned Mu's way again and she asked, "Can I ask... do you know much about this mystery person supposedly running around?"
+=======
+The two sat, the white noise of the sea and the crackle of the campfire bringing calm to the two. Hat Kid looked out to the sea, thinking on her next steps. This... person her friends were concerned about... they were humanoid, like her, and was last seen in Mafia Town, and before that in Mustache Girl's throne room... And they had said she had summoned them?
+
+*Oh.*
+
+"Actually," Hat Kid said, looking back toward Mu, "you might be able to help me with this person."
+>>>>>>> 037caa7 (BKR: Split chapter 5):Be Kind and Rewind (AHiT)/Chapters/05 - Good Guys and Bad Guys/01 - Mu Wakes.md
 
 Mustache Girl raised an eyebrow. "Who's this?"
 
