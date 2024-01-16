@@ -18,7 +18,7 @@ Alex looked up, surprised, not expecting a female voice. They had to look around
 
 "Not at all, though I fear I'll be fairly boring." Alex smiled, and laughed shyly. "I wish you'd told me that two days ago. It was the only food place I could find around here that would serve me."
 
-"You poor dear. Well, I'd be happy to point you in the direction of some healthier eatin'." Cooking Cat smiled, and took a seat opposite Alex at the table, extending a paw. "I'm Cooking Cat, but people sometimes call me Cookie. Pleasure to meet you!"
+"You poor dear. Well, I'd be happy to point you in the direction of some healthier eatin'." Cooking Cat smiled, and took a seat opposite Alex at the table, extending a paw. "I'm Cooking Cat, but people here sometimes call me Cookie. Pleasure to meet you!"
 
 Alex nodded, and extended their hand to shake Cookie's. "I'm Alex, happy to meet you." Raising an eyebrow, they added, "Something tells me this isn't a coincidence."
 
