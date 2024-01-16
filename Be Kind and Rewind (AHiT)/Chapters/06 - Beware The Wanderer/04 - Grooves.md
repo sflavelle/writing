@@ -1,8 +1,8 @@
 ----
 
-Over in DJ Grooves' apartment, however, the moon penguin was looking at things a little differently.
+Contrary to his associates, DJ Grooves was looking at the human situation a little differently.
 
-As he changed into cosier clothing for the night's rest, he considered what he knew of their mystery person.
+As he changed into cosier clothing for the night's rest, at home in his moon apartment, he considered what he knew of their mystery person.
 
 From what he and the others had seen, they were similar in shape to the Kid, grown up. Her, but Mafia Boss-sized.
 
@@ -14,4 +14,10 @@ They must have made quite an impression to the red girl, if their first sighting
 
 *That poor darling,* he thought to himself. *All alone, with no idea what's going on. I don't know their situation, but perhaps they just need guidance, someone to help them settle in.*
 
-*You know, it's been a while since I've had a real adventure. ...Well, one not quite as dangerous as I've been having lately. Perhaps I'll take a day to travel over, and try to find them.*
+*I hope our diva can see that.*
+
+Looking out his window at the Earth above, a rather impulsive idea came to him.
+
+What if, once he finished editing his Bird Movie Award entry and submitted it, he celebrated by... taking a trip to Mafia Town to find her? Introduce himself, learn more about her...?
+
+It wasn't like he was going to win the Award this year - it was the Conductor that would win this year. So why not 'treat himself' by going on an adventure of some kind? One that wasn't quite as dangerous as the one that had ended with him facing judgment.

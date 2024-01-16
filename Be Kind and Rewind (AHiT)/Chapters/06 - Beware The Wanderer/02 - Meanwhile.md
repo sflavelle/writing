@@ -46,3 +46,6 @@ The minion shrugged. "So *maaaybe* they know something? But really they're just 
 
 "*Well let's be honest with ourselves here, that hat kid won't fall for our traps a second time. Perhaps if we find the evil little girl we can put her into service. But the kid's leaving, and we have this stranger as a replacement. I think either way, we have a new towel boy. We just need to lure them to the forest.*"
 
+"How're you gonna do that?"
+
+Snatcher's grin widened, and his glow brightened. "*Correction - how are* you *going to do that?*"
