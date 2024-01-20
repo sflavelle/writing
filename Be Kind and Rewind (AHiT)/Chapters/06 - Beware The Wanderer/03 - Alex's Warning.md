@@ -20,9 +20,25 @@ Alex looked up, surprised, not expecting a female voice. They had to look around
 
 "You poor dear. Well, I'd be happy to point you in the direction of some healthier eatin'." Cooking Cat smiled, and took a seat opposite Alex at the table, extending a paw. "I'm Cooking Cat, but people here sometimes call me Cookie. Pleasure to meet you!"
 
-Alex nodded, and extended their hand to shake Cookie's. "I'm Alex, happy to meet you." Raising an eyebrow, they added, "Something tells me this isn't a coincidence."
+Alex nodded, and extended their hand to shake Cookie's. "I'm Alex, happy to meet--" 
 
-"Am I that obvious?" She laughed. "I mean, yes, but let's pretend it is for a moment."
+As the two made contact, something peculiar happened to Cooking Cat.
+
+*"I wonder what their kitchen is like! Maybe I can just... take a peek."*
+
+*She saw herself talking to the alien girl, but where were they both? The dining area they seemed to be in seemed rather fancy, with tall, elaborate chandeliers, an aquarium taking up one wall, and being seated on an elevated level.*
+
+*But there was something else going on - it almost looked like the conversation were being viewed through a window, or something...*
+
+*The sudden-ness of the situation made her flinch, and-*
+
+"--you, Cookie," Alex finished, as their eyes widened. "Wh... what was that?"
+
+Cookie blinked a few times, glancing around. What *had* just happened? "I uh... I have no idea. Does that happen often?"
+
+"No, never. I uh... well, yeah, I guess I could say I know you a little bit." Alex rubbed the back of her head. "I don't think this meeting's a coincidence."
+
+"Am I that obvious?" She laughed, deciding to just let whatever had happened slide. It only made her curious about this alien, though... "I mean, yes, but let's pretend it is for a moment."
 
 Alex laughed too. "If you insist. Uh, how's the weather?"
 
@@ -57,7 +73,7 @@ Wait, people thought they were in kahoots with Mustache Girl? "Uh... but I'm not
 
 Alex's expression was blank as she processed what she was told. "I... thanks? How... should I get off this island, then?"
 
-Cookie smiled. "Don't you worry. There's an underground rail station that connects to the greater Metro network, so you should be able to travel whereever you need from there. 'Course, the Mafia blocked it up with boulders some time ago, but looking at your stature, I think you won't have any trouble squeezing over the top. And hey! If you need to, the Metro itself is a nice place to lay low for a while. Just... be mindful you don't attract any unwelcome attention. It's not the sort of place you want to stay for too long."
+Cookie smiled. "Don't you worry. There's an underground rail station that connects to the greater Metro network, so you should be able to travel wherever you need from there. 'Course, the Mafia blocked it up with boulders some time ago, but looking at your stature, I think you won't have any trouble squeezing over the top. And hey! If you need to, the Metro itself is a nice place to lay low for a while. Just... be mindful you don't attract any unwelcome attention. It's not the sort of place you want to stay for too long."
 
 Her eyes flicked up to something past Alex, and she straightened up. "Well! It's been a pleasure meetin' you Alex. I do hope we bump into each other soon." As she stood from her chair, she surreptitiously slipped something into Alex's pocket. "I hope you'll come by before you leave Mafia Town. I'd love to load you up with some *proper* meals for the road." With a smile, she turned and made to leave. "Til then, dear! Happy eatin'!"
 
