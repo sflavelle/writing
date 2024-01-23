@@ -12,11 +12,11 @@ There was a flash of a memory in his mind, one that was not his own.
 
 *"What if... I give you your soul back? Will that make you go away?"*
 
-*Snatcher instantly recognised the memory, the nervous tone in his own voice as the aftermath of his battle with the Hat Brat. But... this wasn't his point of view at all.*
+*Snatcher instantly recognised the scene, the nervous tone in his own voice as the aftermath of his battle with the Hat Brat. But... this wasn't his point of view at all.*
 
 *He found himself staring at the scene through a screen or window of some kind, where his words were also written out above his own form.*
 
-*A twitch as the form he was currently occupying pressed a button in the device in their hands, and then the Snatcher-in-the-window continued, "Yes? No? Hello? Anybody in there?"*
+*A twitch as the form he was currently occupying pressed a button on the device in their hands, and then the Snatcher-in-the-window continued, "Yes? No? Hello? Anybody in there?"*
 
 Snatcher blinked, and he was back in his own ethereal plane, blood blossoming from the gaping wounds he had just given Alex.
 
@@ -50,4 +50,4 @@ The human who had *just* died by his hand. He glanced at his own claws, still bl
 
 They looked terrified from a distance. Scared of the forest or scared of him? They let out a shriek when his claws wrapped around them and he pulled them back into his domain. 
 
-As soon as he had let go of them, Alex snapped backward, wrapping her arms around herself. *As if that will save you,* Snatcher mused. 
+As soon as he had let go of them, Alex snapped backward, wrapping her arms around herself. *As if that will save you,* Snatcher mused. "Look, okay. I'm sorry, I thought you might have found that funny," she explained.
