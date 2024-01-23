@@ -16,4 +16,4 @@ as the Badge Seller
 - Basically, from his experiences, every media, every fanfiction, every
 timeline, is indeed real
 - "Every place you've ever imagined, is real. There is a fictional city in your
-mind. Your mind is a world. Each of us is a place" ~ Spitfire Worlds Edit
+mind and you know every corner of it. Your mind is a world. Each of us is a place" ~ Spitfire Worlds Edit
