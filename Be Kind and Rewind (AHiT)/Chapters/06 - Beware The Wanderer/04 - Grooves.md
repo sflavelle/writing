@@ -20,4 +20,8 @@ Looking out his window at the Earth above, a rather impulsive idea came to him.
 
 What if, once he finished editing his Bird Movie Award entry and submitted it, he celebrated by... taking a trip to Mafia Town to find her? Introduce himself, learn more about her...?
 
-It wasn't like he was going to win the Award this year - it was the Conductor that would win this year. So why not 'treat himself' by going on an adventure of some kind? One that wasn't quite as dangerous as the one that had ended with him facing judgment.
+It wasn't like he was going to win the Award this year - it was the Conductor that would win... *of course*. So why not 'treat himself' by going on an adventure of some kind? One that wasn't quite as dangerous as the one that had ended with him facing judgment.
+
+As long as he could avoid undue attention from the Mafia... yes, some sun and surf could do him some good.
+
+He turned to his smartphone and began to look up Metro fares.

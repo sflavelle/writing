@@ -26,10 +26,24 @@ One button would make her jump, and she would easily avoid his shockwaves, or th
 
 *So... you were in control of the brat?*
 
-A feeling of nervousness washed through the vision, an apparent confirmation of his theory. That would explain what she had meant earlier when forced to meet them. She had seen his world as a 'game', seemingly one where Hat Kid was the protagonist... yeah, that would track.
+A feeling of nervousness washed through the vision, an apparent confirmation of his theory. That would explain what she had meant earlier when forced to meet them, and even earlier with his minion's eyewitness account. She had seen his world as a 'game', seemingly one where Hat Kid was the protagonist... yeah, that would track.
+
+*And yet... now you're not. Or... ugh, I don't have time for this reality nonsense.*
 
 *So how did you come to us, then? What about Mustache, what's your connection...?*
 
 In response, her memory, her mind flickered to the new scene. They were in the same room, but the display, instead of showing his domain, now saw the throne room of Mu's castle, with the tyrant herself standing right in front of her. He watched as, as if the display were just an open window, Mustache Girl had reached out *through the display* to snag the collar of Alex's shirt and pull her through- and suddenly the room surrounded them entirely, but the scene also became fuzzy, as if Alex didn't quite remember what had happened after that.
 
-He relinquished his mental and physical grasp on her, and in his ethereal plane, he leaned back as Alex gasped for breath, clutching her head.
+He relinquished his mental and physical grasp on her, and in his ethereal plane, he leaned back as Alex gasped for breath, clutching her head. "Uggh... warn a guy before doing that next time," she complained.
+
+"*What makes you think I owe it to you to do anything?*" Snatcher said in reply. "*Okay, no, you're not some servant of the tyrant, but you know enough to know better than to meddle in my affairs.*"
+
+He leaned forward, towering over the human. "*So here's what we're going to do. I am going to get you to sign something. Don't worry about the details. In return for a few chores around the forest, I'm going to let you live.*"
+
+Alex swallowed. "...W-well, uh--"
+
+"*Ah! I'm not done yet.*" He waggled a finger in front of her face. "*Don't think I didn't realise death seems to escape you.*" He leaned in even closer, her face lit by his glowing, sinister face. "*If you* dare *defy me, or so much as* mention *certain... historical figures,*" he continued, "*I will enjoy seeing just how many ways I can kill you... and make your remaining existence a* nightmare."
+
+A contract paper appeared in front of Alex, between them. "*Do I make myself clear?*" he finished.
+
+Alex closed her eyes. What had she gotten herself into?
