@@ -68,13 +68,13 @@ Badge Seller's laughter was warm and vibrant as his belly(?) shook, holding an a
 
 "'Hey' what? I mean you always kinda look like you've just been stitched into the picture, your edges are a bit..." She waved her hand in circles as she stalled for an appropriate word. "...fuzzy, in a sense."
 
-"Hmm, well, I have a theory, but it's untested," Badge Seller admitted.
+"Hmm, well, I have a theory... but it's untested," Badge Seller admitted.
 
 "*Untested*?" Mu slowly repeated.
 
 "That's... kind of terrifying, coming from you," Hat Kid thought aloud.
 
-"Please understand, young ones - in all my time travelling, I have not seen this phenomena before. But my theory is this: That her reality and your own disagree with each other fundamentally. Currently, she is being governed by her own reality's rules."
+"Please understand, young ones - in all my time that I've been travelling, I have not seen this phenomena before. But my theory is this: That her reality and your own disagree with each other fundamentally. Currently, she is being governed by her own reality's rules."
 
 "Let me explain with another example." His head turned toward Hat Kid and Mu. "Young ones, if I were to scratch you with something, what would happen?"
 
@@ -88,7 +88,7 @@ Alex felt all three sets of eyes land on her. "I'd probably start bleeding?" she
 
 She shook her head. "We like to think it possible, but I personally don't see how."
 
-"Another fundamental difference. Whereas Time itself is more malleable in this universe, in Alex's it is very rigid."
+"Another fundamental difference. Whereas Time itself is more malleable in this universe, in Alex's it is very rigid and in fact cannot reverse."
 
 "Wait, so..." Hat Kid's eyes widened. "When I fixed the big time rift, it didn't send her back to her world because Time... *can't* go backwards there?"
 
