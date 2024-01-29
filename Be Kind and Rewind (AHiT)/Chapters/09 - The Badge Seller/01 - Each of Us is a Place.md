@@ -138,11 +138,11 @@ Mu stretched and got to her feet. "Guess I'll be seeing you tomorrow or somethin
 
 Mu blinked. "Wait, you're still serious about that?"
 
-"Of *course*, I'm not gonna rip this away from you at the last minute. Do you want to get your stuff and meet me at uhh... the belltower?"
+"Of *course*, I'm not gonna rip this away from you at the last minute. Do you want me to take you back to Seaside to get your stuff and you can meet me at uhh... the belltower?"
 
 "...yeah, that would be nice." Mu stared into space for a moment. "I... I might be a bit. Saying goodbye to the place 'n' stuff."
 
-"Hey, we're not leaving," Hat Kid smiled to her. "At least not yet. But sure. Take your time, y'know?"
+"Hey, we're not leaving for good," Hat Kid smiled to her. "At least not yet. But sure. Take your time, y'know?"
 
 Resting a hand on Mu's shoulder, she continued, "Just remember... You don't have to do this alone anymore."
 
