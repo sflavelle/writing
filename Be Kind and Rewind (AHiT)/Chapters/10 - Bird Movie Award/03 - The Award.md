@@ -84,6 +84,6 @@ For her part, Hat Kid shrugged. "So you really don't have a Time Piece on you?"
 
 "Not unless you snuck one onto me, darling." He spread his arms out once more. "Search me if you must."
 
-She shook her head. "I trust you. I just... didn't think that *not* losing Time Pieces over the planet would affect little things like this."
+She shook her head. "I trust you. I just... didn't think that *not* losing Time Pieces over the planet would affect things like this."
 
 "Yeah... huh."
