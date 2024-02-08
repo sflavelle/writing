@@ -14,7 +14,7 @@ Her eyes opened fully, and she grumbled as she slowly sat herself up. Had her co
 
 She scooted across the bed, leaning over the side as she felt behind the dresser for the power cable... only to find that it was still plugged in.
 
-Oh... perhaps it finally gave up overnight. After all, it was a device she had had all throughout her childhood. She allowed herself to feel sad for it. It had been one of her first personal purchases after moving to Inkopolis, and it had been there for her even before she and Marie had properly become idols.
+Oh... perhaps it finally gave up overnight. After all, it was a device she had had all throughout her childhood. She allowed herself to feel sad for it. It had been one of her first personal purchases after moving to Inkopolis, and it had been there for her even before she and Marie had properly become idols. Sure, it was just a clock, but it was still... sentimental. It had stayed with her through the changes in her life...
 
 Having spent enough time reflecting on it, she stretched and prepared to begin her day, reaching for the lamp on the bedside and flicking it on.
 
@@ -37,3 +37,9 @@ Another groan. She heard the noises of her cousin getting out of bed and shuffli
 "Maybe... Least it'll be a day off."
 
 "Don't be so sure, you know they'll fix it at the last minute so you have to come in." She edged past Callie to make her way over to the bathroom. "Well, since I'm up I may as well take a shower. Let me know if you find out anything."
+
+"'Kay, I'll go after you," Callie called after her.
+
+Callie's laptop, sitting on the coffee table, was her next port of call. Opening it up, she grabbed her phone, flicking on the switch to create a hotspot network to work with... and noticed there was no mobile signal to connect to.
+
+*What the heck is going on...?*
