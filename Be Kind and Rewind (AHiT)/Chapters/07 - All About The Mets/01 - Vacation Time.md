@@ -6,7 +6,7 @@
 
 "Is it to do with you losing this year?" chirped up another.
 
-The question made him flinch. *Right, of course, the results were foregone especially this year... But to hear his penguins say it hurt. "Er... perhaps. Look, to summarize my... complicated thoughts on the whole situation, I think we smashed this movie out of the park on this one, no matter what the judges say, and we *all* should take time to pat ourselves on the back, as it were."
+The question made him flinch. *Right, of course, the results were foregone especially this year... But to hear his penguins say it hurt.* "Er... perhaps. Look, to summarize my... complicated thoughts on the whole situation, I think we smashed this movie out of the park on this one, no matter what the judges say, and we *all* should take time to pat ourselves on the back, as it were."
 
 So it was that he was able to reassure his staff that he was fine, and he had accepted the upcoming loss, *this time*.
 
@@ -20,7 +20,7 @@ Waving off the last few penguins with a "until next season, darlings!", Grooves 
 
 *...Bar one.*
 
-He paused, and glanced at the Conductor, leaning against his trophy cabinet. "What's it to you, Connie?"
+He paused, and glanced at the Conductor, who was leaning against his trophy cabinet. "What's it to you, Connie?"
 
 "'s nothin' to me, lad. Just, yer know, weren't that the whole reason we went up to the lass?"
 
