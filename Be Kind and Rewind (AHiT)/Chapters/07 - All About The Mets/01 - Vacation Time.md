@@ -6,7 +6,7 @@
 
 "Is it to do with you losing this year?" chirped up another.
 
-The question made him flinch. *Right, of course, the results were foregone especially this year... But to hear his penguins say it hurt. "Er... perhaps. Look, to summarize my... complicated thoughts on the whole situation, I think we smashed this movie out of the park on this one, no matter what the judges say, and we *all* should take time to pat ourselves on the back, as it were."
+The question made him flinch. *Right, of course, the results were foregone especially this year... But to hear his penguins say it hurt.* "Er... perhaps. Look, to summarize my... complicated thoughts on the whole situation, I think we smashed this movie out of the park on this one, no matter what the judges say, and we *all* should take time to pat ourselves on the back, as it were."
 
 So it was that he was able to reassure his staff that he was fine, and he had accepted the upcoming loss, *this time*.
 
@@ -14,14 +14,8 @@ So it was that he was able to reassure his staff that he was fine, and he had ac
 
 Waving off the last few penguins with a "until next season, darlings!", Grooves locked the doors into his studio, a small messenger bag of supplies from his office at his side. The foyer was quiet, even though it was midday.
 
-*The owls must be on their lunch break*, he considered.
+*The owls must be on their lunch break*, he thought to himself.
 
-"Yer goin' after her, ain't ya?"
+He paused briefly, at the door out to the parking lot, to glance around the lobby. The posters, standees, his trophy cabinet.
 
-*...Bar one.*
-
-He paused, and glanced at the Conductor, leaning against his trophy cabinet. "What's it to you, Connie?"
-
-"'s nothin' to me, lad. Just, yer know, weren't that the whole reason we went up to the lass?"
-
-Grooves was silent for a moment. "Perhaps I have my own questions to answer."
+*...Til next year.*
