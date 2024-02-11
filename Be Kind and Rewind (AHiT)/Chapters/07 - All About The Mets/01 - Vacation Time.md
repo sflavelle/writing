@@ -14,14 +14,8 @@ So it was that he was able to reassure his staff that he was fine, and he had ac
 
 Waving off the last few penguins with a "until next season, darlings!", Grooves locked the doors into his studio, a small messenger bag of supplies from his office at his side. The foyer was quiet, even though it was midday.
 
-*The owls must be on their lunch break*, he considered.
+*The owls must be on their lunch break*, he thought to himself.
 
-"Yer goin' after her, ain't ya?"
+He paused briefly, at the door out to the parking lot, to glance around the lobby. The posters, standees, his trophy cabinet.
 
-*...Bar one.*
-
-He paused, and glanced at the Conductor, who was leaning against his trophy cabinet. "What's it to you, Connie?"
-
-"'s nothin' to me, lad. Just, yer know, weren't that the whole reason we went up to the lass?"
-
-Grooves was silent for a moment. "Perhaps I have my own questions to answer."
+*...Til next year.*
