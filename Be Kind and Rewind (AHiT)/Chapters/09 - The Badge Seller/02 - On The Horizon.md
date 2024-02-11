@@ -54,4 +54,7 @@ She nodded, mumbled a quick 'thank you' and took one of the sticks of cooking ma
 
 For his part, he chuckled. "Well, I *did* say there was a universe for everything. Branching paths, alternate realities... they are universes all the same." He paused for a moment, gazing upward. "This is the *true* Horizon. This... this is the plane where I came to be. I was something... else back then, of course. This universe was once much more alive, and this forest with it. Ah... but it was not meant to be, I suppose."
 
-His gaze dropped back down to Alex. "This place will not harm you while you are here. I am happy to return you to your previous location once you are ready, but I suspect that you have questions, on all that I have told you."
+His gaze dropped back down to Alex. "This place will not harm you while you are here. I am happy to return you to your previous location once you are ready." He stoked the campfire carefully, watching wisps of embers float up into the air. "I suspect that you have questions, on all that I have told you. But let us start with a question of my own - is the badge I have given satisfactory?"
+
+Alex nodded. "I didn't realise just how much i was missing being able the feel the textures of everything. Feeling the temperature, the wind - Not that there's much of anything *here*... But especially the food." She chuckled. "That said, since it is a badge, I guess I should ask... what would happen if I took it off?"
+
