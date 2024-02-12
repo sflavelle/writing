@@ -58,3 +58,4 @@ His gaze dropped back down to Alex. "This place will not harm you while you are 
 
 Alex nodded. "I didn't realise just how much i was missing being able the feel the textures of everything. Feeling the temperature, the wind - Not that there's much of anything *here*... But especially the food." She chuckled. "That said, since it is a badge, I guess I should ask... what would happen if I took it off?"
 
+"At this stage, you would return to your 'inbetween' state, following the rules and laws of your universe. But, thankfully, that would be that. Still not ideal, but by wearing it at all, you've fixed many of the remaining issues with multiversal travel."

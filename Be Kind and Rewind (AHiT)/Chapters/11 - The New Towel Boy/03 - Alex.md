@@ -16,7 +16,7 @@ Then he - they - glanced down at Alex's hands. She was holding a strange device 
 
 Almost in response to his unanswered question, Alex's thumbs began pulling the knob in a circular direction.
 
-And on the display, Hat Kid started moving in a circular direction, running in the direction the thumb-knob pointed.
+And on the display, Hat Kid started moving in a circular direction, following the direction the thumb-knob pointed.
 
 *Wait...*
 
