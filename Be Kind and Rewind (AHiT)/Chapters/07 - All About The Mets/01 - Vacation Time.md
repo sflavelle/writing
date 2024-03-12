@@ -8,7 +8,7 @@
 
 The question made him flinch. *Right, of course, the results were foregone especially this year... But to hear his penguins say it hurt.* "Er... perhaps. Look, to summarize my... complicated thoughts on the whole situation, I think we smashed this movie out of the park on this one, no matter what the judges say, and we *all* should take time to pat ourselves on the back, as it were."
 
-So it was that he was able to reassure his staff that he was fine, and he had accepted the upcoming loss, *this time*.
+So it was, that he was able to reassure his staff that he was fine, and he had accepted the upcoming loss, *this time*.
 
 ---
 

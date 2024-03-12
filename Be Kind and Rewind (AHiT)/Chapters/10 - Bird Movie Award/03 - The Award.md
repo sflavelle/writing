@@ -26,7 +26,7 @@ How could things have gone differently this time?
 
 How had he *won*, by doing seemingly nothing differently-
 
-"*YOU!*" A familar clawed hand grabbed his collar and yanked him backward, and he turned, brushing the hand away to come face to face with both Hat Kid and the Conductor. Neither were very pleased. "Where is it, peckneck?!"
+"*YOU!*" A familiar clawed hand grabbed his collar and yanked him backward, and he turned, brushing the hand away to come face to face with both Hat Kid and the Conductor. Neither were very pleased. "Where is it, peckneck?!"
 
 "I-I didn't--" the DJ stuttered, trying to explain himself, but the other cut him off before he could even start.
 
