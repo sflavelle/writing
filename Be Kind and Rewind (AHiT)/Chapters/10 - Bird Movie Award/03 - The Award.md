@@ -26,7 +26,7 @@ How could things have gone differently this time?
 
 How had he *won*, by doing seemingly nothing differently-
 
-"*YOU!*" A familar clawed hand grabbed his collar and yanked him backward, and he turned, brushing the hand away to come face to face with both Hat Kid and the Conductor. Neither were very pleased. "Where is it, peckneck?!"
+"*YOU!*" A familiar clawed hand grabbed his collar and yanked him backward, and he turned, brushing the hand away to come face to face with both Hat Kid and the Conductor. Neither were very pleased. "Where is it, peckneck?!"
 
 "I-I didn't--" the DJ stuttered, trying to explain himself, but the other cut him off before he could even start.
 
@@ -62,7 +62,7 @@ A memory flickered to the front of her mind, of when she had her first encounter
 
 "Darlin'!" Grooves gasped.
 
-"We *literally* faked a bird passport together!" the Kid cut him off. "But you weren't *forcing* me into anything, not really. *You*, however-" she spun round to Conductor. "You couldn't force me to be interested with a Time Piece, so I guess while I tried, I wasn't as invested in your movies."
+"We *literally* faked a bird passport together!" the Kid cut him off. "But you weren't *forcing* me into anything, not really. You bought my complicity with the promise of stardom. *You*, however-" she spun round to Conductor. "You couldn't force me to be interested with a Time Piece, so I guess while I tried, I wasn't as invested in your movies."
 
 DJ Grooves released a breath he didn't realise he was holding. "...So... I won because without the Time Pieces, I was still someone you... wanted to work with?"
 
@@ -84,6 +84,6 @@ For her part, Hat Kid shrugged. "So you really don't have a Time Piece on you?"
 
 "Not unless you snuck one onto me, darling." He spread his arms out once more. "Search me if you must."
 
-She shook her head. "I trust you. I just... didn't think that *not* losing Time Pieces over the planet would affect little things like this."
+She shook her head. "I trust you. I just... didn't think that *not* losing Time Pieces over the planet would affect things like this."
 
 "Yeah... huh."
