@@ -1,6 +1,6 @@
 ## Begin Again (DJ Octavio Remix)
 
-The morning after, Octavio, confident that Lily was under his control, sent her out to the edges of Octopia's reach. Her orders, she remembered, were to 'meet with the team patrolling Opal Springs, listen to their story, and share what you know'.
+The morning after the Great Zapfish capture, Octavio, confident that Lily was under his control, sent her out to the edges of Octopia's reach. Her orders, she remembered, were to 'meet with the team patrolling Opal Springs, listen to their story, and share what you know'.
 
 She had been allowed to wear the glove that covered her blemished skin, and she had been provisioned an outfit normally worn by the Octoling military while an outfit was commissioned. Under the influence of the hypnoshades, and with the new clothing, she felt like she was starting a new, 'better' chapter in her life.
 

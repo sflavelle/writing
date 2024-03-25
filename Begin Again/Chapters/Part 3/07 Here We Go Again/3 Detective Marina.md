@@ -76,7 +76,7 @@ Marina stopped pacing for a moment, and simply stared at her. Then she started t
 
 "Hmm, no sorry. They *do* record to a main storage drive, but if you have an adapter you could... probably get last night's data on that laptop of yours."
 
-"Oh, yeah, good idea! We should probably check Friday night too, just in case... let's see..."
+"Oh, yeah, good idea! I definitely have one floating around in my bag somewhere... Okay, let's see..."
 
 Half-talking to herself, she began to recount. "Okay, Friday night, Lily does her set and then vanishes. Nobody sees her until Saturday night," she nods at Sheldon, "and by then she's under their control. Wherever she went, the Octarians were right on her."
 
@@ -96,7 +96,7 @@ Half-talking to herself, she began to recount. "Okay, Friday night, Lily does he
 
 "Well, they all used to at one point," he recalled. "But Lily still does, every Friday night."
 
-"Okay, so I guess it can't be him, but what if..."
+"Okay, so I guess it can't be him, but what if they independently..."
 
 Marina trailed off.
 
@@ -108,4 +108,6 @@ Pearl's head kept turning to see both of their expressions, before gasping, real
 
 "Uhh, T-Tentakeel Hideout."
 
-Immediately Marina briskly made her way out the door. "Right. I'll be back. I'm going to check. And hope."
+Immediately Marina briskly made for the door. "Right. I'll be back. Sheldon, pull the footage for Friday night too!"
+
+Pearl made an apologetic face at Sheldon, then ran off after her.

@@ -14,7 +14,7 @@ Everyone stayed silent for a few moments, the three humans staring at the wall. 
 
 Hat Kid spoke up, making sure to keep her voice down. "No, they're my friend, Mu."
 
-"Of *course* they are." Mustache Girl thankfully lowered her voice.
+"Of *course* they are." Mustache Girl thankfully lowered her voice, even as she rolled her eyes.
 
 "You may refer to me as the Badge Seller, young one." The mask twitched slightly toward Hat Kid. "May I take a seat?"
 
@@ -50,7 +50,7 @@ He spread his arms wide. "Our universes leave marks on each other all the time, 
 
 Hat Kid raised a hand. "What... *are* we looking for?"
 
-"*Everything.* Video games, books, movies, musicals, sonnets. What I have learned from my journeys is that creativity is the birthplace of not just art, but entire universes - and that sometimes, that idea swimming in your thoughts is another universe waiting to make its mark through you."
+"*Everything.* Video games, books, movies, musicals, sonnets. What I have learned from my journeys is that creativity is the birthplace of not just art, but entire universes - and that sometimes, that idea swimming in your thoughts is another universe waiting to make its mark through you, or a new universe waiting to be experienced."
 
 He gestured toward Alex. "Alex experienced this universe as a video game because that's the way *your* universe left its mark on *hers*. But clearly this universe is not *just* a video game - it began long, long before she started playing, and will end long, long after she does. If it were, then perhaps you wouldn't know what Seaside was like *before* it was renamed Mafia Town," his outstretched arm moved to gesture at Mu. Then he gestured toward Hat Kid. "And you might not understand *why* you were a space traveller, trying to get home."
 
@@ -58,7 +58,7 @@ He gestured toward Alex. "Alex experienced this universe as a video game because
 
 Mu was silent, mouth gently hanging open as she stared at the Badge Seller. A few long moments passed before she finally asked, "Are you... a god or something? How do you know all this?"
 
-Badge Seller's laughter was warm and vibrant as his belly(?) shook, holding an arm against it to keep himself together. "No, no, young one, though I appreciate the compliment." He settled down after a moment. "No, I simply have lived for far too long, and have seen far more than perhaps one should. There is a reason why my form is... well, the way that it is." He glanced upward. "I became unmoored from my original universe a very long time ago, and I've become quite accustomed to travelling the multiverse."
+Badge Seller's laughter was warm and vibrant as his belly(?) shook, holding an arm against it to keep himself together. "No, no, young one, though I appreciate the compliment." He settled down after a moment. "No, I simply have lived for far too long, and have seen far more than perhaps one should. There is a reason why my form is... well, the way that it is." He glanced upward. "I became untethered from my original universe a very long time ago, and I've become quite accustomed to travelling the multiverse."
 
 "So... why does she look like *that*, then?" Mu jerked a thumb at Alex.
 

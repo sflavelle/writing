@@ -16,13 +16,13 @@ Then he - they - glanced down at Alex's hands. She was holding a strange device 
 
 Almost in response to his unanswered question, Alex's thumbs began pulling the knob in a circular direction.
 
-And on the display, Hat Kid started moving in a circular direction, running in the direction the thumb-knob pointed.
+And on the display, Hat Kid started moving in a circular direction, following the direction the thumb-knob pointed.
 
 *Wait...*
 
 Then the battle seemed to resume on the display, and then the pieces started to click into place.
 
-One button would make her jump, and she would easily avoid his shockwaves, or the crowd of minions he'd summon. Another, and she would swing her umbrella at him when he tried confusing her with his apparitions, all the while moving in the directions that the thumb-knob pointed. 
+One button would make her jump, and she would easily avoid his shockwaves, or the crowd of minions he'd summon to rush her. Another, and she would swing her umbrella at him when he tried confusing her with his apparitions, all the while moving in the directions that the thumb-knob pointed. 
 
 *So... you were in control of the brat?*
 
@@ -36,9 +36,9 @@ In response, her memory, her mind flickered to the new scene. They were in the s
 
 He relinquished his mental and physical grasp on her, and in his ethereal plane, he leaned back as Alex gasped for breath, clutching her head. "Uggh... warn a guy before doing that next time," she complained.
 
-"*What makes you think I owe it to you to do anything?*" Snatcher said in reply. "*Okay, no, you're not some servant of the tyrant, but you know enough to know better than to meddle in my affairs.*"
+"*What makes you think I owe it to you to do anything?*" Snatcher said in reply, arms crossed as he considered the human before him. "*Okay, no, you're not some servant of the tyrant, but you know enough to know better than to meddle in my affairs.*"
 
-He leaned forward, towering over the human. "*So here's what we're going to do. I am going to get you to sign something. Don't worry about the details. In return for a few chores around the forest, I'm going to let you live.*"
+He leaned forward, towering over her. "*So here's what we're going to do. I am going to get you to sign something. Don't worry about the details. In return for a few chores around the forest, I'm going to let you live.*"
 
 Alex swallowed. "...W-well, uh--"
 
