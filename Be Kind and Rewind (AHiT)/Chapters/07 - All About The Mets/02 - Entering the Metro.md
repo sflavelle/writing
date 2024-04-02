@@ -35,7 +35,7 @@ Metro Staff
 
 Indeed, next to the sign was a button on a stand. Pressing it--
 
-There was a rumble in the tunnels behind her, and Alex thought she heard an explosion in the distance. She turned her head back toward the tunnel. What was going on out there?
+There was a rumble in the tunnels behind her, and Alex thought she heard the sound of falling rocks in the distance. She turned her head back toward the tunnel. What was going on out there?
 
 Looking back, she saw a red light had lit up at the far end of the station. Now she just had to wait.
 
@@ -45,6 +45,10 @@ Looking back, she saw a red light had lit up at the far end of the station. Now 
 
 "Positive," Mustache Girl said confidently. "Those Mafia we beat up just blocked the way in. Again."
 
-"And... why'd they do that?" Kid raised an eyebrow.
+"And... why'd they do that?" Kid raised an eyebrow as she turned toward her.
 
+"Because fuck anyone who wants to visit, I guess. Uh-" Mu's eyes widened as she realised she had again sworn, but the Kid simply shrugged. Still... "Er, sorry. Guess you'll have to get used to me speaking my mind now and then."
 
+"I'd be more concerned if you didn't." She turned back toward the darkness. "Is there anything else down here that's interesting?"
+
+"Besides the station? Uhh..." Mu rested a hand on her chin as she thought. "Well, I remember there used to be a market once a weekend down here, along one of these corridors. Specifically for the travellers, y'know? But obviously that died out when the Mafia invaded and blocked up any entrances.
