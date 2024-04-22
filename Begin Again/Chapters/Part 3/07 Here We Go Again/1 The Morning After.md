@@ -43,3 +43,25 @@ Another groan. She heard the noises of her cousin getting out of bed and shuffli
 Callie's laptop, sitting on the coffee table, was her next port of call. Opening it up, she grabbed her phone, flicking on the switch to create a hotspot network to work with... and noticed there was no mobile signal to connect to.
 
 *What the heck is going on...?*
+
+First Lily, now this. Okay yeah, this was a much lesser problem, but things just weren't -- 
+
+Wait.
+
+First Lily, now this ...
+
+Callie stood, walking over to the bathroom door. "Marieee...?"
+
+"I haven't gone down the drain yet," her cousin chuckled from the other side.
+
+"I just had a feeling what might be going on, and I need you to convince me I'm wrong."
+
+"Shoot."
+
+"When... when I got squidnapped with the Great Zapfish..."
+
+"I already don't like where this is going."
+
+"...how... did you find out? Was it something like this?"
+
+There was a pause from the other side of the door. Then Callie heard a sigh from her cousin. "Callie... could you head down to the street and let me know if you see the Zapfish on the Tower?"
