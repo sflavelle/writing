@@ -18,7 +18,7 @@ This was all too much for her.
 
 She kept walking.
 
-As she walked, the white around her, having struck her as being a similar 'matte white' as in Smash Brawl promo material, started to dim, growing orange before fading into a dark gray, as if the sun was setting, somewhere. How, Alex had no idea.
+As she walked, the white around her, having struck her as being a similar 'matte white' as in Smash Brawl promo material, started to dim, growing orange before fading into a dark gray, as if the sun was setting, somewhere. How, Alex had no idea, as this realm seemingly had no sun.
 
 As the 'night' fell, she started to notice a sort of 'fog' around her, closing in on her it felt, bleeding the remaining light into pitch darkness the further out she looked.
 

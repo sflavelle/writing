@@ -4,7 +4,7 @@ The Conductor.
 
 In the darkness.
 
-Him, with one of his shiniest steak knives aimed at her neck
+Him, with one of his shiniest steak knives aimed at her neck.
 
 Her, with one of her dualies raised and pointed at his skull.
 

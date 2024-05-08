@@ -8,7 +8,7 @@ There was silence between the two for a bit.
 
 "...Are you still there?" Bow asked, softly. 
 
-Lily sighed, crouched and leaning against her side of the wall. "...yeah, I'm still here."
+Lily sighed, crouched and leaning against her side of the wall. Despite her apprehension she replied, "...yeah, I'm still here."
 
 A brief pause. "I'm sorry for my friend. She... well, I guess you heard."
 
