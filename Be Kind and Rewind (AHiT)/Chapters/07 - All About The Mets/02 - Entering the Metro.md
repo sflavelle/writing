@@ -51,4 +51,24 @@ Looking back, she saw a red light had lit up at the far end of the station. Now 
 
 "I'd be more concerned if you didn't." She turned back toward the darkness. "Is there anything else down here that's interesting?"
 
-"Besides the station? Uhh..." Mu rested a hand on her chin as she thought. "Well, I remember there used to be a market once a weekend down here, along one of these corridors. Specifically for the travellers, y'know? But obviously that died out when the Mafia invaded and blocked up any entrances.
+"Besides the station? Uhh..." Mu rested a hand on her chin as she thought. "Well, I remember there used to be a market once a weekend down here, along one of these corridors. Specifically for the travellers, y'know? But obviously that died out when the Mafia invaded and blocked up any entrances."
+
+"Right..." Hat Kid nodded, quietly, then stopped for a moment as a sound faded in in the distance.
+
+The sound of a train going by.
+
+"They're trying to get away!" Mu said, and suddenly the Kid was being pulled along as the hooded girl guided them down the halls in a run. "We gotta catch that train before it leaves!"
+
+A few more turns later and they found themselves at the train platform - with the train already beginning to leave. "Shit!" Mu shouted.
+
+Now it was Mu's turn to be pulled along. "Get up on the roof!" Hat Kid called as she leapt from the platform's edge - her momentum carrying her upward as she scrambled up onto the top of one of the train carriages, immediately turning to pull Mu up after her.
+
+"Duck!" Mu called, pointing, and she dove into a prone position, pulling the Kid down before her, before-
+
+The ceiling of the train tunnels were suddenly rushing over them, only a foot away from their heads. Both kids took deep breaths, catching themselves after the sudden action.
+
+"Well now what?!" Mustache Girl yelled over the noise of the train.
+
+"Now we tail her!" The Kid grinned. "With the both of us, she's not getting away!"
+
+"Nice!" Mu fist-pumped.
