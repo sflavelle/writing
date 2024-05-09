@@ -44,11 +44,11 @@ Callie's laptop, sitting on the coffee table, was her next port of call. Opening
 
 *What the heck is going on...?*
 
-First Lily, now this. Okay yeah, this was a much lesser problem, but things just weren't -- 
+First Lily, now this. Okay yeah, this was a much lesser problem, but things just weren't-- 
 
 Wait.
 
-First Lily, now this ...
+*First Lily, now this...*
 
 Callie stood, walking over to the bathroom door. "Marieee...?"
 
