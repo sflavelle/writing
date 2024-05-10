@@ -41,9 +41,11 @@ Looking back, she saw a red light had lit up at the far end of the station. Now 
 
 ----
 
-"Are you sure this is where she went?" Hat Kid asked her hooded companion as the two walked through the dark tunnels, a few minutes behind. In lieu of her umbrella, she held a flashlight out, illuminating the way for them.
+"Are you sure this is where she went?" Hat Kid asked her hooded companion, staring down through the blasted remains of the rock barrier into the Mafia Town tunnels.
 
 "Positive," Mustache Girl said confidently. "Those Mafia we beat up just blocked the way in. Again."
+
+The two headed into the dark tunnels, a few minutes behind. In lieu of her umbrella, as the light behind them faded into the distance, she held a flashlight that she soon switched on, illuminating the way for them.
 
 "And... why'd they do that?" Kid raised an eyebrow as she turned toward her.
 
