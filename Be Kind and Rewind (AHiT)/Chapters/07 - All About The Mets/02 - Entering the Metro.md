@@ -71,4 +71,22 @@ The ceiling of the train tunnels were suddenly rushing over them, only a foot aw
 
 "Now we tail her!" The Kid grinned. "With the both of us, she's not getting away!"
 
-"Nice!" Mu fist-pumped.
+"Nice!" Mu fist-pumped. "The Metro can't hide her from us!"
+
+There was a pause.
+
+"Oh, shit," came Hat Kid's voice.
+
+Mu gasped. "You can SWEAR?!" she shouted over the roar of sound, looking giddy.
+
+"I'm wanted in the Metro," she replied, a look of fear settling on her features.
+
+"Whoa. She can do crimes, too." Mu looked as if these revelations were shaking apart everything she had previously known about the Kid. "What, you got the rozzers after ya?"
+
+"No... worse. I've got *them* after me."
+
+"Oh," was Mustache Girl's soft reply. She'd heard rumors of the dark side of the Metro. It didn't surprise her that the Kid had ended up on their bad side. "What did you do?"
+
+"They took my Time Pieces..."
+
+"...So you took them back. Gotcha." She took a few moments to think. "We'll figure something out. Maybe we should get you into a disguise."
