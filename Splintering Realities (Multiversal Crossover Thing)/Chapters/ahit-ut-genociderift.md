@@ -30,7 +30,7 @@ Frisk grunted. "...do it, fucker."
 
 Even as the human's breaths labored, he could sense their confusion. he wished he could feel smug as he slowly strolled up to them. "you think i'm stupid, kid? you think I don't know that every time this fight has finished, we go back and do this all over again? nah. see, i've been thinking about this. while we're in battle, you can't reset. and since you're gonna be ticking away HP for the next..." he mimed checking a wristwatch for the time. "...eternity, we're technically still battling."
 
-"now, i'd love to *hang around*, but I have to go deal with the human friend who just fucked you over. don't worry, I'll come back. I'm sure you've got *a lot to get off your chest*."
+"now, i'd love to *hang around*, but I have to go deal with the human friend who just fucked you over. don't worry, i'll come back. i'm sure you've got *a lot to get off your chest*."
 
 Smirking, Sans turned away, waving sarcastically as he walked towards where he had seen the human girl in the hat.
 
@@ -60,7 +60,7 @@ Sans looked behind him. There was a block of green floating between this and the
 
 Sure enough, the human popped into existence midway through jumping off the far end of the block, to the next platform. 
 
-"I don't think you understand me, kid," said the skeleton as he was suddenly right beside Hat Kid again, causing her to flinch. "your other friend killed a lot of *my* friends. the underground does not. belong. to you."
+"i don't think you understand me, kid," said the skeleton as he was suddenly right beside Hat Kid again, causing her to flinch. "your other friend killed a lot of *my* friends. the underground does not. belong. to you."
 
 Hat Kid paused, her jaw opening, silent briefly. "...Mu did *what*."
 
@@ -68,4 +68,44 @@ Hat Kid paused, her jaw opening, silent briefly. "...Mu did *what*."
 
 Hat Kid watched him for a moment, thinking. Then she snapped her fingers. "Oh, no, the one you were going to town on isn't with me. Mu's my space travelling partner. We're trying to find a way to fix the multiverse. And we encountered this rift's signature and we Tempus travellers have an obligation to fix them when we encounter them."
 
-He stared blankly at her. "... this is a gag, right?"
+He stared blankly at her. "... you got some imagination, kiddo." Sans paused, and looked around him at the space around him.
+
+The world which contained this 'time rift' felt very... abstract. As opposed to the confines and constant walls of the Underground, the reality around this tower of crystallized blocks was almost endless, a gently warping, shimmering space, almost as if this space were underwater. Up above them, far above, was a translucent plane that undulated and moved slowly, the light passing through from... something, casting its rays and shadows on everything. And off in the distance, he could see some massive creature just... casually floating about in this realm - not hostile, but perhaps not friendly. Just... there.
+
+This wasn't always here, hidden behind the pillars of Asgore's Judgement Hall, was it?
+
+Turning back to the human kid, he found that she had, again, moved ahead. He caught a glimpse of her near the top, floating back down to him with an open umbrella in one hand, and a glowing hourglass clutched to her chest with the other.
+
+...heh. time rifts. hourglasses. 'tempus' traveller.
+
+The kid landed next to Sans, pulled the umbrella shut and hooked it into her belt, and reached out to him with her now-freed hand. "Here, hold on to me," she said simply.
+
+"...uhhh." Man, this girl was weird. "what's your deal, kid? ain't you scared of monsters like me?"
+
+She shook her head. "I've befriended scarier. Seriously though. I don't know how you got in, but I don't want to accidentally leave you stuck here." 
+
+Sans looked down at the outstretched hand, his own fingers fidgeting. He hadn't wanted to return them to his pockets *just in case*. He closed his eyes for a moment, thinking, then slowly he placed his bony hand in the kid's. "that happen often?" he asked her, tilting his head questioningly.
+
+The kid looked at him pointedly. "You're the first non-Tempus I've seen able to perceive these at all, much less get in. Perhaps the same rules don't apply in this universe, though..."
+
+As she focused, the hourglass's glow seemed to grow brighter, so bright Sans had to close his eyes.
+
+"*Like with Alex...*" he heard the kid say.
+
+Then suddenly they were both falling and his eyes shot open - only to find himself landing back on the tiled floor of the Judgement Hall.
+
+If he could have let out a breath of relief...
+
+Instead, he gestured the kid to follow him out onto the carpet, and pointed out the other human who was still impaled, still breathing (shakily, Sans noticed). "what about him then, kid?"
+
+The kid cringed at the display of the clearly dying person, but her eyes turned back to him. "Is this the one that killed-"
+
+"yeah," Sans cut her off. "...yeah, he did. but he's human, right? that's all that matters?"
+
+She shook her head immediately. "First off, I'm pretty much an alien, not human. Second, if he's a killer, I don't care what he is, he can burn in hell."
+
+This kid's immediate damning of Frisk was surprising to Sans, but it brought with it a certain amount of relief, a lightening of the weight he was carrying. *This one seemed okay. He could relax.*
+
+Well, as much as he could relax, with the reality he now faced.
+
+"That guy did WHAT?!" came a second girl's shouts from behind them.
