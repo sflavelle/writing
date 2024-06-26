@@ -106,6 +106,10 @@ She shook her head immediately. "First off, I'm pretty much an alien, not human.
 
 This kid's immediate damning of Frisk was surprising to Sans, but it brought with it a certain amount of relief, a lightening of the weight he was carrying. *This one seemed okay. He could relax.*
 
-Well, as much as he could relax, with the reality he now faced.
+Well, as much as he could relax, with the reality he now faced. "heh. y'know, I said the same thing to him earlier."
 
 "That guy did WHAT?!" came a second girl's shouts from behind them.
+
+Sans turned again.
+
+The hatted kid's friend wore a red cloak, long blonde hair and an *impressive* moustache for a child. He could immediately tell that this one wore her emotions on her sleeve more than her friend did.
