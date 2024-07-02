@@ -118,7 +118,7 @@ The hatted kid's friend wore a red hooded cloak, long blonde hair and an *impres
 
 "Oh!" The purple-garbed kid hopped in place. "You can call me Hat Kid! This is Mustache Girl, my cohort."
 
-The snort that erupted from Sans had the girls share an awkward look. "man, if things had been different... I would've loved for you to meet *Monster Kid*," he explained with a chuckle. 
+The snort that erupted from Sans had the girls share an awkward look. "man, if things had been different... i would've loved for you to meet *monster kid*," he explained with a chuckle. "name's sans."
 
 Mu raised an eyebrow, then turned to Hat Kid. "I couldn't find the source of that time fluctuation out there." She gestured past the doors that Frisk had strolled in through, whilst pulling a device from the hoodie pocket. "The fluctuations seemed to stop once we got down here--"
 
@@ -128,4 +128,63 @@ Sans watched warily as Mu stepped back and scanned the room with the device, hea
 
 Hat Kid gave him a look. 
 
-"...welp, looks like my *time's up*," Sans said in his deadpan voice.
+Sans eyed her back. "...time fluctuations, huh? what kind?"
+
+"...whatever's been happening in this universe," Hat Kid explained slowly, "time keeps jumping back to about a few minutes ago. Weird that it hasn't done it again yet..."
+
+"ah. yeah." The skeleton nodded back at the perpetrator behind him. "that's him RESETting."
+
+"Resetting...?" Mu gave him a weird look. "What, like a video game? Don't you just mean he's time travelling?"
+
+"yes and no..." Sans looked about awkwardly. It felt weird to be talking about this with someone, more so to a ~~human~~ humanoid alien thing. "look, uh... i'm not sure it matters now anyway. either he'll die and we'll fight again, or he'll lose his determination before then and... everyone else will still be dead. fuck, man," he mouthed.
+
+"Everyone...?" Hat Kid's eyes were wide.
+
+"the entire monster race," Sans nodded solemnly, and the girls noticed his eyes, or pupils or whatever had disappeared, leaving a blank stare. It was... kind of unnerving. "ever since the war however many... thousand years ago. this underground system has been our home. we're all however many generations removed from it..."
+
+"b u t  w e  n e v e r  f o r g o t."
+
+He turned, eyelights still out, so that he faced the door outside. "evidently the humans didn't, either. i've never in my life seen a kid with so much fear, so much hate. and now? thanks to him, it's just... me. me and asgore."
+
+He turned again, slowly pacing toward what was left of Frisk. The girls nervously followed. "y'know, it's funny. all this resetting. all this going back to stop himself from dying. this... determination, to kill us. and it never occurred to him to go back further. before he came down here, before whatever happened that set him on this path."
+
+He sighed, and Hat Kid wondered how he did that. He appeared to remove something from his hoodie, and she wondered what he had-
+
+And then casually, Sans slid Frisk's knife through his temple. Hattie let out a shocked gasp, while Mu simply uttered a "whoa".
+
+"if this has to be how the monster race ends, with me locked in battle with this... devil child. then so be it. he'll be resetting in a moment, i imagine."
+
+Sans finally turned toward Hat Kid and Mu, and his pupils were back. He looked tired. "been nice to meet some humanoids who *didn't* want us dead, at least. so, thanks. wish I could enjoy it."
+
+"...It's... been nice to meet you, Sans," Hat Kid nodded slowly. "I'm sorry that this has happened."
+
+"Yeah, I'm glad someone's got this bad guy under control." Mu reached out for a fist-bump.
+
+Sans looked at it for a moment, then relented, tapping his knuckles against hers. "heh. thanks, kiddos. i appreciate the support. really."
+
+There was a pause.
+
+"i'm kinda surprised it hasn't happened yet, actually." He slowly faced Frisk's body, retracting the bone pillar that had held him up. The corpse collapsed to the ground. "he would've been right back onto me by now."
+
+"...Has he... given up?" Mu raised an eyebrow.
+
+"perhaps." The skeleton made a thinking noise. "well, i should probably go ahead and tell the king the, uh, 'news'. and then... man, i dunno."
+
+"Why don't you come with us?" Hat Kid said suddenly. Mu's features flashed in surprise, as if it were unexpected. "You don't have to be stuck down here. We could... use some help. There's a being called Moonjumper that's on the loose in the multiverse, tearing holes in realities. We're trying to put together something to track them down and hopefully restore everything back to how it was, and your... magic, is it? Would be useful in not just helping us, but helping the people and creatures of the multiverse that are affected."
+
+Sans stood silently for a few moments. He glanced at Hat Kid's face, saw that she was serious, and hesitated before Checking her and her friend.
+
+```
+* Haley Komett - LVL 2 HP 4/4
+* Her problems started the day she passed that planet.
+* What she would give to go back to drawing faces on potatoes.
+
+* Mu - LVL 1 HP 4/4
+* She still doesn't quite understand how she's here alongside her.
+* Judge, jury, executioner in one timeline, space/time adventurer in the next.
+```
+
+"...i dunno, kid. sounds like a fun time, but... do you really want a sad old bag of bones like me?" He eyed Mu carefully.
+
+"She's befriended flamboyant birds, a robot vacuum, an evil lawyer spirit and his puppets, and a bunch of seals," Mu rattled off. "Buddy? You're child's play for her."
+
