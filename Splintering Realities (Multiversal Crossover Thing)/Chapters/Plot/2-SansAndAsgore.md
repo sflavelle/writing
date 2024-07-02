@@ -72,7 +72,7 @@ He stared blankly at her. "... you got some imagination, kiddo." Sans paused, an
 
 The world which contained this 'time rift' felt very... abstract. As opposed to the confines and constant walls of the Underground, the reality around this tower of crystallized blocks was almost endless, a gently warping, shimmering space, almost as if this space were underwater. Up above them, far above, was a translucent plane that undulated and moved slowly, the light passing through from... something, casting its rays and shadows on everything. And off in the distance, he could see some massive creature just... casually floating about in this realm - not hostile, but perhaps not friendly. Just... there.
 
-This wasn't always here, hidden behind the pillars of Asgore's Judgement Hall, was it?
+This wasn't always here, hidden behind the pillars of the Judgement Hall, was it?
 
 Turning back to the human kid, he found that she had, again, moved ahead. He caught a glimpse of her near the top, floating back down to him with an open umbrella in one hand, and a glowing hourglass clutched to her chest with the other.
 
@@ -106,6 +106,26 @@ She shook her head immediately. "First off, I'm pretty much an alien, not human.
 
 This kid's immediate damning of Frisk was surprising to Sans, but it brought with it a certain amount of relief, a lightening of the weight he was carrying. *This one seemed okay. He could relax.*
 
-Well, as much as he could relax, with the reality he now faced.
+Well, as much as he could relax, with the reality he now faced. "heh. y'know, I said the same thing to him earlier."
 
 "That guy did WHAT?!" came a second girl's shouts from behind them.
+
+Sans turned again.
+
+The hatted kid's friend wore a red hooded cloak, long blonde hair and an *impressive* moustache for a child. He could immediately tell that this one wore her emotions on her sleeve more than her friend did. "We *have* to stop them!" she declared. 
+
+"already taken care of," Sans said casually. "and you two are...?"
+
+"Oh!" The purple-garbed kid hopped in place. "You can call me Hat Kid! This is Mustache Girl, my cohort."
+
+The snort that erupted from Sans had the girls share an awkward look. "man, if things had been different... I would've loved for you to meet *Monster Kid*," he explained with a chuckle. 
+
+Mu raised an eyebrow, then turned to Hat Kid. "I couldn't find the source of that time fluctuation out there." She gestured past the doors that Frisk had strolled in through, whilst pulling a device from the hoodie pocket. "The fluctuations seemed to stop once we got down here--"
+
+She was cut off by the device emitting a scratching noise, like a Geiger Counter. It had been pointing in the direction of Sans and Frisk. 
+
+Sans watched warily as Mu stepped back and scanned the room with the device, hearing it come to life as it pointed at him, and with a more pronounced effect at Frisk. "What in the..." was all Mustache Girl said.
+
+Hat Kid gave him a look. 
+
+"...welp, looks like my *time's up*," Sans said in his deadpan voice.
