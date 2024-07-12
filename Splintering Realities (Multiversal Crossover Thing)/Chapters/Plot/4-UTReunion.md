@@ -1,3 +1,11 @@
+<!-- Note to self - The team would previously land on an Earth-like planet and gather clues, information -->
+
+The park area was peaceful, at least.
+
+This place in general, this planet, this universe, filled him with a sense of calm that he had not felt since... before Frisk had arrived into his life. Man, he really had it good until then, he thought.
+
+The calm was then promptly shattered by the sound of a voice, calling over the din.
+
 "WOWIE! LOOK! THEY SELL NICE CREAM UP HERE TOO!"
 
 The shouting voice, though not directed at them, made both Sans and Asgore freeze, Hattie confused and looking between the two.
