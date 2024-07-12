@@ -48,7 +48,7 @@ Then he was enveloped in blue magic, a force crashing him roughly to the ground.
 
 "then-"
 
-"i am."
+"*i* am."
 
 Sans froze again.
 
@@ -58,15 +58,15 @@ Slowly, he turned his head toward the source of the voice...
 
 It took him a few seconds to process all this.
 
-And when he did, he simply let his skull knock against the ground. "God damnit, i'm an idiot."
+And when he did, he simply let his skull knock against the ground. "god damnit, i'm an idiot."
 
 "Sans," came Hat Kid's voice from behind him, and both Sans the Skeletons looked toward her, still riding atop Asgore's frame as they approached. "I *told* you about parallel universes, 'bro'."
 
-"i know!" he replied from the ground. "i had a moment, okay?"
+"i know!" he replied from the ground, knocking his skull again. "i had a moment, okay?"
 
 "hey buddy," Other Sans greeted Asgore, still keeping his target pinned. "this bonehead with you?"
 
-"GREETINGS, KING ASGORE!" Papyrus greeted loudly. Frisk had taken to hiding behind him, peeking their head out carefully "YOU SHOULD HAVE LET US KNOW YOU WERE GOING TO JOIN US FOR NICE CREAM."
+"GREETINGS, KING ASGORE!" Papyrus greeted loudly. Frisk had taken to hiding behind him, peeking their head out carefully. "YOU SHOULD HAVE LET US KNOW YOU WERE GOING TO JOIN US FOR NICE CREAM."
 
 Despite the situation, Asgore couldn't help but snort. Trust Papyrus to lighten the mood, no matter the universe. "Yes, I apologise for him. The two of us have been through rather a lot, but we don't mean harm."
 
@@ -78,8 +78,26 @@ Despite the situation, Asgore couldn't help but snort. Trust Papyrus to lighten 
 
 "Sup, Asgore?"
 
-"Be quiet for a moment." He sighed. "Sans, Papyrus, Frisk, I deeply apologise. It is good to see you all well. It is simply unfortunate that, in our original universe, it was our Frisk that... slaughtered the monster race."
+"Be quiet for a moment." He sighed, and Other Sans snorted. "Sans, Papyrus, Frisk, I deeply apologise. It is good to see you all well. It is simply unfortunate that, in our original universe, it was our Frisk that... slaughtered the monster race."
 
 Papyrus gasped dramatically. Sans' hard expression softened, as he started to realise what would have gone through the other's mind on seeing them. Frisk clapped a hand over their mouth, mortified.
 
-"i saw them and... was reminded of seeing them in the judgement hall, covered in my friends' dust," the Sans pinned to the ground explained. "forgot this wasn't our reality for a moment there."
+"i saw them and... was reminded of seeing them in the judgement hall, covered in my friends' dust," the Sans pinned to the ground explained. "i... i'm still dealing with living through that. ...forgot this wasn't our reality for a moment there."
+
+Asgore softly said in response, "I believe you may have had that coming then, my friend."
+
+"NOTHING TO FRET ABOUT HERE THEN, FRIENDS AND HUMANS!" Papyrus stood tall, lifting a surprised Frisk in front of him. "FOR OUR FRISK IS THE ONE WHO BROKE THE BARRIER AND GUIDED US ALL TO THE SURFACE!"
+
+"if you couldn't tell," Pacifist Sans chuckled.
+
+Asgore smiled warmly. Turning his head to the child on his shoulder, he inquired, gesturing to the two Sanses, "I don't suppose you have something to tell these two apart, do you?"
+
+Hat Kid thought briefly, then lifted her tophat, rummaged around inside of it, then pulled one of her Ice Hats from it - a beanie - and leapt from Asgore's shoulder to rush forward and, as Pacifist Sans released his hold on the other, rushed up to her Sans and swiftly slid the beanie onto his head. "Tada!"
+
+"heh, thanks kiddo," Tempus Sans said to her, ignoring the shiver she gave on hearing the word 'kiddo'. He glanced toward his twin. "...sorry, bud. despite all the crazy shit we've been dealing with with the multiverse 'n' all that, it hasn't *really* been that long ago. but... that frisk is long gone, and I shouldn't've... yeah." He turned to Frisk, whom Papyrus had put down now, the kid still nervous. "i'm sorry to scare ya, kid. that was no way to greet a new pal."
+
+As Tempus Sans and Frisk made up and slowly began to chat, Asgore looked toward Pacifist Sans and Papyrus. "Does that mean all our friends are...?"
+
+"yep," Pacifist Sans nodded. "the other monsters are slowly integrating, but our little group is at least together. we bought out this apartment building nearby. i guess then you'd like to see everyone?"
+
+"If you would be so kind," Asgore nodded. "It would put my mind at ease to see that, at least in one reality, things turned out for the better."
