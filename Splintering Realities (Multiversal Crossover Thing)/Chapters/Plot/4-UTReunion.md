@@ -98,6 +98,62 @@ Hat Kid thought briefly, then lifted her tophat, rummaged around inside of it, t
 
 As Tempus Sans and Frisk made up and slowly began to chat, Asgore looked toward Pacifist Sans and Papyrus. "Does that mean all our friends are...?"
 
-"yep," Pacifist Sans nodded. "the other monsters are slowly integrating, but our little group is at least together. we bought out this apartment building nearby. i guess then you'd like to see everyone?"
+"yep," Pacifist Sans nodded. "the other monsters are slowly integrating, but our little gang is at least together. we bought out this apartment building nearby. i guess then you'd like to see everyone?"
 
 "If you would be so kind," Asgore nodded. "It would put my mind at ease to see that, at least in one reality, things turned out for the better."
+
+----
+
+"WE RETURN, FRIENDS!" Papyrus declared as he, Sans, Frisk, Sans, Asgore, and two human kids walked in to the common room as if nothing was unusual.
+
+The apartment complex's common room was furnished as little more than a big living area, with a connected kitchen, a table set aside for dining, and an ice hockey table in the corner. Sitting in various places on the extended lounge were Toriel, who was knitting; Alphys, currently in discussions with a young-looking humanoid creature next to her and... wait was that DJ Grooves and Mettaton?!
+
+"Darlings!" Grooves called at the sight of Hat Kid and Mu, and Hattie gasped in delight, eyes wide as she rushed over to give the moon penguin a hug, earning an amused 'How adorable~' from the robot. Toriel looked up from her knitting needles, partially-made woollen scarf dangling as she took in the two new humans. "I am *so* happy to see you all in good shape in the midst of this mess. Yes, even you, red darlin~," he nodded at Mu, stood in the doorway as the skeletons moved in, Papyrus and Frisk carrying their shopping haul while Sans floated his behind him. "Y'all'll have to fill me in on what's been happening."
+
+"We will, I promise," Hat Kid smiled at him. It became a grimace briefly as she added, "I'm sorry about Alex going missing. We're trying to find the guy who kidnapped her, but it's been tricky dealing with all this multiversal stuff he's been causing."
+
+The penguin only smiled warmly at her, and pulled her into a hug. "I'm so proud of you, my little diva. I know you'll do your absolute best."
+
+"Is this the young child you've told me so much about?" Toriel looked upon the scene with warmth in her eyes and a fond smile on her muzzle. "It is a pleasure to meet you, my child. You may call me Toriel, and these are our friends. You will be safe here," she added, raising a paw to her chest, where her heart would be.
+
+"hey tori," Sans greeted casually from her right, and she turned to face the skeleton, with Frisk next to him. "the kid got a bit spooked earlier. i think they're doing better, but they could use some comfort this sack of bones just isn't equipped with." He let out a soft chuckle.
+
+"Aww, my poor child." Toriel patted her lap, and adjusted herself on the seat as Frisk made themselves comfortable with their adoptive mom. "You didn't leave them all *bonely* on the street, did you?"
+
+"ouch. throw me a bone here, tori."
+
+"If you let them get hurt, I promise you'll be in a skele-*ton* of trouble." The warmth in her eyes was there, but there was a more serious edge to her voice that Sans immediately noticed.
+
+She paused when he noticed the skeleton's deer-in-the-headlights expression. There was something he was not telling her. She heard Alphys, somewhere to her left, stutter out, "S-s-...Sans...?"
+
+"hey there alphy. it's... it's good to see you again." Sans' voice was now coming from her left.
+
+"W...why are there two of you?"
+
+Toriel opened her eyes, glancing over.
+
+There was Sans, standing before Alphys with a look of... relief and joy on his face. When had he put that peculiar beanie on?
+
+Sans made a coughing noise, to her right again. She turned and... there he was.
+
+Wait.
+
+She did a double-take. Turning toward Sans by Alphys, then back toward Sans beside her.
+
+"...tori?" Sans, her Sans, spoke gently. "can we... get the others down here? there's a bit of a discussion that needs to be had."
+
+"...Sans?" Both looked toward her, but she was focused on the one she knew. "What's going on?"
+
+"look, uhh. you know some weird stuff has been going on with the portals, and lily, and everything. he... hasn't seen us for a while. give him some slack. they'll explain everything, but we should probably get everyone down here first."
+
+Slowly, Toriel nodded. "Okay. I'm trusting you."
+
+"i know." He ruffled Frisk's hair before backing away and leaving the common room.
+
+After speaking to Alphys for a bit, Beanie Sans eyed the goat monster, seemed to take a breath, and carefully sat down next to her as she resumed her knitting, taking her in. Toriel felt a gentle, but concerning pull of apprehension. What was this Sans like? Why were there two of them? Was it something to do with the other human children, and that moon penguin, and the other weird things that have been happening?
+
+"it's nice to see everyone so... happy, so relaxed."
+
+Toriel glanced toward him, noticed him fidgeting slightly, keeping his hands clasped together. Did her Sans do that too? She couldn't remember. "Have... things been tough?"
+
+"heh. you could say that. it's been better since i ended up with the kids, but..." Sans sighed. "i do kinda miss the way things were, the old routine."

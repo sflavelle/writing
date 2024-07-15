@@ -186,5 +186,5 @@ Sans stood silently for a few moments. He glanced at Hat Kid's face, saw that sh
 
 "...i dunno, kid. sounds like a fun time, but... do you really want a sad old bag of bones like me?" He eyed Mu carefully.
 
-"She's befriended flamboyant birds, a robot vacuum, an evil lawyer spirit and his puppets, and a bunch of seals," Mu rattled off. "Buddy? You're child's play for her."
+"She's befriended the Mafia, a robot vacuum, an evil lawyer spirit and his puppets, and a bunch of seals," Mu rattled off. "Buddy? You're child's play for her."
 
