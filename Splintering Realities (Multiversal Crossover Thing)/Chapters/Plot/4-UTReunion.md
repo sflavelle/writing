@@ -152,8 +152,8 @@ Slowly, Toriel nodded. "Okay. I'm trusting you."
 
 After speaking to Alphys for a bit, Beanie Sans eyed the goat monster, seemed to take a breath, and carefully sat down next to her as she resumed her knitting, taking her in. Toriel felt a gentle, but concerning pull of apprehension. What was this Sans like? Why were there two of them? Was it something to do with the other human children, and that moon penguin, and the other weird things that have been happening?
 
-"it's nice to see everyone so... happy, so relaxed."
+"it's nice to see everyone. so... happy, so relaxed."
 
 Toriel glanced toward him, noticed him fidgeting slightly, keeping his hands clasped together. Did her Sans do that too? She couldn't remember. "Have... things been tough?"
 
-"heh. you could say that. it's been better since i ended up with the kids, but..." Sans sighed. "i do kinda miss the way things were, the old routine."
+"heh. you could say that. it's been better since i ended up with the kids, but..." Sans sighed. "i do kinda miss the way things were, the old routine. not being in the underground, i mean. just how... domestic everything was in our lives." He looked up towards her. "...i missed hearing your jokes, tori."
