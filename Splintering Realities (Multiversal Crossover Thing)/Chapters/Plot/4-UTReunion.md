@@ -204,7 +204,7 @@ As the monsters they knew smiled and cheered them on, they held up a hand to get
 
 "...fear is a powerful thing, just as much as the determination in their soul," Sans spoke for them. "and the thing about humans, and a lot of creatures, no matter what species, is... if they believe they've been cornered, and the only way to safety is through, well... you would be surprised what they're capable of. ...i harbor no ill feelings for frisk, the person. the actions of frisk here, in this reality, are a testament to the ability to keep an open mind and to not let fear control you. i'm glad, really, to have the opportunity to meet this frisk."
 
-"So if their Frisk was pushed to hurt monsters, how many of their friends here are okay?" DJ Grooves asked.
+"So if their Frisk was pushed to hurt monsters, how many of their friends in that world are okay?" DJ Grooves asked.
 
 "...well, there's asgore and myself," Tempus Sans began, counting on his fingers as if he were going to name more... but after the two, he paused after a few seconds, and then slowly he put his hands away, his grin shifting into more of a grimace.
 
