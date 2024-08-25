@@ -1,4 +1,4 @@
-----
+## All About the Mets
 
 Getting into the tunnels of Mafia Town was perhaps more troublesome than Cookie had made it out to be.
 
@@ -87,8 +87,14 @@ Mu gasped. "You can SWEAR?!" she shouted over the roar of sound, looking giddy.
 
 "No... worse. I've got *them* after me."
 
-"Oh," was Mustache Girl's soft reply. She'd heard rumors of the dark side of the Metro. It didn't surprise her that the Kid had ended up on their bad side. "What did you do?"
+Another pause as this sank in.
+
+"Oh," was Mustache Girl's soft reply. She'd heard rumors of the dark side of the Metro. It didn't surprise her that the Kid had ended up on the Nyakuza's bad side. "What did you do?"
 
 "They took my Time Pieces..."
 
 "...So you took them back. Gotcha." She took a few moments to think. "We'll figure something out. Maybe we should get you into a disguise."
+
+"...Where the heck are you gonna just, get a disguise?"
+
+"Hmmm... I think I have an idea."

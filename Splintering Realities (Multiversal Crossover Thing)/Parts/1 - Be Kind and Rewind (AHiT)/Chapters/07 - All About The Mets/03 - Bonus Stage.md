@@ -1,3 +1,17 @@
+****
+
+Meanwhile, inside the train, Alex attempted to decide where she would head.
+
+Subcon was *definitely* out, not that she could reach it by train - she assumed. Snatcher didn't seem like he'd be okay with just having public transport lead right to his doorstep. (Unless he was that desperate for souls to eat.)
+
+The Alpine, maybe? Living so high up would be an adjustment, with the low oxygen levels, but it could *probably* be done... so long as she didn't slip off the mountains.
+
+It seemed like the sanest option would be whereever 'Bird California' (she let herself chuckle) was. It was a desert, she remembered, so she was expecting hot days and probably cold nights. The only question mark would be whether work would be available for her, not being a bird. Although she had a feeling Dead Bird Studios was *not* the norm for employment...
+
+Well, there was only one way to find out.
+
+And so, Alex settled in for the ride through, busying herself by grabbing a pamphlet containing a map of the Metro, and plotting which lines she'd need to take.
+
 At one stop, Alex witnessed a conversation between two apparent cat workers. Two boarded through the door nearest Alex, both dressed for the office, one with glasses, and sat next to each other. As they came in, the coworker was saying to his glasses friend, "...so you have to go back to them in a week. But you can't do jack! 'Cause they're, y'know, tied! To the Mafia!"
 
 Glasses was seemingly too busy looking at his phone to reply. Coworker covered the phone with his paw. "I *know* this fascinates you, you... fascinator."
