@@ -177,13 +177,13 @@ There was an awkward pause, the halls silent.
 Sans stood silently for a few moments. He glanced at Hat Kid's face, saw that she was serious, and hesitated before Checking her and her friend.
 
 ```
-* Haley Komett - LVL 4 HP 4/4
+* Haley Komett - LV 4 HP 4/4
 * Her problems started the day she passed that planet.
 * What she would give to go back to drawing faces on potatoes.
 ```
 
 ```
-* Mu - LVL 1 HP 4/4
+* Mu - LV 1 HP 4/4
 * She still doesn't quite understand how she's here alongside her.
 * Judge, jury, executioner in one timeline, space/time adventurer in the next.
 ```
