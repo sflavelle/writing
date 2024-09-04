@@ -92,7 +92,7 @@ There's silence for a few long moments.
 
 "...You chained yourself up, Jevil?" Ralsei finally says, confusion on his features.
 
-"Ugh," you begin, rolling your eyes, but-
+"Ugh," you begin, rolling your eyes, before you notice that the words also appear in a floating box in front of your eyes. What...? You start to reply, but-
 
 "Didn't think you were into that," Kris says quietly, smirking. Susie snorts at the implied innuendo.
 
@@ -120,15 +120,17 @@ Ralsei takes the key, unlocks the cell door that has suddenly appeared between y
 
 The healer lifts a hand, and you feel a ticklish sensation in your chest. You let out a huff, trying not to let it get to you as Ralsei does... whatever he needs to do, the other two protecting him from you.
 
-A few uncomfortable moments later, Ralsei's hand falls, the magic in your chest dissipating, and his eyes widen. "That's not Jevil's SOUL in there. That's... a human SOUL."
+A few uncomfortable moments later, Ralsei's hand falls, the magic in your chest dissipating, and his eyes widen. "That's not Jevil's SOUL in there, Mr. Rules Card. That's... a human SOUL."
 
-"Truly...?" Blue Guy looked at you with a hint of confusion and hesitation. "Then... where *is* his souleth?"
+You note that the dialogue box you've been seeing spells his name as 'Rouxls Kaard'. You roll your eyes. This man is ridiculous.
+
+"Truly...?" Rouxls looked at you with a hint of confusion and hesitation. "Then... where *is* his souleth?"
 
 God, *please* stop.
 
 "If I had to guess..." Ralsei paused, thinking. "Jevil may have cast a bodyswap spell to escape, somehow."
 
-What. "So the guy who y'all think *I* am, is running around somewhere in *my* body?!" You scowl.
+What. Your eyes open wide. "So the guy who y'all think *I* am, is running around somewhere in *my* body?!" You scowl.
 
 A look is shared between the group in front of you. "That's... a problem," Kris murmurs.
 
@@ -140,12 +142,90 @@ She looks at you with suspicion, seeming to think over what her companion has sa
 
 Then she begins to approach you, shifting the axe properly into her hands.
 
-Your stomach drops. "Wait, what the hell?" You cry out, beginning to panic. "Didn't you hear him? I'm innocent! I'm-- AHHH!"
+Your stomach drops. "Wait, what the hell?" You cry out, beginning to panic. "Stop! Didn't you hear him? I'm innocent! I'm-- AHHH!"
 
 Your eyes slam shut as she lifts the battle axe and takes a swing.
 
 You hear a deep **thud**, and --
 
--- and you fall the couple of feet to the ground, your legs buckling, and your arms searing with pain now that they aren't numb from being pulled upward for so long. You choke back a few deep breaths, seeing the now broken chains around your wrists. "F-fuh... fuckin' hell... Nearly pissed myself, give a guy a fuckin' warning next time."
+Your chains snap.
+
+Your eyes snap back open as you fall the 3 feet to the ground, your legs immediately buckling, and your arms searing with pain now that they aren't numb from being pulled upward for so long. You choke back a few deep breaths amidst a stream of curses, seeing the now broken chains around your wrists. "F-fuh... fuckin' hell... Nearly pissed myself, give a guy a fuckin' warning next time."
 
 Susie allows herself a snort at the profanity sprouting from the chaos jester's mouth. "Okay, fine, yeah, that's not him. So if you're in *his* body, where's *your* body?"
+
+You take a few deep breaths first, curling an aching arm around your - his - chest. "Well, he'll be--"
+
+Your eyes widen. Wait. "He's... in another universe."
+
+"...He's managed to escape to the Light World?!" Ralsei asks, a panic in his voice.
+
+You shake your head, and slowly clamber to your feet. "World's a world, dude. No, I'm... separate, from all this. Living an entirely different life. None of this... magic, monsters. Not a thing. I'm from a different universe completely."
+
+There was silence as you finally stood, and you looked at the jester hat on the ground. You reached out with a purple-grey, clawed hand to pick it up, looking it over. "Guess that means either my world's fucked, or... or he is, heh. Depending on where the magic went."
+
+Kris frowned. "A conundrum."
+
+"I wish I could help you more on finding him." You shook your head. 
+
+"We'll find a way," you heard Ralsei say, and you are surprised when you suddenly feel his paw on your shoulder. You look up at them and smile. 
+
+He turns to the group. "Well, looks like we've got a mystery to solve before we close up this fountain, hmm?" He grins.
+
+"Sounds like a plan, squirt!" Susie grins, exposing her sharp teeth and clenching a fist. "The lil idiot won't know what hit him!"
+
+She rushed out of the cell, and quickly vanished out of sight. "Susie, wait!" Ralsei called after her, following.
+
+Kris started to follow after them, then paused, looking at you with a curious look to their expression.
+
+Then they also turned and left, leaving you with Rouxls Kaard. What a name. What a stupid, stupid name. Now that the others were gone, you were unchained, and the cell door was still wide open, he watched you with some apprehension, as if you were going to show your true colors now that the Lightners were gone. You cocked your head to the side, raising an eyebrow. "I suppose you're going to lock me back up now, huh?"
+
+He hesitated before answering. "I... don't knoweth." Though he stood in place, hands clasped behind back like some sort of butler, he seemed... conflicted. "It would indeedst appear thou are not the jester in SOULeth. However, I still feelst thou magic courseth through thy body."
+
+Either Rouxls was being kind in ignoring your winces at his speech, or this happened all the time with him.
+
+It took you a moment to process what he just said, and your eyes shot up to his, narrowing. "What? I have his magic? ...Why did you not tell them?"
+
+"I couldst nay get a word in," was his response, a soft smile on his features.
+
+"Hah." You chuckle, and sigh. Slowly, lifting your hands up, you approach the cell door. You watch as Rouxls gives you some distance. "Well, if it ah, 'pleaseth thee'," you allow yourself a smirk, "would you have any issue with me tagging along for a bit, so I can at least see whereever it is I've ended up?"
+
+He hums in thought. You offer, "If you wish I can return here after the fact..."
+
+He looks at you with a curious expression. "I wouldst normally need to asketh the king of such a favour..."
+
+"Ah. Theocracy, huh? Fair. I tried--"
+
+"Howevereth, the King of Spades is vanquished." With a sly smile, he steps aside, allowing you to exit. "Therefore, the decision is mineth to make. I will allow this of thee."
+
+Your jaw opens, and you gape at him. "That's... putting a lot of trust in me." You carefully bow. "I'll remember this. Thank you."
+
+Rouxls' smile this time is much more genuine. "I welcome thee to the Card Kingdom. What is thy name?"
+
+----
+
+You're allowed to swap the jester garb you woke up in for something more... 'normal' (normal for this world, at least), before you are guided in a tour of Card Castle. You learn that you are in a 'Dark World', and that the forces of Dark and Light are out of balance, which is why Kris, Susie, and Ralsei are around, aiming to close something called a 'Dark Fountain'.
+
+Rouxls, in return, learns your name, and you talk to him of the world in which you came from, of your modern technology and the pressures of modern society.
+
+Which is how you ended up telling him, at a pause in his tour, as you both stood leaning over the castle walls, looking down into the appropriately named Castle Town, that now that the shock had worn off, this deviation in your life was... somewhat exciting. "I was, as I guess is the appropriate term here, a 'commoner'," you tell him, scratching a claw over your cheek. "People rely on the speed of machines quite a lot, and then just assume you can perform as quick and fast as one," you scowl. "It's ridiculous! They want you to be quality control, but you don't even get *half a second* to just scan it nowadays! It's all 'go go go' and 'faster, faster'! It destroys me. I *would* rather be back in that cell of yours than have to do that again."
+
+You rest your head on your arms on the castle wall, letting out a sigh. "I get this is a change that isn't exactly wanted... for you guys and for my world, but... I'll make the most of it while I'm here, I suppose."
+
+Rouxls nods, and leans forward against the wall with you. "...A thought occurs," he says, looking at you curiously. "Jevil was imprisonedeth so long ago, and I suspect this world may soon meeteth its end..."
+
+"What?!" You gasp, turning toward him. "I-I'm sorry, I-"
+
+He shakes his head. "This... world, exists due to the Dark Fountain bringing it into existence. This is my understanding, speaking to the Dark Prince Ralsei. There is a *true* Dark World out there, it seemeth. ...Perhaps, this is a chance to reset. To let the expectations ebbeth away, let the darkness in our souls shape us into what we desire to be."
+
+"...I'm not sure that I want to let the darkness in my soul win," you say quietly.
+
+"'Tis a different darkness," Rouxls clarifies. "We needst nay play the roles we were placed in. Thy opportunity strikes to be reborn, to nay be Y/N the Commoner, nay Jevil, Jester of Chaos. ...Nay Rouxls Kaard, the civil servant."
+
+You glance at him. Is he having an identity crisis too?
+
+A gentle breeze brushes through as you both watch the Card Kingdom pass you by.
+
+----
+
+A few days later, there is a knock at the door to your quarters.
