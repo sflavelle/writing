@@ -180,7 +180,7 @@ Kris started to follow after them, then paused, looking at you with a curious lo
 
 Then they also turned and left, leaving you with Rouxls Kaard. What a name. What a stupid, stupid name. Now that the others were gone, you were unchained, and the cell door was still wide open, he watched you with some apprehension, as if you were going to show your true colors now that the Lightners were gone. You cocked your head to the side, raising an eyebrow. "I suppose you're going to lock me back up now, huh?"
 
-He hesitated before answering. "I... don't knoweth." Though he stood in place, hands clasped behind back like some sort of butler, he seemed... conflicted. "It would indeedst appear thou are not the jester in SOULeth. However, I still feelst thou magic courseth through thy body."
+He hesitated before answering. "I... don't knoweth." Though he stood in place, hands clasped behind back like some sort of butler, he seemed... conflicted. "It would indeedst appear thou art not the jester in SOULeth. However, I still feelst thou magic courseth through thy body."
 
 Either Rouxls was being kind in ignoring your winces at his speech, or this happened all the time with him.
 
@@ -200,11 +200,11 @@ He looks at you with a curious expression. "I wouldst normally need to asketh th
 
 Your jaw opens, and you gape at him. "That's... putting a lot of trust in me." You carefully bow. "I'll remember this. Thank you."
 
-Rouxls' smile this time is much more genuine. "I welcome thee to the Card Kingdom. What is thy name?"
+Rouxls' smile this time is much more genuine. "I bid thee welcome to the Card Kingdom. What is thy name?"
 
 ----
 
-You're allowed to swap the jester garb you woke up in for something more... 'normal' (normal for this world, at least), before you are guided in a tour of Card Castle. You learn that you are in a 'Dark World', and that the forces of Dark and Light are out of balance, which is why Kris, Susie, and Ralsei are around, aiming to close something called a 'Dark Fountain'.
+You're allowed to swap the jester garb you woke up in for something more... 'normal' (normal for this world, at least), before you are guided in a tour of Card Castle. You learn that the Jevil situation is to do with him being corrupted by a 'Dark World', and that the forces of Dark and Light are out of balance, which is why Kris, Susie, and Ralsei are around, aiming to close something called a 'Dark Fountain'.
 
 Rouxls, in return, learns your name, and you talk to him of the world in which you came from, of your modern technology and the pressures of modern society.
 
@@ -216,9 +216,9 @@ Rouxls nods, and leans forward against the wall with you. "...A thought occurs,"
 
 "What?!" You gasp, turning toward him. "I-I'm sorry, I-"
 
-He shakes his head. "This... world, exists due to the Dark Fountain bringing it into existence. This is my understanding, speaking to the Dark Prince Ralsei. There is a *true* Dark World out there, it seemeth. ...Perhaps, this is a chance to reset. To let the expectations ebbeth away, let the darkness in our souls shape us into what we desire to be."
+He shakes his head. "This... decay, exists due to the Dark Fountain bringing it into existence. This is my understanding, speaking to the Dark Prince Ralsei. ...Perhaps, this is a chance to reset. To let the expectations ebbeth away, let the darkness in our souls shape us into what we desire to be."
 
-"...I'm not sure that I want to let the darkness in my soul win," you say quietly.
+"...I'm not sure that I want to let the darkness in my soul win," you say quietly, almost to yourself.
 
 "'Tis a different darkness," Rouxls clarifies. "We needst nay play the roles we were placed in. Thy opportunity strikes to be reborn, to nay be Y/N the Commoner, nay Jevil, Jester of Chaos. ...Nay Rouxls Kaard, the civil servant."
 
@@ -228,4 +228,12 @@ A gentle breeze brushes through as you both watch the Card Kingdom pass you by.
 
 ----
 
-A few days later, there is a knock at the door to your quarters.
+Assuming Jevil's identity has come with benefits and drawbacks.
+
+Despite discovering that you look like some kind of devil doll, and those in the Castle who had witnessed Jevil's downfall turning to run whenever they crossed paths with you, you found you didn't mind the body so much. 
+
+No, your desire was to learn magic. Having grown up in a world without it, and the constant hum of energy coursing through your body left you wanting an outlet, wanting to experiment.
+
+----
+
+A few weeks later, there is a knock at the door to your quarters.
