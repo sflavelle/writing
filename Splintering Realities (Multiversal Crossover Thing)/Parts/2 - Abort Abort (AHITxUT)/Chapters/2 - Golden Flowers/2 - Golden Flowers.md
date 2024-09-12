@@ -92,7 +92,63 @@ How could they ever face any of them again?
 
 Frisk sobbed freely into their knees, believing themselves alone at the moment. 
 
-Not noticing the human children behind them, or the boss monster's head that pulled away out of view, having poked her head out from behind the arch.
+Not noticing the boss monster's head that pulled away out of view, having poked her head out from behind the arch.
+
+----
+
+Toriel was conflicted.
+
+On the one hand, she knew, somehow, that the human child in the pile of flowers had killed her, once.
+
+On the other... she remembered that they had very clearly tried to get her to stop during their fight.
+
+But *she* had fallen... to a human *child*.
+
+And now there were *three* here.
+
+And how did she *remember*?
+
+...What was happening here?
+
+She paced along the room, arms crossed behind her back, thinking.
+
+If what she had experienced was a memory, then these other two children should not be here. They were an unknown variable.
+
+If what she had experienced was deja vu, however... it was much, much too vivid to be simply that. 
+
+...Something strange was going on here.
+
+"You're talking to yourself."
+
+Toriel spun in place.
+
+A flower watched her from the lit patch of dirt,  head tilted questioningly.
+
+Flowey.
+
+"Oh, goodness me," Toriel sighed, rubbing at where her soul pulsed in her chest. "I did not realise. I..." 
+
+Her eyes widened as she realised that she had been speaking her confusions aloud. "Oh! I. Erm. Do not mind me. This old goat has been having bad dreams."
+
+Flowey watched her with a look that clearly conveyed that he - it - did not believe her. Its expression shifted to one of *knowing*. "...Okay then." It turned toward the doorway. "I only heard one of them fall. I didn't expect three."
+
+"Three is... unusual," Toriel agreed. She was beginning to remember a bit more about this flower - she had stopped them... last time... from killing the one that was named Frisk.
+
+The one who was now crying in the bed of flowers.
+
+Why was it acting so normal now?
+
+Toriel kept her thoughts to herself this time, and continued, steeling herself. "I shall greet them. It is only fair."
+
+"Are you sure?" Flowey asked as the boss monster began to walk toward the first room, toward the bed of flowers. "I'm getting some bad vibes from them."
+
+Toriel pointedly decided not to reply, but then...
+
+The ground beneath began to shake. Was this... an earthquake? But those didn't happen anywhere near Mount Ebott!
+
+"Get to shelter," she said firmly to Flowey, as screams came from the flower bed. "They will not die here."
+
+And she hurried out of the room, prepared to protect the human children from danger.
 
 ----
 
@@ -100,7 +156,7 @@ Not noticing the human children behind them, or the boss monster's head that pul
 
 "oh, dang, i'm not? i always thought i was rather *stationary*."
 
-"DO NOT TARNISH THIS MORNING WITH YOUR PUNS, BROTHER, HOWEVER TRUE THIS ONE IS. SINCE YOU ARE HERE, YOU MAY AS WELL SHARE IN THIS BREAKFAST I'VE MADE."
+"DO NOT TARNISH THIS MORNING WITH YOUR PUNS, BROTHER, HOWEVER TRUE THIS ONE IS. THAT SAID, SINCE YOU ARE HERE, YOU MAY AS WELL SHARE IN THIS BREAKFAST I'VE MADE."
 
 "you're so cool, bro."
 
@@ -114,15 +170,15 @@ The ground began to shake, throwing him off balance briefly. A tremor...? But th
 
 Breakfast quickly forgotten, the skeletons braced themselves, under the kitchen table. "ANY DEBRIS FROM THESE EARTHQUAKE TREMORS WON'T REACH US HERE!" Papyrus declared. "I DO HOPE THE CITIZENS OF SNOWDIN ALSO RECEIVED THESE NATURAL DISASTER GUIDES AND ARE STAYING SAFE."
 
-"i'm sure they're doing fine, paps. i thought tremors didn't hit this area anymore."
+"i'm sure they're doing fine, paps. i thought tremors didn't hit this area."
 
 "I THOUGHT THE SAME! WHAT AN ODD DEVELOPMENT!"
 
 ----
 
-With everyone sheltering in their homes underground, they didn't see the object that broke through the ceiling above Waterfall, it's impact showering rocks over the area. 
+With everyone sheltering in their homes underground, only a select few saw the object that broke through the ceiling above Waterfall, its impact showering rocks over the area. 
 
-The source: one human girl's body, half unconscious as she plummeted into the waters. 
+The source: one human girl's body, red-haired, blue-jacketed, half unconscious as she plummeted into the waters. 
 
 The cold water shocked her back to awareness, and looking around herself, the redhead swam hard for the light, breaking the surface of the turbulent water and gripping a rocky ledge for dear life. 
 
@@ -133,3 +189,29 @@ Staring up in the hole in the massive cavernous roof.
 Madeline Thorson had failed to best Mount Celeste. 
 
 And now it seemed she would be stuck down here for the rest of her days.
+
+Which, if the armored knight stalking toward her rough location had anything to say about it, would not be very long.
+
+----
+
+Only the Royal Scientist Dr. Alphys, in her lab in Hotland, could see the tremor for what it was.
+
+As she hunkered down beneath a fixed table, she watched as sensors on her machines picked up large bursts of energy, not just physical but... magical, as well?
+
+It was an energy pulse, travelling across the planet from... somewhere, leaving these tremors in its wake.
+
+Screens depicted Mount Ebott above being hit particularly hard, and she hoped beyond hope that everyone beneath would be okay.
+
+Other sensors detected rockfalls in various areas due to the activity, and one of the cameras--
+
+One of her security cameras, placed looking over the Waterfall area, caught something crashing into the waters - a *body* - followed by more rockfall.
+
+And... wisps of... snow?
+
+Breathing heavily, still weathering through the rough quaking herself, Alphys snatched a remote from the table above her, retreated back to her safety spot, and directed the camera to look upward.
+
+Indeed, through the hole in the cavern ceiling - exposing the *sky*, Alphys realised - it... appeared to be snowing.
+
+Alphys frowned. But Mount Ebott *never* snowed.
+
+Something *weird* was going on.
