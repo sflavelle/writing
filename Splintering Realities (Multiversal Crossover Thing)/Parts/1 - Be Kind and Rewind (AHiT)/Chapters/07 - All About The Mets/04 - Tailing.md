@@ -8,4 +8,6 @@ The giant kitten pulling its train slowed as its passenger carriages slid neatly
 
 Alex.
 
-They climbed down from the roof of the carriages, sliding into the back of the crowd, blending in as Mu watched Alex walk up to the station map, trying to place where her next destination was. 
+They climbed down from the roof of the carriages, sliding into the back of the crowd, blending in as Mu watched Alex walk up to the station map, trying to place where her next destination was. She was murmuring to herself, drawing lines. "...blue line to the... yellow line...?" Mu heard over the background noise.
+
+She relayed this to Hattie. "I think the Yellow Line goes out to Bird Town," she commented.
