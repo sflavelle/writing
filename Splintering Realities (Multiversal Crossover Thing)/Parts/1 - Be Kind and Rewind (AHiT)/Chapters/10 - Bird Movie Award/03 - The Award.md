@@ -62,7 +62,7 @@ A memory flickered to the front of her mind, of when she had her first encounter
 
 "Darlin'!" Grooves gasped.
 
-"We *literally* faked a bird passport together!" the Kid cut him off. "But you weren't *forcing* me into anything, not really. *You*, however-" she spun round to Conductor. "You couldn't force me to be interested with a Time Piece, so I guess while I tried, I wasn't as invested in your movies."
+"We *literally* faked a bird passport together!" the Kid cut him off. "But you weren't *forcing* me into anything, not really. You bought my complicity with the promise of stardom. *You*, however-" she spun round to Conductor. "You couldn't force me to be interested, so I guess while I tried, I wasn't as invested in your movies."
 
 DJ Grooves released a breath he didn't realise he was holding. "...So... I won because without the Time Pieces, I was still someone you... wanted to work with?"
 

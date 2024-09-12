@@ -20,7 +20,7 @@ There was a flash of a memory in his mind, one that was not his own.
 
 Snatcher blinked, and he was back in his own ethereal plane, blood blossoming from the gaping wounds he had just given Alex.
 
-Alex's body wavered uncertainly, then crashed to the ground, lifeless.
+Alex's body wavered uncertainly, then crumpled to the ground, lifeless.
 
 Snatcher lifted his hands up to his face, observed the dripping blood.
 

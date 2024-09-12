@@ -146,9 +146,9 @@ Your stomach drops. "Wait, what the hell?" You cry out, beginning to panic. "Sto
 
 Your eyes slam shut as she lifts the battle axe and takes a swing.
 
-You hear a deep **thud**, and --
+You hear a deep **thud**, one that reverberates through your body and --
 
-Your chains snap.
+Your chains snap, instantly cleaved in two.
 
 Your eyes snap back open as you fall the 3 feet to the ground, your legs immediately buckling, and your arms searing with pain now that they aren't numb from being pulled upward for so long. You choke back a few deep breaths amidst a stream of curses, seeing the now broken chains around your wrists. "F-fuh... fuckin' hell... Nearly pissed myself, give a guy a fuckin' warning next time."
 
@@ -180,7 +180,7 @@ Kris started to follow after them, then paused, looking at you with a curious lo
 
 Then they also turned and left, leaving you with Rouxls Kaard. What a name. What a stupid, stupid name. Now that the others were gone, you were unchained, and the cell door was still wide open, he watched you with some apprehension, as if you were going to show your true colors now that the Lightners were gone. You cocked your head to the side, raising an eyebrow. "I suppose you're going to lock me back up now, huh?"
 
-He hesitated before answering. "I... don't knoweth." Though he stood in place, hands clasped behind back like some sort of butler, he seemed... conflicted. "It would indeedst appear thou art not the jester in SOULeth. However, I still feelst thou magic courseth through thy body."
+He hesitated before answering. "I... don't knoweth." Though he stood in place, hands clasped behind back like some sort of butler, he seemed... conflicted. "It would indeedst appear thou art not the jester in SOULeth. However, I still feelst thy magic courseth through thy body."
 
 Either Rouxls was being kind in ignoring your winces at his speech, or this happened all the time with him.
 
@@ -234,6 +234,14 @@ Despite discovering that you look like some kind of devil doll, and those in the
 
 No, your desire was to learn magic. Having grown up in a world without it, and the constant hum of energy coursing through your body left you wanting an outlet, wanting to experiment.
 
+Which is how you would find yourself in the archives for most of your free time, sat at a table quietly, a stack of history and theory books about magic by your side, and occasionally trying to figure out some basic spells - casting light, or healing, or something. 
+
+It wasn't working out yet, but you wanted to be able to do it at least once, even if it wasn't going to follow you once you were reunited with your own body.
+
 ----
 
-A few weeks later, there is a knock at the door to your quarters.
+A few weeks later, there is a knock at the door to your quarters. You have been summoned to the front of the castle, told that the Lightners have returned with news for you.
+
+You wear Jevil's jester getup today, assuming it is time to get back to your old life, and to put the chaotic soul back in his cell. 
+
+When you arrive, Rouxls is being regaled by Ralsei with tales of the team's adventures while Kris and Susie stand behind him quietly (a little awkwardly, in Susie's case). They notice you immediately as you enter, and they examine you with some concern as you walk up to them. "Hello, hello!" you call, slightly absently - you miss how those present tense up at the repetition. "Great to see you all again. Travelling well?"

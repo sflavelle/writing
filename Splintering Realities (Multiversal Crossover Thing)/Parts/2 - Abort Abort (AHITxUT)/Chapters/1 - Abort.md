@@ -202,11 +202,11 @@ Which must mean-
 
 ...
 
-But when he gained consciousness, he was not in the Judgement Hall, a crazed killer rushing at him.
+But when he gained consciousness, existence sputtering back in, he was not in the Judgement Hall, a crazed killer rushing at him.
 
-He was in a bed.
+He was at a station.
 
-*His* bed.
+*His* sentry station.
 
 All the way back in Snowdin.
 
