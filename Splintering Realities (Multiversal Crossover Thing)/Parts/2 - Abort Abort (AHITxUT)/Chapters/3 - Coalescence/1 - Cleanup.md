@@ -20,6 +20,6 @@ When, finally, the tremors stopped and it seemed nothing would come down on thei
 
 Frisk sniffled and nodded. The child with the purple top hat and the one with the red hood let out a soft 'yeah'.
 
-She breathed a sigh of relief. "I'm glad. We haven't had seismic activity for... about as long as I can remember!" She stepped back and stood. "My name is Toriel, and I am the caretaker of these Ruins."
+She breathed a sigh of relief. "I'm glad. We haven't had seismic activity for... about as long as I can remember!" She stepped back and stood, clearing her throat. "My name is Toriel, and I am the caretaker of these Ruins."
 
 The child in purple smiled warmly. "Call me Hattie!" She beamed, and adjusted her tophat. She gestured to her friend. "This is Mu."
