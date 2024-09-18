@@ -1,4 +1,4 @@
-----
+****
 
 Madeline was not taking the failure well.
 
@@ -66,4 +66,10 @@ Blue, scaly skin and golden eyes, red hair, sharp grinning teeth. An eyepatch.
 
 "*NOW!*" The female creature's voice declared. "*RELINQUISH YOUR SOUL!*"
 
-Madeline gulped, and slipped back into what was becoming quite common lately: jumping at the wall, using the wall to boost herself up higher, and - in a rush of motion the monster wasn't expecting - zooming up and over its head, hitting the ground in the direction of the doorway and rushing out
+Madeline gulped, and slipped back into what was becoming quite common lately: jumping at the wall, using the wall to boost herself up higher, and - in a rush of motion the monster wasn't expecting - zooming up and over its head, hitting the ground in the direction of the doorway and rushing out of the door, looking for any kind of escape from the monster charging after her.
+
+"THEO?! SOMEONE? ANYONE!" she screamed out, hoping that *anyone* might be able to come to her aid.
+
+...
+
+But no one came.
