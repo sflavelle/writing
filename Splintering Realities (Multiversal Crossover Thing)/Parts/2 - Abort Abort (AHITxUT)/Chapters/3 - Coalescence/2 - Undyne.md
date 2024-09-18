@@ -64,7 +64,7 @@ Madeline's blood went cold.
 
 Blue, scaly skin and golden eyes, red hair, sharp grinning teeth. An eyepatch.
 
-"*NOW!*" The female creature's voice declared. "*RELINQUISH YOUR SOUL!*"
+"NOW!" The female creature's voice declared. "RELINQUISH YOUR SOUL!"
 
 Madeline gulped, and slipped back into what was becoming quite common lately: jumping at the wall, using the wall to boost herself up higher, and - in a rush of motion the monster wasn't expecting - zooming up and over its head, hitting the ground in the direction of the doorway and rushing out of the door, looking for any kind of escape from the monster charging after her.
 

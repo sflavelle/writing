@@ -8,7 +8,7 @@ In Snowdin, guardsmen were in the process of checking in with residents and chip
 
 Waterfall had seen the most damage. The Dump was blocked up with boulders, and rivers were displaced, causing some flooding, especially around the Blook Family Estate and Gerson's store. Personnel were being dispatched from New Home to assist, as it was clear Undyne the Undying, despite her strength, would not be able to clear all of this on her own.
 
-Many had worried that the activity might cause Hotland to become even more dangerous, but it seemed much of the area was still structurally sound, if shaken up. The Lab was still mostly functional, though the basements would have to be checked over at some point. Alphys was not looking forward to that. Or re-ordering and re-creating several destroyed materials.
+Many had worried that the activity might cause Hotland to become even more dangerous, but it seemed much of the area was still structurally sound, if shaken up. If anything, the elevators and some of the transport vents had been destroyed. The Lab was still mostly functional, though the basements would have to be checked over at some point. Alphys was not looking forward to that. Or to re-ordering and re-creating several destroyed materials.
 
 And in the Ruins, much was in disarray. Monsters that hid or kept to themselves were *everywhere*, trying to help each other stay safe. Hoping that Lady Toriel would help them.
 
@@ -20,6 +20,78 @@ When, finally, the tremors stopped and it seemed nothing would come down on thei
 
 Frisk sniffled and nodded. The child with the purple top hat and the one with the red hood let out a soft 'yeah'.
 
-She breathed a sigh of relief. "I'm glad. We haven't had seismic activity for... about as long as I can remember!" She stepped back and stood, clearing her throat. "My name is Toriel, and I am the caretaker of these Ruins."
+She breathed a sigh of relief. "I'm glad. We haven't had seismic activity like that for... about as long as I can remember!" She stepped back and stood, clearing her throat. "My name is Toriel, and I am the caretaker of these Ruins."
 
-The child in purple smiled warmly. "Call me Hattie!" She beamed, and adjusted her tophat. She gestured to her friend. "This is Mu."
+The child in purple smiled warmly. "Call me Hattie!" She beamed, and adjusted her tophat. She gestured to her friend, who nodded awkwardly. "This is Mu."
+
+"A pleasure to meet you both." Toriel's smile was warm and genuine, even as she glanced at the sniffling child closest to get. Though she already knew, she would ask anyway. "And what is your name, my child?"
+
+Frisk finally looked up at her. Tears dampened their cheeks, and they stared up into her eyes with clear sorrow. "F-Frisk," they spoke in the tiniest voice. Their expression was clear - they had much regret for what happened... Before.
+
+"Not to worry, Frisk," the monster smiled at them. "You will all be safe here, for as long as you are here with me. That said..." she glanced up at the rock ceiling, then back to the children. "I think it would be a good idea to get to shelter, in case another tremor comes through-"
+
+"Maddy?!"
+
+Everyone looked up, at the shout from somewhere far above. 
+
+In the opening far above them, another human had suddenly appeared, features too distant to see from down here. 
+
+"Are you okay down there?! I'm coming down to get you!"
+
+It was a man's voice, the group could easily tell. Toriel glanced down at the children, trying to determine whether he was anyone's guardian, but Frisk and Hattie both shrugged. 
+
+Then, they watched as a rope unfurled itself toward them. The Monster was slightly stunned. For all those who had fallen over the ages, this is the first time she had seen *anyone* who had seemingly actually planned for a journey up Mount Ebott, let alone underneath it. 
+
+Still, she would have to say something, otherwise the inevitable would happen... she cupped her paws around her mouth and called, "I would advise you not to come down, sir! The one you seek is not here, and descending into this cave will only trap you!"
+
+She missed how Hat Kid and Mu, hearing this, checked their teleporter, only for their eyes to widen. And how Frisk's expression became so utterly confused...
+
+How could this timeline be so, so different? 
+
+There was nothing she could do once the human male appeared on the climbing rope, shuffling down carefully toward them. A sigh escaping her. "Children," she pre-empted. "Please understand that this is only a warning."
+
+Then balls of fire burst to life in her paws, and after a brief moment she launched both upward toward the climber.
+
+"Wh- why?" Hat Kid was confused.
+
+"The Barrier," Frisk said, staring upward. "If he enters its influence..."
+
+The fireballs, expertly directed, soared past the climber but missed. Still, the closeness caused him to flinch away-
+
+Causing him to knock his head on an invisible barrier of magic, that flickered and became visible around where he impacted it. Rubbing his head, they saw him reach out and touch it, pressing his hand against it.
+
+True to its name, the Barrier did not budge.
+
+"This mountain.." they heard him mutter.
+
+Toriel released a world-weary sigh.
+
+"Welp, nothing for it. YOLOOOO!" The climber slackened his grip, and slides down to the floor of the cavern. After dusting himself off, he turned to meet the group, eyes widening at the monster among them, but otherwise not reacting. He was a dark-skinned man in his 30s, with frizzy hair and an impressive curly beard. Frisk thought he would look like a lumberjack if he had a bit more weight to him. "Uh, hi. I don't suppose any of you have seen a red headed young lady crash through here recently?"
+
+The kids shook their heads. Toriel's expression was one of deep thought. "Not in this part of the Underground, no... Surely that could not have been the source of the tremors."
+
+"No, I felt those from up on the mountain trail," he mused. "Though I guess I wouldn't be surprised, Mount Celeste hasn't pulled any punches on us yet."
+
+"Mount Celeste...?" The goat monster was very confused now. "You must be mistaken. We are currently beneath Mount Ebott..."
+
+The man shook his head. "Trust me, this mystical mountain has tormented me and Maddy too much to simply misremember the name of a Canadian landmark."
+
+Frisk stared. Slowly they mouthed, "What is happening here..."
+
+Toriel caught the child's confused movements, and glanced toward them. "My child? Is what he is saying true?"
+
+Frisk shook their head. "I just climbed Mount Ebott. It's definitely still named that, but... it's also a mountain in California, in the United States..."
+
+Something very strange was going on. Hat Kid seemed to be the first to put the clues together. "So, hang on. Sometime between you falling down here and this guy-"
+
+"Theo," Theo added. 
+
+"Theo," Hat Kid repeated, "appearing, the mountain above us turned from one into another? Just how long have you been down here, Frisk?"
+
+"This time? About 5 minutes?" 
+
+Everyone turned to stare at Frisk, various confused or horrified expressions on their faces, except for Hattie who was pondering. 
+
+Finally, Hat Kid snapped her fingers. She turned to Mu. "What Moonjumper did must have damaged the multiverse more than we thought. Universes are colliding and mixing much more easily than they should be."
+
+"My word..." Toriel was lost. "I... I-" She cleared her throat, standing a bit taller. "My home is on the other end of these ruins. It is quite sturdy, there will be no danger there. If you'll follow me there, perhaps we can all be on the same page."
