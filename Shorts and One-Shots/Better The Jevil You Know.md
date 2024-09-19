@@ -38,9 +38,9 @@ Nonetheless... "Buddy. Pal. Are you *really* going to stand there and tell me th
 
 "I didst not come hereth to argue," was the man's response, and you cringe at the abysmal attempt at Olde English. 
 
-"Uh huh." You sigh, the sound also bitcrushed. This was *weird*. "I did not come here in the first place. I don't even know what I did to you."
+"Uh huh." You sigh, the sound also bitcrushed. This was *weird*. "I did not come here in the first place. You kidnapped *me*, I assume. I don't even know what I did to you."
 
-"You knoweth full well, what led you here," the blue man said curtly, "or hast thou insanity taken your memory as welleth, over these monthseth?"
+"You knoweth full well, what led you here," the blue man said curtly, "or hast thou insanity taken your memorye as welleth, over these monthse?"
 
 "Buddy, you're killing me with your speech," you huff, which causes you to swing lightly from the chains. You hear a quiet jingling from somewhere above your head. You were wearing a hat of some kind, weren't you? "I'm *sure* some time has passed between me waking up here and you coming by, but it *must* have been a day at most, not... months? Are you sure you're not mistaking me for someone else?"
 
@@ -196,7 +196,7 @@ He looks at you with a curious expression. "I wouldst normally need to asketh th
 
 "Ah. Theocracy, huh? Fair. I tried--"
 
-"Howevereth, the King of Spades is vanquished." With a sly smile, he steps aside, allowing you to exit. "Therefore, the decision is mineth to make. I will allow this of thee."
+"Howevereth, the King of Spades is currently indisposed." With a sly smile, he steps aside, allowing you to exit. "Therefore, the decision is mineth to make. I will allow this of thee."
 
 Your jaw opens, and you gape at him. "That's... putting a lot of trust in me." You carefully bow. "I'll remember this. Thank you."
 
@@ -245,3 +245,47 @@ A few weeks later, there is a knock at the door to your quarters. You have been 
 You wear Jevil's jester getup today, assuming it is time to get back to your old life, and to put the chaotic soul back in his cell. 
 
 When you arrive, Rouxls is being regaled by Ralsei with tales of the team's adventures while Kris and Susie stand behind him quietly (a little awkwardly, in Susie's case). They notice you immediately as you enter, and they examine you with some concern as you walk up to them. "Hello, hello!" you call, slightly absently - you miss how those present tense up at the repetition. "Great to see you all again. Travelling well?"
+
+Ralsei nods, but there's an expression of concern and reluctance on his face. "Yes! Uh, the corruption from the Dark World's influence has been stopped! We've... um, sealed the Fountain, and nothing should come through to torment this world again!"
+
+"Oh! Well, that's excellent news, isn't it! The day will grace this kingdom once more, will it not?"
+
+"Indeed!" Ralsei allowed a smile. 
+
+Kris stepped toward you, and you turned to face him. His expression was unreadable. "Would you like the good news or the bad news first?" He asked.
+
+You thought for a moment, tapping your foot on the floor. "I've always been of the opinion that receiving the good news first will temper the bad news."
+
+Kris nodded. With a brief glance toward the others, the Lightner launched into it. "We found you. Your body, I mean."
+
+"Oh! Amazing!" You gaped. You didn't even know they could *reach* your reality. "And was the little bastard pretending to be me?"
+
+"Not really 'pretending'," Susie chuckled, but her expression was similarly strange. "But yeah. Don't worry, that Jevil is history now."
+
+"Nice! Good work!" You grinned at them. "Thank you for saving me from a world of embarrassment. I can only imagine what he could have done in my body. Now, what's the bad news?"
+
+The foyer was silent. There were grim looks on the groups' faces. Rouxls held a hand to his mouth, eyes wide, shocked. 
+
+"...Guys...?"
+
+They watched as you visibly processed what they told you. 
+
+Jevil was in your body. Now Jevil was gone, and your body was safe.
+
+That was how it worked! Right?
+
+Your eyes slowly widened, and ever so slowly you turned in place toward Ralsei. By the time you faced him completely, there was a deep fear in your eyes. 
+
+He faced you for a tense, long moment, but eventually his gaze broke away from you and, uncomfortable, he whispered three words that broke you, struck a sharp pain in your soul. 
+
+"I'm sorry, Y/N."
+
+A choked gasp forced its way from your open mouth. 
+
+No.
+
+He hadn't.
+
+Jevil couldn't have gotten you killed. 
+
+He just couldn't have.

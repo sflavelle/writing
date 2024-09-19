@@ -78,7 +78,7 @@ The man shook his head. "Trust me, this mystical mountain has tormented me and M
 
 Frisk stared. Slowly they mouthed, "What is happening here..."
 
-Toriel caught the child's confused movements, and glanced toward them. "My child? Is what he is saying true?"
+Toriel caught the child's confused movements, and glanced toward them. "My child? Is what he is saying true? Has the mountain truly been given a new name?"
 
 Frisk shook their head. "I just climbed Mount Ebott. It's definitely still named that, but... it's also a mountain in California, in the United States..."
 
@@ -95,3 +95,19 @@ Everyone turned to stare at Frisk, various confused or horrified expressions on 
 Finally, Hat Kid snapped her fingers. She turned to Mu. "What Moonjumper did must have damaged the multiverse more than we thought. Universes are colliding and mixing much more easily than they should be."
 
 "My word..." Toriel was lost. "I... I-" She cleared her throat, standing a bit taller. "My home is on the other end of these ruins. It is quite sturdy, there will be no danger there. If you'll follow me there, perhaps we can all be on the same page."
+
+After nods from the others, Hattie smiled. "Lead the way."
+
+----
+
+There was a brief moment, as the group passed without incident through the Ruins, that Frisk felt a presence behind them.
+
+They turned.
+
+Flowey had appeared, watching the group with some interest. At Frisk's notice, their expression silently shifted to something downright menacing, and a vine rose from the ground to flick across its stem. A threat.
+
+Frisk gestured rudely at them.
+
+Mustache Girl noticed and turned to see what Frisk was looking at. Flowey had almost instantly buried its vines and was waving its petals with some fake grin.
+
+Mu and Frisk both rolled their eyes and turned back around.
