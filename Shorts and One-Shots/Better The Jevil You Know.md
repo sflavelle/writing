@@ -98,15 +98,15 @@ There's silence for a few long moments.
 
 You shoot him a glare. "First of all, you'll have to forgive me, I have no idea who this 'Jevil' is. Second of all, again, *why would I chain myself up* if I've never been here before?! Ughhhhh." Frustrated, you bump your head lightly against the stone, leaning back, looking up at the ceiling of the dungeon.
 
-As you adjust your head, whatever you've been wearing on your head shifts over your eyes, and you shake your head roughly to dislodge the thing. It falls from your head and lands on the stone floor.
+As you adjust your head, whatever you've been wearing on your head shifts over your eyes, and you shake your head roughly to dislodge the thing. It falls from your head and lands on the stone floor, jingling as it moves.
 
 A black and purple jester's hat.
 
 You stare at it. You weren't wearing that before. You glance down at your body.
 
-And that's when things start to click. You're wearing an outfit that is very clearly not yours, not proportioned for *you*, and your skin appears to be dark, unnatural. Between your legs, a thin, long tail peeks out at you.
+And that's when things start to click. You're wearing an outfit that is very clearly not yours, tightly fitting a soft round body, and your skin appears to be dark, unnatural. Between your legs, a thin, long tail peeks out at you.
 
-This isn't your body. "W-wait. What happened to me? Who transformed me into this... clown devil?!" you demand of the group. Oh. Huh. 'Jester devil'. Jevil. That's... a decision that was made.
+This isn't your body. "W-wait. What happened to me? Who transformed me into this... clown devil?!" you demand of the group. Oh. Huh. 'Jester devil'. Jevil. That's... a decision that was made. That explains the getup.
 
 "You've always looked like that, dude," Susie remarked. Kris simply continued to stare at you, and Ralsei and Blue share a look.
 
@@ -114,7 +114,7 @@ This isn't your body. "W-wait. What happened to me? Who transformed me into this
 
 Kris raises an eyebrow. Then he turns to Ralsei, who is approaching him.
 
-"Kris, may I please have the key?" the goat monster asks. With another glance at you, Kris nods and pulls a key from seemingly nowhere.
+"Kris, may I please have the key?" the goat monster asks. "I'd like to check something." With another glance at you, Kris nods and pulls a key from seemingly nowhere.
 
 Ralsei takes the key, unlocks the cell door that has suddenly appeared between you, and steps in. You can do nothing but watch, as the three filter into the room, Blue Motherfucker deciding to stay back.
 
@@ -274,6 +274,10 @@ Jevil was in your body. Now Jevil was gone, and your body was safe.
 
 That was how it worked! Right?
 
+Right...? Because the alternative would be...
+
+That your body was...
+
 Your eyes slowly widened, and ever so slowly you turned in place toward Ralsei. By the time you faced him completely, there was a deep fear in your eyes. 
 
 He faced you for a tense, long moment, but eventually his gaze broke away from you and, uncomfortable, he whispered three words that broke you, struck a sharp pain in your soul. 
@@ -289,3 +293,9 @@ He hadn't.
 Jevil couldn't have gotten you killed. 
 
 He just couldn't have.
+
+You stood silently for a long moment, just staring off into space. 
+
+The life you had lived before, as *yourself*, was over. 
+
+Because some idiot jester had to keep fucking around, now you were stuck in *this* body forever.

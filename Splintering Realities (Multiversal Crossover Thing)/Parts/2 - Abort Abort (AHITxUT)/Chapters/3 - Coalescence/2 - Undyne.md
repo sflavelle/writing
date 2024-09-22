@@ -26,7 +26,7 @@ As she entered the room, walking toward the piano, she saw that... it was indeed
 
 Curiously she tested it, pressing a few keys. She raised an eyebrow. This thing was still *tuned*? Who even kept it in good condition?
 
-Madeline allowed herself a moment to indulge in her melancholy. She took a seat at the piano, letting out a sigh, tested a few keys to find the chord she wanted, then began to play, a stripped down version of a song she had heard playing back in the Abandoned City.
+Madeline allowed herself a moment to indulge in her melancholy. She took a seat at the piano, letting out a sigh, tested a few keys to find the chord she wanted, then began to play, a stripped down version of a tune she had heard playing back in the Abandoned City.
 
 She closed her eyes. She fully believed that she would probably never find her way back to even the surface again.
 
