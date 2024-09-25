@@ -230,6 +230,16 @@ A gentle breeze brushes through as you both watch the Card Kingdom pass you by.
 
 Assuming Jevil's identity has come with benefits and drawbacks.
 
+The body you now assumed being... rather a shock to see in full. 
+
+The mirror that hung on the far side of your temporary quarters drew up to about twice your size. And if you were concerned about the clothing and the skin colour and the tail, the face that stared back at you was a shock to the system.
+
+You befitted the name 'Jevil' for sure. 
+
+Pudgy cheeks and an impish mouth and fangs hung beneath pointed crosses painted around the eyes, like a black four-pointed star. (Weren't save points in the other game 'stars' in the same way?) Your eyes, to go with them, were black like something demonic, with golden irises that almost glowed in contrast. 
+
+The purple-blue skin was ever so slightly fuzzy, very short fur growing. It felt... strangely pleasant to the touch, as did the chubbiness on your new frame, evidence of the jester's previous lavish life in the castle. You wondered if it was because of his curvature that his outfit, and indeed anything you could find to wear, was so... form-fitting.
+
 Despite discovering that you look like some kind of devil doll, and those in the Castle who had witnessed Jevil's downfall turning to run whenever they crossed paths with you, you found you didn't mind the body so much. 
 
 No, your desire was to learn magic. Having grown up in a world without it, and the constant hum of energy coursing through your body left you wanting an outlet, wanting to experiment.
@@ -299,3 +309,31 @@ You stood silently for a long moment, just staring off into space.
 The life you had lived before, as *yourself*, was over. 
 
 Because some idiot jester had to keep fucking around, now you were stuck in *this* body forever.
+
+After what felt like minutes of silence, you seemed to unfreeze, and the words started to tumble out. "...I... Fuck, man. That's not- ...Why would he do that? Why- god, my friends- What about my roommate?! They're- Fucking Jevil- I had a whole life- Why does shit never want to work out for- FUCKING **JEVIL!**"
+
+Somewhere in the midst of your rambling, subconsciously, a scythe had fizzled into existence in your hands, and your friends ducked out of the way as you swung it about in your raving. You blinked a few times, suddenly noticing its weight, and you stared at the weapon that was not in your hands before.
+
+You looked slowly up at the group, staring at you with mixed expressions of fear, awe, and shock.
+
+Your own face was frozen in a look of shock. You stuttered out, "W-well uh... T-thats... that's a problem." You paused, taking deep breaths, letting your anger dissipate. "...Well, since I have this... I wonder, if i think of..."
+
+You took a few moments to think clearly, that you wanted to visit the location of your body... then, turning away from the group, you readied the scythe and swung.
+
+The buzz of Jevil's magic within you surged through your palms into the blade, and as you swung the blade down, you felt it catch on *nothing*, then slice.
+
+As the blade cut through the air, a *hole* in the space in front of you opened, a window into another world.
+
+A window into *your* world.
+
+You moved to wedge the scythe into the hole, such that it shouldn't close, then, the moment over, you trembled and slowly fell to your knees.
+
+There you were.
+
+What was left of your own body, that was.
+
+It seemed you had been shot to death, somewhere in the alleyway of a city. Blood had dried around your chest.
+
+Barely thinking, you stumbled to your feet and approached the portal, the others approaching behind. You climbed through, noting that Rouxls did as well, and you stared at your own glassy expression.
+
+This was an awful sight to see. You reached out slowly, with your clawed hands, to carefully close the human body's eyelids.
