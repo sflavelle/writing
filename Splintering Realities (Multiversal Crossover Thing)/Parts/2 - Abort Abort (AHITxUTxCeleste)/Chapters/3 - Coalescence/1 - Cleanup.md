@@ -56,11 +56,13 @@ Then balls of fire burst to life in her paws, and after a brief moment she launc
 
 "The Barrier," Frisk said, staring upward. "If he enters its influence..."
 
-The fireballs, expertly directed, soared past the climber but missed. Still, the closeness caused him to flinch away-
+The fireballs, expertly directed, soared past the climber but missed. Toriel's intent was of course not to hurt, in this case merely to scare, to deter the climber from descending. Still, the closeness caused him to flinch away-
 
 Causing him to knock his head on an invisible barrier of magic, that flickered and became visible around where he impacted it. Rubbing his head, they saw him reach out and touch it, pressing his hand against it.
 
 True to its name, the Barrier did not budge.
+
+He had already entered too far.
 
 "This mountain.." they heard him mutter.
 
@@ -80,11 +82,11 @@ Frisk stared. Slowly they mouthed, "What is happening here..."
 
 Toriel caught the child's confused movements, and glanced toward them. "My child? Is what he is saying true? Has the mountain truly been given a new name?"
 
-Frisk shook their head. "I just climbed Mount Ebott. It's definitely still named that, but... it's also a mountain in California, in the United States..."
+Frisk shook their head. "I climbed Mount Ebott to get here. It's definitely still named that, but... it's also a mountain in California, in the United States..."
 
 Something very strange was going on. Hat Kid seemed to be the first to put the clues together. "So, hang on. Sometime between you falling down here and this guy-"
 
-"Theo," Theo added. 
+"Theo," Theo chimed in. 
 
 "Theo," Hat Kid repeated, "appearing, the mountain above us turned from one into another? Just how long have you been down here, Frisk?"
 
@@ -122,7 +124,6 @@ Frisk stared at them, eyes wide. If this was a RESET, how did they know immediat
 
 Who *had* RESET?
 
-Frisk decided to out with it, hoping that some brief explanation will make the girls less cold toward them. "Somebody reset the timeline. We're at the beginning of the Underground. Um... I made some stupid choices, and I ended up being possessed by a vengeful spirit. I... I-if everything ends up repeating, I'm gonna try harder to not let things go the way they did. How do you know about the time thing...?"
+Frisk decided to out with it, hoping that some brief explanation will make the girls less cold toward them. "It seems like somebody reset the timeline. We're at the beginning of the Underground. Um... I made some stupid choices, and I ended up being possessed by a vengeful spirit. I... I-if everything ends up repeating, I'm gonna try harder to not let things go the way they did. How do you know about the time thing...?"
 
 Vengeful spirit, huh? Mu wanted to write that off as an excuse, but noticing how soft and sorrowful they seemed after the reset, maybe there was something to it... She gestured toward Hat Kid, talking with Toriel and Theo - about food, it sounded like. The latter was frequently taking photos of the caverns, with its puzzles and designs on the walls. "My travelling partner is, well... let's say she's well versed in Time shenanigans."
-
