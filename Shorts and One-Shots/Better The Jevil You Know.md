@@ -162,7 +162,7 @@ Your eyes widen. Wait. "He's... in another universe."
 
 You shake your head, and slowly clamber to your feet. "World's a world, dude. No, I'm... separate, from all this. Living an entirely different life. None of this... magic, monsters. Not a thing. I'm from a different universe completely."
 
-There was silence as you finally stood, and you looked at the jester hat on the ground. You reached out with a purple-grey, clawed hand to pick it up, looking it over. "Guess that means either my world's fucked, or... or he is, heh. Depending on where the magic went."
+There was silence as you finally stood, and you looked at the jester hat on the ground. You reached out with a blue-grey, clawed hand to pick it up, looking it over. "Guess that means either my world's fucked, or... or he is, heh. Depending on where the magic went."
 
 Kris frowned. "A conundrum."
 
@@ -312,21 +312,15 @@ Because some idiot jester had to keep fucking around, now you were stuck in *thi
 
 After what felt like minutes of silence, you seemed to unfreeze, and the words started to tumble out. "...I... Fuck, man. That's not- ...Why would he do that? Why- god, my friends- What about my roommate?! They're- Fucking Jevil- I had a whole life- Why does shit never want to work out for- FUCKING **JEVIL!**"
 
-Somewhere in the midst of your rambling, subconsciously, a scythe had fizzled into existence in your hands, and your friends ducked out of the way as you swung it about in your raving. You blinked a few times, suddenly noticing its weight, and you stared at the weapon that was not in your hands before.
-
-You looked slowly up at the group, staring at you with mixed expressions of fear, awe, and shock.
-
-Your own face was frozen in a look of shock. You stuttered out, "W-well uh... T-thats... that's a problem." You paused, taking deep breaths, letting your anger dissipate. "...Well, since I have this... I wonder, if i think of..."
-
-You took a few moments to think clearly, that you wanted to visit the location of your body... then, turning away from the group, you readied the scythe and swung.
-
-The buzz of Jevil's magic within you surged through your palms into the blade, and as you swung the blade down, you felt it catch on *nothing*, then slice.
+Somewhere in the midst of your rambling, subconsciously, a scythe had fizzled into existence in your hands, and your friends ducked out of the way as you swung it about in your raving. The buzz of Jevil's magic within you surged through your palms into the blade, and as you swung the blade down, punctuating your final exclamation, you felt it catch on *nothing*, then slice.
 
 As the blade cut through the air, a *hole* in the space in front of you opened, a window into another world.
 
 A window into *your* world.
 
-You moved to wedge the scythe into the hole, such that it shouldn't close, then, the moment over, you trembled and slowly fell to your knees.
+Interrupted by the sight, you blankly stared at the view on the other side.
+
+Then, you moved to wedge the scythe into the hole, such that it shouldn't close, then, the moment over, you trembled and slowly fell to your knees.
 
 There you were.
 

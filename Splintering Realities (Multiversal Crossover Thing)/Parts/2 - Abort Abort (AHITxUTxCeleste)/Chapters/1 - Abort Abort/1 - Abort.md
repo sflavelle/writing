@@ -192,7 +192,7 @@ Sans stood silently for a few moments. He glanced at Hat Kid's face, saw that sh
 
 "She's befriended the Mafia, a robot vacuum, an evil lawyer spirit and his puppets, and a knife-wielding maniac," Mu rattled off. "Buddy? You're child's play for her."
 
-"heh. look, i'll consider it, okay? just give me some time to-"
+"heh. look, i'll consider it, okay? just give me some time to mourn-"
 
 Everything paused. Immediately he could tell that these kids were not the source of the time stop.
 
