@@ -68,7 +68,7 @@ Hat Kid placed it down on the table, and Toriel, Sans, Frisk and Cooking Cat wat
 
 "It's... beautiful," Toriel said quietly.
 
-Hat Kid nodded. "That energy potential is renewable... but dangerous." She picked it up again, looking at it in her hands, looking around the dirtied kitchen... before casually tossing it behind her, hearing it smash open on the tiled floor, even as Sans and Frisk's eyes both widened in shock.
+Hat Kid nodded. "That energy potential is renewable... but dangerous." She picked it up again, looking at it in her hands, looking around the dirtied kitchen... before casually tossing it behind her, hearing it smash open on the tiled floor, even as Sans and Frisk's eyes both widened.
 
 The resulting burst of energy was so bright that everyone else had to shield their eyes, and then--
 

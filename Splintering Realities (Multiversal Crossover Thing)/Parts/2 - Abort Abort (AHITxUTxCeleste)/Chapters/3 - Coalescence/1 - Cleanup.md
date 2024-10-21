@@ -82,7 +82,7 @@ Frisk stared. Slowly they mouthed, "What is happening here..."
 
 Toriel caught the child's confused movements, and glanced toward them. "My child? Is what he is saying true? Has the mountain truly been given a new name?"
 
-Frisk shook their head. "I climbed Mount Ebott to get here. It's definitely still named that, but... it's also a mountain in California, in the United States..."
+Frisk shook their head. "I climbed Mount Ebott to get here. It's definitely still named that, but... Ebott is a mountain in California, in the United States..."
 
 Something very strange was going on. Hat Kid seemed to be the first to put the clues together. "So, hang on. Sometime between you falling down here and this guy-"
 

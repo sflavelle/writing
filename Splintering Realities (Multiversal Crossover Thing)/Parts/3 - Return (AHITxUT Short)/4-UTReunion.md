@@ -120,7 +120,7 @@ The penguin only smiled warmly at her, and pulled her into a hug. "I'm so proud 
 
 "Aww, my poor child." Toriel patted her lap, and adjusted herself on the seat as Frisk made themselves comfortable with their adoptive mom. "You didn't leave them all *bonely* on the street, did you?"
 
-"ouch. throw me a bone here, tori."
+"ouch. of course not. throw me a bone here, tori."
 
 "If you let them get hurt, I promise you'll be in a skele-*ton* of trouble." The warmth in her eyes was there, but there was a more serious edge to her voice that Sans immediately noticed.
 
