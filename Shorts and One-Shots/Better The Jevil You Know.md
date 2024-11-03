@@ -170,7 +170,7 @@ Kris frowned. "A conundrum."
 
 "We'll find a way," you heard Ralsei say, and you are surprised when you suddenly feel his paw on your shoulder. You look up at them and smile. 
 
-He turns to the group. "Well, looks like we've got a mystery to solve before we close up this fountain, hmm?" He grins.
+He turns to the group. "Well, looks like we've got a mystery to solve, hmm?" He grins.
 
 "Sounds like a plan, squirt!" Susie grins, exposing her sharp teeth and clenching a fist. "The lil idiot won't know what hit him!"
 
@@ -194,7 +194,7 @@ He hums in thought. You offer, "If you wish I can return here after the fact..."
 
 He looks at you with a curious expression. "I wouldst normally need to asketh the king of such a favour..."
 
-"Ah. Theocracy, huh? Fair. I tried--"
+"Ah. Theocracy, huh? Fair. Can't say I didn't try--"
 
 "Howevereth, the King of Spades is currently indisposed." With a sly smile, he steps aside, allowing you to exit. "Therefore, the decision is mineth to make. I will allow this of thee."
 
@@ -204,7 +204,7 @@ Rouxls' smile this time is much more genuine. "I bid thee welcome to the Card Ki
 
 ----
 
-You're allowed to swap the jester garb you woke up in for something more... 'normal' (normal for this world, at least), before you are guided in a tour of Card Castle. You learn that the Jevil situation is to do with him being corrupted by a 'Dark World', and that the forces of Dark and Light are out of balance, which is why Kris, Susie, and Ralsei are around, aiming to close something called a 'Dark Fountain'.
+You're allowed to swap the jester garb you woke up in for something more... 'normal' (normal for this world, at least), before you are guided in a tour of Card Castle. You learn that the Jevil situation is to do with him being corrupted by a 'Dark World', and that the forces of Dark and Light are out of balance, which is why Kris, Susie, and Ralsei are around, aiming to close something called a 'Dark Fountain' and stabilise the worlds that are being corrupted.
 
 Rouxls, in return, learns your name, and you talk to him of the world in which you came from, of your modern technology and the pressures of modern society.
 
@@ -331,3 +331,5 @@ It seemed you had been shot to death, somewhere in the alleyway of a city. Blood
 Barely thinking, you stumbled to your feet and approached the portal, the others approaching behind. You climbed through, noting that Rouxls did as well, and you stared at your own glassy expression.
 
 This was an awful sight to see. You reached out slowly, with your clawed hands, to carefully close the human body's eyelids.
+
+And then, surrounded by your new monster friends, you began to sob uncontrollably, mourning the death of your old life.
