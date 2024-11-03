@@ -332,4 +332,20 @@ Barely thinking, you stumbled to your feet and approached the portal, the others
 
 This was an awful sight to see. You reached out slowly, with your clawed hands, to carefully close the human body's eyelids.
 
-And then, surrounded by your new monster friends, you began to sob uncontrollably, mourning the death of your old life.
+And then, surrounded by your new monster friends (and Kris), you began to sob uncontrollably, mourning the death of your old life.
+
+----
+
+The next few days are spent on autopilot, barely able to ingest any information from your pile of books, or from Rouxls and Ralsei.
+
+You didn't know what to do. 
+
+You found yourself wondering, for the first time in several months of living both as yourself and as Jevil, how much more bullshit you could handle. 
+
+The thrum of magic coursing through you promises the ability to change. Change what? How?
+
+You needed advice, a purpose.
+
+Perhaps, a look into this world's past could provide a hint for how you could contribute to Castle Town's future. 
+
+And that's how you ended up walking along the streets one day, watching the world pass you by
