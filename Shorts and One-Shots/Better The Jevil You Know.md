@@ -348,4 +348,12 @@ You needed advice, a purpose.
 
 Perhaps, a look into this world's past could provide a hint for how you could contribute to Castle Town's future. 
 
-And that's how you ended up walking along the streets one day, watching the world pass you by
+And that's how you ended up walking along the streets one day, looking out for the local shop. Rouxls had told you that someone there had once known Jevil quite well, before he had... lost it.
+
+Interestingly, by this point, people had adjusted to your presence and the idea  of 'Jevil' being reformed. Walking around here made the reality that you were just, living among monsters now quite real. At least while you were out in the castle, things seemed like more of a fantasy...
+
+It was no longer a very long, strange dream.
+
+You came across a tent that proclaimed to be a shop. Slowing to a stop in front of it, you mentally prepared to meet this creature, and quite possibly let them down.
+
+Taking some deep breaths, you removed the hat from your head, and with a final swallowing of the nerves, you opened the flap of the tent and stepped inside.
