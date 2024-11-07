@@ -28,7 +28,7 @@ What had just happened?
 
 It didn't seem that this human was magical in any way - or not in any way he could sense - so... how had she cast that memory upon him?
 
-His minion appeared to be correct - she knew way more about things than she should. How on Earth had she been able to his dealings with the Kid so easily?
+His minion appeared to be correct - she knew way more about things than she should. How on Earth had she been able to view his dealings with the Kid so easily?
 
 Snatcher surveyed the scene. "That's... *way* too much blood for a place like this," he muttered, sounding almost disappointed. "We've got standards to live up to on this planet, ya know."
 

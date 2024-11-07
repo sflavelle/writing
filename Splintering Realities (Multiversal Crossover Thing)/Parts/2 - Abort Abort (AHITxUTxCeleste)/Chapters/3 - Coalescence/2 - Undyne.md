@@ -40,15 +40,17 @@ Besides the piano, there was a bin holding a number of umbrellas inside. And... 
 
 Probably. Well, that... fucking *temple* had a lot of puzzles, even, and that had been very recent, so part of her still felt wired to do such a thing. She approached the bin, picked up a umbrella-
 
-"*Six.*"
+"*Seven.*"
 
 Madeline whirled around.
 
 The knight statue now blocked the doorway, spear in hand.
 
-"*Six human souls, we've collected.*"
+"*Seven human souls, and King Asgore will become a god.*"
 
 Maddy's eyes widened. *The statue was not a statue.* The knight's voice rang hollow through the suit of armor as it slowly stepped into the room.
+
+"*Six. Six human souls, we've collected.*"
 
 "*We only need one more to destroy the Barrier, and we will be free.*"
 

@@ -350,7 +350,7 @@ Perhaps, a look into this world's past could provide a hint for how you could co
 
 And that's how you ended up walking along the streets one day, looking out for the local shop. Rouxls had told you that someone there had once known Jevil quite well, before he had... lost it.
 
-Interestingly, by this point, people had adjusted to your presence and the idea  of 'Jevil' being reformed. Walking around here made the reality that you were just, living among monsters now quite real. At least while you were out in the castle, things seemed like more of a fantasy...
+Interestingly, by this point, people had adjusted to your presence and the idea of 'Jevil' being reformed. Walking around here made the reality that you were just, living among monsters now quite real. At least while you were out in the castle, things seemed like more of a fantasy...
 
 It was no longer a very long, strange dream.
 

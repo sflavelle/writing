@@ -44,6 +44,8 @@ They never wanted to kill her.
 
 And then...
 
+...
+
 The monsters outside of the ruins were scarier. 
 
 Frisk fled when they could, away from the Death-looking deer and the dogs with axes.

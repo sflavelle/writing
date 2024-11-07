@@ -18,7 +18,7 @@ This time, as the two rewound to an earlier stage in their fight, Frisk taking a
 
 Sans realized quicker than the human did. Before Frisk could bounce back, before he could strike again -
 
-One well-timed bone pillar struck through the ground with surprising speed, lancing the human through his chest, impaling and lifting him from the ground.
+One well-timed bone pillar struck through the ground with surprising speed, lancing the human through the chest, impaling and lifting him from the ground.
 
 The knife clattered to the ground. Sans quickly swiped it before Frisk could get any ideas, but the murderer's choked breaths and wide eyes told him that, at least for now, the fight was over.
 
@@ -30,7 +30,7 @@ Frisk grunted. "...do it, fucker."
 
 Even as the human's breaths labored, he could sense their confusion. He wished he could feel smug as he slowly strolled up to them. "you think i'm stupid, kid? you think I don't know that every time this fight has finished, we go back and do this all over again? nah. see, i've been thinking about this. while we're in battle, you can't reset. and since you're gonna be ticking away HP for the next..." he mimed checking a wristwatch for the time. "...eternity, we're technically still battling."
 
-"now, i'd love to *hang around*, but I have to go deal with the human friend who just fucked you over. don't worry, i'll come back. i'm sure you've got *a lot to get off your chest*."
+"now, i'd love to *hang around*, but I have to go deal with the human who just fucked you over. don't worry, i'll come back. i'm sure you've got *a lot to get off your chest*."
 
 Smirking, Sans turned away, waving sarcastically as he walked towards where he had seen the human girl in the hat.
 
@@ -94,13 +94,13 @@ Then suddenly they were both falling for an instant and his eyes shot open - onl
 
 If he could have let out a breath of relief...
 
-Instead, he gestured the kid to follow him out into the open, and pointed out the other human who was still impaled, still breathing (barely, Sans noticed). "what about him then, kid?"
+Instead, he gestured the kid to follow him out into the open, and pointed out the other human who was still impaled, still breathing (barely, Sans noticed). "what about them then, kid?"
 
 The kid cringed at the display of the clearly dying person, but her eyes turned back to him. "Is this the one that killed-"
 
 "yeah," Sans cut her off. "...yeah, he did. but he's human, right? that's all that matters?"
 
-She shook her head immediately. "First off, I'm pretty much an alien, not human. Second, if he's a killer, I don't care what he is, he can burn in hell."
+She shook her head immediately. "First off, I'm pretty much an alien, not human. Second, if they're a killer, I don't care what they are, he can burn in hell."
 
 This kid's immediate damning of Frisk was surprising to Sans, but it brought with it a certain amount of relief, a lightening of the weight he was carrying. *This one seemed okay. He could relax.*
 
@@ -142,15 +142,15 @@ Sans eyed her back. "...time fluctuations, huh? what kind?"
 
 "b u t  w e  n e v e r  f o r g o t."
 
-He turned, eyelights still out, so that he faced the door outside. "evidently the humans didn't, either. i've never in my life seen a kid with so much fear, so much hate. and now? thanks to him, it's just... me. me and asgore."
+He turned, eyelights still out, so that he faced the door outside. "evidently the humans didn't, either. i've never in my life seen a kid with so much fear, so much hate. and now? thanks to them, it's just... me. me and asgore."
 
-He turned again, slowly pacing toward what was left of Frisk. The girls nervously followed. "y'know, it's funny. all this loading. all this going back to stop himself from dying. this... determination, to kill us. and it never occurred to him to go back further. before he came down here, before whatever happened that set him on this path."
+He turned again, slowly pacing toward what was left of Frisk. The girls nervously followed. "y'know, it's funny. all this loading. all this going back to stop themselves from dying. this... determination, to kill us. and it never occurred to them to go back further. before they came down here, before whatever happened that set them on this path."
 
 He sighed, and Hat Kid wondered how he did that. He appeared to remove something from his hoodie, and she wondered what he had-
 
-And then casually, Sans slid Frisk's knife through his temple. Hattie let out a shocked gasp, while Mu simply uttered a "whoa".
+And then casually, Sans slid Frisk's knife through their temple. Hattie let out a shocked gasp, while Mu simply uttered a "whoa".
 
-"if this has to be how the monster race ends, with me locked in battle with this... devil child. then so be it. he'll be loading again in a moment, i imagine."
+"if this has to be how the monster race ends, with me locked in battle with this... devil child. then so be it. they'll be loading again in a moment, i imagine."
 
 Sans finally turned toward Hat Kid and Mu, and his pupils were back. He looked tired. "been nice to meet some humanoids who *didn't* want us dead, at least. so, thanks. wish I could enjoy it."
 
