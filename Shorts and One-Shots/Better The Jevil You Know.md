@@ -357,3 +357,21 @@ It was no longer a very long, strange dream.
 You came across a tent that proclaimed to be a shop. Slowing to a stop in front of it, you mentally prepared to meet this creature, and quite possibly let them down.
 
 Taking some deep breaths, you removed the hat from your head, and with a final swallowing of the nerves, you opened the flap of the tent and stepped inside.
+
+Small bells jingled, jostled by the fabric. In response, someone in the back called, "One moment, please!", leaving you briefly in the shopfront alone. 
+
+Before long though, movement in the back signalled the arrival of the shopkeeper, and a cat beast's head poked out. Its eyes (*eye*, you realised - the other was a... clothing button) widened as it took you in. "Ah. So the rumors are true."
+
+You nod, and immediately raise your hands to stop him. "I need to temper your expectations. You are Seam, correct?"
+
+The beast seemed confused as he slowly approached the counter. "...Yes...?"
+
+"Right." You took a breath. "You should know then. I'm not the same Jevil from... Before."
+
+Seam's eye scanned your form. "Yes, I can only imagine the darkness that took you has changed you."
+
+You shook your head. "Not even that. How do I say this..." You sat in a chair near the entrance, watching him. "Jevil attempted to escape his captivity by way of a bodyswap spell. I'm... what's left of that."
+
+"You are..." His brow furrowed, and he paused to take you in again, with this new information. "Then I must ask... where has *Jevil* gone?"
+
+
