@@ -28,7 +28,7 @@ The metal door jolted to life, slowly sliding across.
 
 The three turned...
 
-And peeking in the doorway, holding a weapon in their direction and looking *very* confused, was a young adult woman.
+And peeking in the doorway, holding a weapon in their direction and looking *very* confused, was a young adult *human* woman.
 
 Her eyes darted between the young two-legged goat prince in the cloak and witch's hat, the squat imp-like creature in a clown costume and crosses over its eyes, and the human-*like* man who nonetheless was completely blue and white - skin and clothing.
 
@@ -36,18 +36,28 @@ Her eyes darted between the young two-legged goat prince in the cloak and witch'
 
 She backed out from the door, and which began to close. Ralsei ran up to the closing gap and called, "Please help us! We are from the Dark World and the Card Kingdom, and we have no idea who we are or why you have summoned us!"
 
-"Summoned?" came a older male voice from somewhere outside Ralsei's view of the next room. We have done no such thing, in fact the Local Space Teleporter is currently in need of repair."
+"Summoned?" came a older male voice from somewhere outside Ralsei's view of the next room. "We have done no such thing, in fact the Local Space Teleporter is currently in need of repair."
 
-The man appeared in the view, walking to the doorway. He was balding, with square glasses, and wore a white suit with a button-up formal shirt and tie beneath. He peered at Ralsei curiously. "Fascinating. A sapient life form. I must ask, how *did* you get here?"
+A man appeared in the view, walking to the doorway. He was balding, with square glasses, and wore a white suit with a button-up formal shirt and tie beneath. He peered at Ralsei curiously. "Fascinating. A sapient animal life form. I must ask, how *did* you get here?"
 
-Ralsei cleared his throat. Something about this place didn't sit right. If this was the Light World, it was too starkly different in comparison to the Dark World - and the realities he had already visited. "I- There's three of us, sir. A, uh - a hole opened up in the dungeons of our world. We had had word of similar... Rouxls," he glanced behind him, "what was the word the messenger used?"
+Ralsei cleared his throat. Something about this place didn't sit right. If this was the Light World, it was too starkly different in comparison to the Dark World - and the realities he had already visited. "I- There's three of us, sir. A, uh - a hole opened up in the dungeons of Card Castle. We had had word of similar... uhm... Rouxls," he glanced behind him, "what was the word the messenger used?"
 
 "'Wormholes', Dark Prince."
 
-"Yes, wormholes - opening up throughout our worlds. We were evacuating the Card Kingdom's prisoner when we got pulled into one, and ended up here."
+"Yes, wormholes, thank you - opening up throughout our worlds. We were evacuating the Card Kingdom's prisoner when we got pulled into one, and ended up here."
 
-"Hmm. So what you are saying is that you have been brought here from... another planet?"
+"I see. So what you are saying is that you have been brought here from... another planet?"
 
 "Um... another reality, actually."
 
-Interested, the man tapped a control button on the wall next to the door, and the large door began to slide open fully.
+"How interesting..." The man tapped a control button on the wall next to the door, and the large door began to slide open fully. "This could very well upend our understanding of dimensional theory. Oh, if only we could experiment like we once used to..."
+
+As the man walked over to a computer desk in the middle of the room, the woman eyed them with concern, still holding the weapon in her hand, but not pointing it in the monsters' direction. "Uh, Dr. Kleiner? Are you sure they're not with the Combine or something? I mean, we've not seen anything like them before..."
+
+"And just what is this 'Combine' you speak of?" Jevil asked, an odd little grin on his face.
+
+"I'm certain it's the name of a farming machine the humans use," Ralsei responded, turning to him.
+
+"Er... I mean, yes, but..." The woman shook her head. "Were I to be as lucky as you three."
+
+"I am afraid the word 'Combine' means something much more sinister here," the man - Kleiner - responded. "However you ended up here, you are in luck. This facility is one of the few places on Earth still safe from the Combine, though it rests in a city completely under their control. Assuming you do not wish to be discovered, you'll need to find somewhere to sleep nearby..." He paused, in thought, then turned to his cohort. "Alyx, do you believe there is any place within this building that might be suitable for these creatures to lay low?"
