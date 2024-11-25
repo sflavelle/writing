@@ -6,7 +6,7 @@
 
 "LV...?" Mu cocked her head.
 
-"it's a monster term," Sans explained. "it stands for 'level of violence'." He took a breath, and leaned in toward the two kids. "most humans and monsters are gonna have an LV of 1. that's great. LV 2 can happen as an accident, sometimes. but when i met you both, before frisk reset, there was something when I checked you then that concerned me. so, i'm going to run that check again. okay? i'll be totally transparent with it, since you've been fairly helpful so far. but i need you to help me understand it. are you ready?"
+"it's a monster term," Sans explained. "it stands for 'level of violence'." He took a breath, and leaned in toward the two kids. "most humans and monsters are gonna have an LV of 1. that's great. LV 2 can happen as an accident, sometimes. y'know, tragic events, failing to save someone... ,but when i met you both, before frisk reset, there was something when I checked you then that concerned me. so, i'm going to run that check again. okay? i'll be totally transparent with it, since you've been fairly helpful so far. but i need you to help me understand it. are you ready?"
 
 Mu and Hattie shared a look. "I... guess?" Hat Kid raised an eyebrow? "What does this 'check' invol--"
 
@@ -30,7 +30,7 @@ Frisk's sharp intake of breath earned them the attention of the other two kids. 
 
 Mu and Hattie shared a look of horror. "...You've... killed, Hattie?"
 
-"Have I?" Hat Kid stared at the text box, wracking her brain.
+"...Have I?" Hat Kid stared at the text box, wracking her brain.
 
 "I always took you for a goody-two-shoes, really," Mu said quietly, also staring at the text box.
 
@@ -72,7 +72,7 @@ Hat Kid nodded. "That energy potential is renewable... but dangerous." She picke
 
 The resulting burst of energy was so bright that everyone else had to shield their eyes, and then--
 
-The group all found themselves back in their positions from a few minutes ago, with Toriel putting the dishes away with Sans, and Frisk and Mu in the middle of their chase game. The four stuttered to a halt, turning to look at each other. 
+The group all found themselves back in their positions from a few minutes ago, with Toriel putting the dishes away with Cooking Cat, Sans watching them at the table, and Frisk and Mu in the middle of their chase game. The five stuttered to a halt, turning to look at each other. 
 
 "...dangerous because it can reset time," Sans says, a hint of understanding in his expression as everybody took their seats again.
 
@@ -83,3 +83,61 @@ She took a moment to glance at all those seated. "I think rather than me explain
 "This might be a bit disorienting," Hat Kid warned, before closing her eyes and thinking back.
 
 Time seemed to slow, and a rush of scenes appeared before the group's eyes.
+
+*"What is this, flying boat? All boats must pay toll in Mafia Town... even in space!"*
+
+*"...You shy? That's cool. You're a 'less talk, more fighting' kind of girl, I take it."*
+
+*"... We'll turn them into mush, and stick their remains in a jar."*
+
+*"I've got your friend captured, and soon you will BOTH perish!"*
+
+Though she couldn't see the others as she poured her memories to them via the Time Piece, she heard the gasp from Mu as the Mafia Boss's body exploded, as if she had forgotten herself.
+
+*"I won't let this place remain as Mafia Town..."*
+
+*"Award 42. Just one time piece to fix one little error, and you won't do it? You're so SELFISH, lass!"*
+
+*"PUT YOUR NAME ON THE CONTRACT, OR I'LL MAKE YOUR LIFELESS CORPSE SIGN IT FOR YOU!"*
+
+*"We want to die! Yaaaaay!"*
+
+"They don't count," Hat Kid said firmly aloud.
+
+*"WHO DARES ENTER MY HOME?!"*
+
+*"And guess who else just stopped being useful to me? That's right... you."*
+
+In lieu of any dialogue from the Skyline, as Hat Kid had never really stopped to talk to the natives, the group was instead treated to the magically charged stormy hellscape of the Alps as she swung from her hook from treacherous mountain to treacherous mountain. And then...
+
+Hat Kid herself gasped when she saw herself at the wheel of the Walrus Captain's cruise ship, watching herself steer the ship into an iceberg to retrieve a Time Piece.
+
+She remembered being fed up with how the planet had been treating her, just wanting to get it and go, but...
+
+In the context of her judgement now, seeing how she had endangered so many lives in the persuit of her goal...
+
+Even as she saw herself charge about to rescue as many people as she could from the sinking ship before getting the Time Piece, it was still clear. 
+
+More than a few people must have died as a result.
+
+Her shoulders trembled. 
+
+But the memory soon passed, even as she felt tears prickle at her eyes, even as her travels took her somewhere more dangerous. 
+
+*"YOU work for me now. Bring me these 'Time Pieces' and I will reward you handsomely."*
+
+*"You know the deal, kid. Hand them over."*
+
+*"Can you idiots not catch a child?!"*
+
+*"Head in there and see who thinks they can judge ME... and then hit them."*
+
+*"Look at ALL I've done without you. In my world there'll be no more bad guys."*
+
+*"We don't need a HERO! GET LOST!"*
+
+The visions faded away once the group saw her stepping forward the ball of stolen Time Pieces... and everyone leaned back in their chairs to process what they had just seen. Toriel and Frisk especially seemed overwhelmed and a little cautious of the two children now.
+
+"...I can't believe that was how I acted back then," Mu mused, quietly. "To think that was only a few months ago."
+
+Hattie nodded, still a little teary. "I... guess that was the idea. You had to live through Seaside being taken over, and... well, power over Time changes people."
