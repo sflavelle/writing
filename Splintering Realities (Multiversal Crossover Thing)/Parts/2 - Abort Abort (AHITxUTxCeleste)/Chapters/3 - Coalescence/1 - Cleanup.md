@@ -114,7 +114,7 @@ Frisk gestured rudely at them.
 
 Mustache Girl noticed and turned to see what Frisk was looking at. Flowey had almost instantly buried its vines and was waving its petals with some fake grin.
 
-Mu and Frisk both rolled their eyes and turned back around. They were both slightly behind the others, so once they were away from Flowey, they could talk privately to each other, and Mu took it. "So what's your deal, kid?"
+*Like that isn't suspicious at all,* Mu thought to herself. She and Frisk both rolled their eyes and turned back around. They were both slightly behind the others, so once they were away from Flowey, they could talk privately to each other, and Mu took it. "So what's your deal, kid?"
 
 Frisk winced. They had expected to have to explain themselves, but the quaking had driven the thoughts from their mind. "I-I don't know what you mean," they tried, answering with unease.
 

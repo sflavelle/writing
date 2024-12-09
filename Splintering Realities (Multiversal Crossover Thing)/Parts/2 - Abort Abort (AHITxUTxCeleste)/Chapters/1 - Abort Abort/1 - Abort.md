@@ -10,7 +10,7 @@ The world RESET.
 
 Except, it hadn't?
 
-It *seemed* like it had RESET - time had clearly rewound again, like it would when Sans had bested the murderer, only for the bastard to suddenly be rushing at him again, dodging whatever attack he had fallen to - but this time *the murderer hadn't been the one to RESET*.
+It *seemed* like it had RESET - time had clearly rewound again, like it would when Sans had bested the murderer, only for the bastard to suddenly be rushing at him again, dodging whatever attack he had fallen to - but this time *the murderer clearly hadn't been the one to RESET*.
 
 This time, as the two rewound to an earlier stage in their fight, Frisk taking a swipe at him with the knife - Frisk faltered, slipping to the ground.
 
@@ -24,7 +24,7 @@ The knife clattered to the ground. Sans quickly swiped it before Frisk could get
 
 He took a moment, closing his eyes to calm himself. Then, finally, he smirked and opened his eyes toward the impaled human. "rough mistake, huh," he taunted.
 
-Frisk grunted. "...do it, fucker."
+Frisk grunted, choking out a response. "...do it, fucker."
 
 "hmmmmm..." Sans made a show of thinking about it. Then he shrugged. "nah, guess you'll just have to live."
 
@@ -64,11 +64,11 @@ Hat Kid paused, her jaw opening, silent briefly. "...Mu did *what*."
 
 "...who?" Sans raised a non-existent eyebrow.
 
-Hat Kid watched him for a moment, thinking. Then she snapped her fingers. "Oh, no, the one you were going to town on isn't with me. Mu's my space travelling partner. We're trying to find a way to fix the multiverse. And we encountered this rift's signature and we Tempus travellers have an obligation to fix them when we encounter them."
+Hat Kid watched him for a moment, thinking. Then she snapped her fingers. "Oh, no, the one you were going to town on isn't with me. Mu's my space travelling partner. We're trying to find a way to fix the multiverse. And we encountered this time rift's signature and we Tempus travellers have an obligation to fix them when we encounter them."
 
 He stared blankly at her. "... you got some imagination, kiddo." Sans paused, and looked around him at the space around him.
 
-The world which contained this 'time rift' felt very... abstract. As opposed to the confines and constant walls of the Underground, the reality around this tower of crystallized blocks was almost endless, an empty, gently warping, shimmering space, almost as if this space were underwater. Up above them, far above, was a translucent plane that undulated and moved slowly, the light passing through from... something, casting its rays and shadows on everything. And off in the distance, he could see some massive creature just... casually floating about in this realm - not hostile, but perhaps not friendly. Just... there.
+The world which contained this 'time rift' felt very... abstract. As opposed to the confines and constant walls of the Underground, the reality around this tower of crystallized blocks was almost endless, an empty, gently warping, shimmering space, almost as if this space were underwater. Up above them, far above, was a translucent plane that undulated and moved slowly, the light passing through from... something, casting its rays and shadows on everything. And off in the distance, he could see some massive creature just... casually floating about in this realm - not hostile, but perhaps not friendly. Just... there. Unconcerned with the sapient beings traversing its realm.
 
 This wasn't always here, hidden behind the pillars of the Judgement Hall, was it?
 
@@ -106,7 +106,7 @@ This kid's immediate damning of Frisk was surprising to Sans, but it brought wit
 
 Well, as much as he could relax, with the reality he now faced. "heh. y'know, I said the same thing to him earlier."
 
-"That guy did WHAT?!" came a second girl's shouts from behind them.
+"They did WHAT?!" came a second girl's shouts from behind them.
 
 Sans turned again.
 
@@ -152,7 +152,7 @@ And then casually, Sans slid Frisk's knife through their temple. Hattie let out 
 
 "if this has to be how the monster race ends, with me locked in battle with this... devil child. then so be it. they'll be loading again in a moment, i imagine."
 
-Sans finally turned toward Hat Kid and Mu, and his pupils were back. He looked tired. "been nice to meet some humanoids who *didn't* want us dead, at least. so, thanks. wish I could enjoy it."
+Sans finally turned toward Hat Kid and Mu, and his pupils were back. He looked tired. "been nice to meet some humans, or i guess aliens, who *didn't* want us dead, at least. so, thanks. wish I could enjoy it."
 
 "...It's... been nice to meet you, Sans," Hat Kid nodded slowly. "I'm sorry that this has happened."
 

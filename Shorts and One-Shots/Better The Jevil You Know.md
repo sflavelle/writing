@@ -150,7 +150,7 @@ You hear a deep **thud**, one that reverberates through your body and --
 
 Your chains snap, instantly cleaved in two.
 
-Your eyes snap back open as you fall the 3 feet to the ground, your legs immediately buckling, and your arms searing with pain now that they aren't numb from being pulled upward for so long. You choke back a few deep breaths amidst a stream of curses, seeing the now broken chains around your wrists. "F-fuh... fuckin' hell... Nearly pissed myself, give a guy a fuckin' warning next time."
+Your eyes snap back open as you fall the 3 feet to the stony floor, your legs immediately buckling, and your arms searing with pain now that they aren't numb from being pulled upward for so long. You choke back a few deep breaths amidst a stream of curses, seeing the now broken chains around your wrists. "F-fuh... fuckin' hell... Nearly pissed myself, give a guy a fuckin' warning next time."
 
 Susie allows herself a snort at the profanity sprouting from the chaos jester's mouth. "Okay, fine, yeah, that's not him. So if you're in *his* body, where's *your* body?"
 
@@ -370,8 +370,20 @@ The beast seemed confused as he slowly approached the counter. "...Yes...?"
 
 Seam's eye scanned your form. "Yes, I can only imagine the darkness that took you has changed you."
 
-You shook your head. "Not even that. How do I say this..." You sat in a chair near the entrance, watching him. "Jevil attempted to escape his captivity by way of a bodyswap spell. I'm... what's left of that."
+You shook your head. "Not even that. How do I say this..." You sat in a chair near the entrance, watching him. "Jevil attempted to escape his captivity by way of a bodyswap spell. I'm... I'm the unlucky sod who took his place."
 
 "You are..." His brow furrowed, and he paused to take you in again, with this new information. "Then I must ask... where has *Jevil* gone?"
 
+You looked away, yet again the image of your corpse called to mind. You scowled, and pressed your head into your hands. You wanted to disappear, right this moment. 
 
+Seam seemed to come to the conclusion that you could not yourself utter, and moved around the counter to approach you. A brief glance up at him told you nothing - his face was difficult to read. "Would I be perhaps correct in assuming by your hesitance... that the former court jester is... no more?"
+
+You watched his eyes for a moment, then slowly, you nodded just the tiniest amount, eyes shooting downward. "...'m sorry."
+
+You heard a small gasp from him, and he brought his paws up to his chest, clutching gently at his robes over his heart-- his *soul* as he processed this. "...I see." Perhaps you expected him to dismiss you, or be upset with you - perhaps you wanted him to be so, to validate your depressive episode.
+
+So you were understandably surprised when the beast, after a few moments, lowered to a crouch and pressed his head into you. Like a pet cat that sensed its owner needing affection might. 
+
+"The Jevil I knew died long ago... As you might have expected, I knew him before the poor soul lost his grip on reality. It was quite awful to watch him fall... And now, because of the Darkness that pervades this land, you yourself are trapped in a body you do not understand. From where do you hail, my friend?"
+
+You take a deep breath, and find yourself caressing the back of the cat beast's head. You struggle to prevent yourself from outright scritching at his fur or petting him, replying with some nervousness, "I... hail from a reality outside of this one. I am still adjusting to this world of... monsters, of magic. Of... humans. The one from which i come from seems so much more... banal, boring in comparison." Your allow yourself a soft, grim chuckle. "I must admit, I do miss it, despite the kindness of the monster company I've been keeping."
