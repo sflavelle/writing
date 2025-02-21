@@ -336,54 +336,115 @@ And then, surrounded by your new monster friends (and Kris), you began to sob un
 
 ----
 
-The next few days are spent on autopilot, barely able to ingest any information from your pile of books, or from Rouxls and Ralsei.
+The last day of your second life began with a request from Kris to meet you in a clearing in the Crimson Forest.
 
-You didn't know what to do. 
+At midnight.
 
-You found yourself wondering, for the first time in several months of living both as yourself and as Jevil, how much more bullshit you could handle. 
+If you weren't certain, two months into your life as Jevil, that the wilderness was safe *enough* for liaisons like this, you would have thought that Kris had some ulterior motive. Sure, he was just slightly creepy in that odd teenager way, and he had those red eyes (but only sometimes, which still eluded you), but he was - y'know - the hero of this story you were living in. Plus, he and his friends from the Light World had been ever-so-helpful in figuring yourself out.
 
-The thrum of magic coursing through you promises the ability to change. Change what? How?
+And that was why you traversed quietly through the forest paths, a cowl keeping you warm, the jester outfit underneath. A ball of light held in your left hand lit the path ahead.
 
-You needed advice, a purpose.
+It was kind of peaceful, if you had to be honest with yourself.
 
-Perhaps, a look into this world's past could provide a hint for how you could contribute to Castle Town's future. 
+As you entered the clearing where you were to meet, you pulsed more magic into the orb briefly, its glow brightening and illuminating the area as you glanced around.
 
-And that's how you ended up walking along the streets one day, looking out for the local shop. Rouxls had told you that someone there had once known Jevil quite well, before he had... lost it.
+You were the first to arrive, it seemed.
 
-Interestingly, by this point, people had adjusted to your presence and the idea of 'Jevil' being reformed. Walking around here made the reality that you were just, living among monsters now quite real. At least while you were out in the castle, things seemed like more of a fantasy...
+You leaned against a nearby tree and waited.
 
-It was no longer a very long, strange dream.
+It was a few minutes before, though nobody appeared in your field of vision, a familiar voice said gently, *right into your ear*, "There's something I've been meaning to ask."
 
-You came across a tent that proclaimed to be a shop. Slowing to a stop in front of it, you mentally prepared to meet this creature, and quite possibly let them down.
+You flinched away, turning your head to see Kris standing right next to where you had been, shit-eating grin on his face. You growled in frustration. "Jesus, Kris, can you *ever* be a normal human being?"
 
-Taking some deep breaths, you removed the hat from your head, and with a final swallowing of the nerves, you opened the flap of the tent and stepped inside.
+"Well, so, that's the thing." You noted his eyes were red again tonight. "So you're a real person, right?"
 
-Small bells jingled, jostled by the fabric. In response, someone in the back called, "One moment, please!", leaving you briefly in the shopfront alone. 
+You stared at him. "...rrrriiiight...?"
 
-Before long though, movement in the back signalled the arrival of the shopkeeper, and a cat beast's head poked out. Its eyes (*eye*, you realised - the other was a... clothing button) widened as it took you in. "Ah. So the rumors are true."
+(You noted to yourself that Kris was already speaking more than he usually does.)
 
-You nod, and immediately raise your hands to stop him. "I need to temper your expectations. You are Seam, correct?"
+"Right. So." He approached you slowly, his intense gaze boring into you. "How do I become part of this world?"
 
-The beast seemed confused as he slowly approached the counter. "...Yes...?"
+You blinked. Then again. "...You're... right here."
 
-"Right." You took a breath. "You should know then. I'm not the same Jevil from... Before."
+"No, *Kris* is here," Kris said. "*I'm* not."
 
-Seam's eye scanned your form. "Yes, I can only imagine the darkness that took you has changed you."
+Your eyes darted back and forth, taking in Kris's details. Your utter confusion must have shown on your face, as Kris continued, "I mean, I know Kris is the Angel's Vessel n' all but I mean-- have you even *played* Deltarune?"
 
-You shook your head. "Not even that. How do I say this..." You sat in a chair near the entrance, watching him. "Jevil attempted to escape his captivity by way of a bodyswap spell. I'm... I'm the unlucky sod who took his place."
+*Deltarune.*
 
-"You are..." His brow furrowed, and he paused to take you in again, with this new information. "Then I must ask... where has *Jevil* gone?"
+This wasn't *Kris* talking to you. This was the *Angel*, the *Player* behind Kris, currently controlling him.
 
-You looked away, yet again the image of your corpse called to mind. You scowled, and pressed your head into your hands. You wanted to disappear, right this moment. 
+And they were asking you... how to get *into* the game's world?!
 
-Seam seemed to come to the conclusion that you could not yourself utter, and moved around the counter to approach you. A brief glance up at him told you nothing - his face was difficult to read. "Would I be perhaps correct in assuming by your hesitance... that the former court jester is... no more?"
+"I uh." You closed your eyes and pressed your gloved hands into your face. "I didn't really ask to be here in the first place. You know that."
 
-You watched his eyes for a moment, then slowly, you nodded just the tiniest amount, eyes shooting downward. "...'m sorry."
+"Yeah, yeah." Now 'Kris' was pushing into your personal space. You gave him a gentle push away. "I bet that's just the *lore* reason. I mean look at you! You can do magic and you're friends with the gang for being *you*! I mean we know Jevil would never act like that!"
 
-You heard a small gasp from him, and he brought his paws up to his chest, clutching gently at his robes over his heart-- his *soul* as he processed this. "...I see." Perhaps you expected him to dismiss you, or be upset with you - perhaps you wanted him to be so, to validate your depressive episode.
+"The fuck?" You were offended by how this person seemed to assume that you just wrote yourself into the story to be part of Deltarune's world. "The fuck is your problem? I didn't ask for Jevil to do what he did. I didn't ask to *lose my body* to be here! Have I dreamed of being in a video game world, sure! I've never wanted to *die* to make--"
 
-So you were understandably surprised when the beast, after a few moments, lowered to a crouch and pressed his head into you. Like a pet cat that sensed its owner needing affection might. 
+**[E N O U G H.]**
 
-"The Jevil I knew died long ago... As you might have expected, I knew him before the poor soul lost his grip on reality. It was quite awful to watch him fall... And now, because of the Darkness that pervades this land, you yourself are trapped in a body you do not understand. From where do you hail, my friend?"
+The world around you and 'Kris' went black. The echo of the booming voice that had suddenly spoke to them reverberated around them.
 
-You take a deep breath, and find yourself caressing the back of the cat beast's head. You struggle to prevent yourself from outright scritching at his fur or petting him, replying with some nervousness, "I... hail from a reality outside of this one. I am still adjusting to this world of... monsters, of magic. Of... humans. The one from which i come from seems so much more... banal, boring in comparison." Your allow yourself a soft, grim chuckle. "I must admit, I do miss it, despite the kindness of the monster company I've been keeping."
+**[JESTER. YOUR STORY ENDED LONG AGO.]**
+
+You eyed 'Kris', gesturing rudely at him. Speaking to whereever this voice was coming from, you began, "I am *not* Jevil--"
+
+**[I DO NOT PARTICULARLY CARE.]**
+
+"...Rude."
+
+**[ANGEL.]**
+
+The Vessel turned, and you followed to see that a helmeted knight had appeared in this void with you. And behind them...
+
+Very faint shapes of something massive, something ominous, loomed over the three of you. It felt like it should have been invisible, but its aura in this moment or... *something*... was so imposing at that moment.
+
+**[YOUR CONNECTION TO THIS WORLD IS TEMPORARY.]**
+
+**[PROLONGING IT BY INDULGING IN THESE FANTASIES WILL NOT BE TOLERATED.]**
+
+**[THIS DETOUR IS HEREBY OVER.]**
+
+**[I WILL ALLOW YOU TO CONTINUE ON ONE CONDITION.]**
+
+In a flash, a scythe appeared in the Vessel's hand. Wait that was-- Jevil's own blade.
+
+**[E R A D I C A T E  H I M.]**
+
+...
+
+Slowly, silently, Kris, the Vessel, turned toward you.
+
+"Kris."
+
+He took one step toward you.
+
+"You're allowed to walk away, dude."
+
+**[YOU MISUNDERSTAND.]**
+
+Kris lifted the blade up, readying it for a swing.
+
+**[THIS IS NOT THE ANGEL'S CHOICE TO MAKE.]**
+
+***[IT IS MINE.]***
+
+The blade came down.
+
+There was an instant of hot pain, agony like you had never felt--
+
+And then-
+
+Nothing.
+
+...
+
+* The Devilsknife has gone quiet.
+
+...
+
+...
+
+----
+
