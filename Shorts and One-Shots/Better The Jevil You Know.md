@@ -378,7 +378,7 @@ And they were asking you... how to get *into* the game's world?!
 
 "I uh." You closed your eyes and pressed your gloved hands into your face. "I didn't really ask to be here in the first place. You know that."
 
-"Yeah, yeah." Now 'Kris' was pushing into your personal space. You gave him a gentle push away. "I bet that's just the *lore* reason. I mean look at you! You can do magic and you're friends with the gang for being *you*! I mean we know Jevil would never act like that!"
+"Yeah, yeah." Now 'Kris' was pushing into your personal space. You gave him a gentle push away. "I bet that's just the *lore* reason. I mean look at you! You can do magic and you're friends with the gang for being *you*! *I* wanna be friends with them too! I mean we know Jevil would never act like that!"
 
 "The fuck?" You were offended by how this person seemed to assume that you just wrote yourself into the story to be part of Deltarune's world. "The fuck is your problem? I didn't ask for Jevil to do what he did. I didn't ask to *lose my body* to be here! Have I dreamed of being in a video game world, sure! I've never wanted to *die* to make--"
 
@@ -448,3 +448,20 @@ Nothing.
 
 ----
 
+"......"
+
+"...did... ...fr...?"
+
+Your world was a near impenetrable fog, your self aware of almost nothing. You could not tell the passage of time, how long you had been here. 
+
+Your prison was dark and void, formless... much like yourself. Occasionally you felt a sense of being held, a warmth, a comfort - even if you were in no shape to process those feelings.
+
+After what might have felt like an eternity existing without consciousness, soon you began to feel, to take shape once more. You were still trapped within your mind, but gradually your mind began to awaken and dream once more.
+
+And then one day, you woke up. 
+
+You found yourself in a hospital bed, the room darkened and the curtains around you drawn.
+
+There was nothing attached to you, but something must have noticed your awakening, as you soon heard the padding of feet towards you. 
+
+Jevil's claws parted the curtain, and at the sight of you awake his expression became one of relief. Wordlessly he approached the bed, and clambered atop it, nestling into you.
