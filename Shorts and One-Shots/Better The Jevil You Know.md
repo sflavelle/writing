@@ -458,10 +458,22 @@ Your prison was dark and void, formless... much like yourself. Occasionally you 
 
 After what might have felt like an eternity existing without consciousness, soon you began to feel, to take shape once more. You were still trapped within your mind, but gradually your mind began to awaken and dream once more.
 
-And then one day, you woke up. 
+In one such dream, you were exploring a gigantified version of your home, roaming your cluttered computer desk like some kind of borrower. Stepping around Stream Decks and controllers and cables, you were exploring as a tiny version of yourself, and it was kind of exhilarating--
 
-You found yourself in a hospital bed, the room darkened and the curtains around you drawn.
+"How fun, fun!"
 
-There was nothing attached to you, but something must have noticed your awakening, as you soon heard the padding of feet towards you. 
+Your head snapped up, as a shadow loomed over you.
 
-Jevil's claws parted the curtain, and at the sight of you awake his expression became one of relief. Wordlessly he approached the bed, and clambered atop it, nestling into you.
+Jevil, sat in your chair, many times larger than you, smiled down at you. "Is this the kind of adventures humans like you dream of? I daresay it's rather cute~."
+
+You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I'm small and--" You paused. "...I'm... alive?"
+
+"Indeed, indeed!" He beamed. "And now we are both truly free, free of the puppetmaster who sought to play his games~!" He looked especially pleased about this fact.
+
+"...Okay, but how?" You leaned against the handle of a Dualsense controller. "Because you died in *my* body... unless I finally *am* succumbing to the madness everyone thought you had."
+
+"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "You see, young Kris and I had so much fun with our numbers game that I had decided to join him! By placing my soul in the gift I bestowed upon him, I could be as free as I desired, and the King would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
+
+You crossed your arms, frowning. "Well, you got me, I'm a sucker. So why are you bringing me with you now...?"
+
+A gentle claw brushed over your head, but Jevil didn't answer immediately. His smile dimmed slightly as he decided how best to answer your query.
