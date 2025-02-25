@@ -472,7 +472,7 @@ You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I
 
 "...Okay, but how?" You leaned against the handle of a Dualsense controller. "Because you died in *my* body... unless I finally *am* succumbing to the madness everyone thought you had."
 
-"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "You see, young Kris and I had so much fun with our numbers game that I had decided to join him! By placing my soul in the gift I bestowed upon him, I could be as free as I desired, and the King would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
+"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "You see, young Kris and I had so much fun with our numbers game that I had decided to join him! By placing my soul in the prize that I bestowed upon him, I could be as free as I desired, and the King would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
 
 You crossed your arms, frowning. "Well, you got me, I'm a sucker. So why are you bringing me with you now...?"
 
