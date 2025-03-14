@@ -466,14 +466,22 @@ Your head snapped up, as a shadow loomed over you.
 
 Jevil, sat in your chair, many times larger than you, smiled down at you. "Is this the kind of adventures humans like you dream of? I daresay it's rather cute~."
 
-You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I'm small and--" You paused. "...I'm... alive?"
+You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I'm small and--" You paused, eyes narrowing. "...I'm... alive?"
 
 "Indeed, indeed!" He beamed. "And now we are both truly free, free of the puppetmaster who sought to play his games~!" He looked especially pleased about this fact.
 
 "...Okay, but how?" You leaned against the handle of a Dualsense controller. "Because you died in *my* body... unless I finally *am* succumbing to the madness everyone thought you had."
 
-"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "You see, young Kris and I had so much fun with our numbers game that I had decided to join him! By placing my soul in the prize that I bestowed upon him, I could be as free as I desired, and the King would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
+"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "You see, young Kris and I had so much fun with our numbers game that I decided to join him! By placing my soul in the prize that I bestowed upon him, I could be as free as I desired, and the King would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
 
 You crossed your arms, frowning. "Well, you got me, I'm a sucker. So why are you bringing me with you now...?"
 
-A gentle claw brushed over your head, but Jevil didn't answer immediately. His smile dimmed slightly as he decided how best to answer your query.
+A gentle claw brushed over your head, but Jevil didn't answer immediately. His smile dimmed slightly as he decided how best to answer your query. "...The puppetmaster... He was the one to reveal the nature of our world to me, the nature of the game we were all pawns in. And while, yes yes, perhaps my sanity has been damaged by the revelation, in my cell I truly was free, free from the puppet master's strings!"
+
+He held you more gently, cradling you in his palm while continuing his idle petting. "But playing with Kris, struggling with his own control... And then seeing you, attempting to build a new life for me - I could see you were kind, and curious, and I knew *he* would take notice eventually."
+
+He sighed, and smiled wistfully. "I had hoped to save us both in a much less painful manner, but once he forced Kris's possessor to take action, I had to work quickly to get us both out of there..."
+
+"And now... we truly are both free from those strings that bound us!" He lit up once more, and Jevil pressed you against his chest with both hands.
+
+He was soft, warm. The lack of a heartbeat was strange and not something you had really noticed when you had been in his body, but this was also a dream, so you weren't sure if that was real or not. You relaxed into him.
