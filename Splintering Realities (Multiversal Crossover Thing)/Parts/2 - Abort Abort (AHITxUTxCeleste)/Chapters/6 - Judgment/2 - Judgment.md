@@ -6,7 +6,7 @@
 
 "LV...?" Mu cocked her head.
 
-"it's a monster term," Sans explained. "it stands for 'level of violence'." He took a breath, and leaned in toward the two kids. "most humans and monsters are gonna have an LV of 1. that's great. LV 2 can happen as an accident, sometimes. y'know, tragic events, failing to save someone... ,but when i met you both, before frisk reset, there was something when I checked you then that concerned me. so, i'm going to run that check again. okay? i'll be totally transparent with it, since you've been fairly helpful so far. but i need you to help me understand it. are you ready?"
+"it's a monster term," Sans explained. "it stands for 'level of violence'." He took a breath, and leaned in toward the two kids. "most humans and monsters are gonna have an LV of 1. that's great. LV 2 can happen as an accident, sometimes. y'know, tragic events, failing to save someone... but when i met you both, before frisk reset, there was something when I checked you then that concerned me. so, i'm going to run that check again. okay? i'll be totally transparent with it, since you've been fairly helpful so far. but i need you to help me understand it. are you ready?"
 
 Mu and Hattie shared a look. "I... guess?" Hat Kid raised an eyebrow? "What does this 'check' invol--"
 
@@ -58,7 +58,7 @@ He allowed them a moment to catch their breath. "now, my role as judge is more m
 
 "so, i ask one simple thing." Sans leaned back. "explain these deaths."
 
-The first thing Mu said, looking toward her companion, was, "The Mafia Boss."
+The first thing Mu said once she had recovered from the shock, looking toward her companion, was, "The Mafia Boss."
 
 HK thought a moment, then gasped. "You're right... I remembered that going like any other battle I've had, just trying to knock 'em out or get them to stand down. But..." She choked slightly, taking a deep breath, then turned her attention to Sans. "Okay. One moment, I need a prop to explain the 'why'." She stood from the dining table, turned, shivered lightly, then pushed her way through the doors.
 
@@ -76,7 +76,7 @@ The group all found themselves back in their positions from a few minutes ago, w
 
 "...dangerous because it can reset time," Sans says, a hint of understanding in his expression as everybody took their seats again.
 
-Hattie nodded, and picked up the suddenly-undamaged Time Piece back up off the ground, where it had landed, and set it back on the table, this time keeping her hand on it. "My ship was attacked, some time back. It caused these Time Pieces to scatter across a nearby planet. Us Tempians are resistant to its pull, but to those unused to working with them... The allure of using that power to undo mistakes, or change things is... very difficult to ignore."
+Hattie nodded, and picked up the suddenly-undamaged Time Piece back up off the ground, where it had landed, and set it back on the table, this time keeping her hand on it. "My ship was attacked, some time back. It caused these Time Pieces to scatter across a nearby planet. Us Tempians are resistant to its pull, but to those unused to working with them... The allure of using its power to undo mistakes, or change things is... very difficult to ignore."
 
 She took a moment to glance at all those seated. "I think rather than me explaining... I should show you." She tapped her hand on the Time Piece, gesturing to also touch the magical hourglass. As the monsters reached to gently rest their digits or paws on the thing, and Frisk stood to reach over to it, Mu was hesitant. After a gentle reassurance of "it's okay" from Hat Kid, she also rested her hand atop the hourglass.
 
@@ -92,7 +92,7 @@ Time seemed to slow, and a rush of scenes appeared before the group's eyes.
 
 *"I've got your friend captured, and soon you will BOTH perish!"*
 
-Though she couldn't see the others as she poured her memories to them via the Time Piece, she heard the gasp from Mu as the Mafia Boss's body exploded, as if she had forgotten herself.
+Though she couldn't see the others as she poured her memories to them via the Time Piece, she heard the gasp from Mu as the Mafia Boss's body exploded, as if she had herself forgotten the method of the Mafia Boss's disposal.
 
 *"I won't let this place remain as Mafia Town..."*
 

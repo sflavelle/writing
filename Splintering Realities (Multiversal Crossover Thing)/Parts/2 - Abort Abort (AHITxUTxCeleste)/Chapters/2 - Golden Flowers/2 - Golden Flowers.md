@@ -8,6 +8,8 @@ Her emerging panic at being alone again halted as soon as she noticed Hat Kid ne
 
 Her eyebrow raised as she then saw the other kid, slowly coming to, in the same bed of flowers as she and Hattie.
 
+A bed of golden flowers, to be exact.
+
 This bed was brightly lit - Mu looked upward, and found its light source somewhere up above, a hole in the rocky walls surrounding them.
 
 Okay, so they were still underground...
@@ -148,6 +150,8 @@ Toriel pointedly decided not to reply, but then...
 
 The ground beneath began to shake. Was this... an earthquake? But those didn't happen anywhere near Mount Ebott!
 
+Still.
+
 "Get to shelter," she said firmly to Flowey, as screams came from the flower bed. "They will not die here."
 
 And she hurried out of the room, prepared to protect the human children from danger.
@@ -182,7 +186,7 @@ With everyone sheltering in their homes underground, only a select few saw the o
 
 The source: one human girl's body, red-haired, blue-jacketed, half unconscious as she plummeted into the waters. 
 
-The cold water shocked her back to awareness, and looking around herself, the redhead swam hard for the light, breaking the surface of the turbulent water and gripping a rocky ledge for dear life. 
+The cold water shocked her awake, and looking around herself, the redhead swam hard for the light, breaking the surface of the turbulent water and gripping a rocky ledge for dear life. 
 
 Slowly, she forced herself to climb up from the water, soaking wet, and sprawled on the damp, bioluminescent grass beneath her. 
 
@@ -192,7 +196,7 @@ Madeline Thorson had failed to best Mount Celeste.
 
 And now it seemed she would be stuck down here for the rest of her days.
 
-Which, if the armored knight stalking toward her rough location had anything to say about it, would not be very long.
+Which, if the armored knight already stalking toward her rough location had anything to say about it, would not be very long.
 
 ----
 

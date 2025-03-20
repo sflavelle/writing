@@ -82,7 +82,7 @@ Frisk stared. Slowly they mouthed, "What is happening here..."
 
 Toriel caught the child's confused movements, and glanced toward them. "My child? Is what he is saying true? Has the mountain truly been given a new name?"
 
-Frisk shook their head. "I climbed Mount Ebott to get here. It's definitely still named that, but... Ebott is a mountain in California, in the United States..."
+Frisk shook their head. "I climbed Mount Ebott to get here. It's definitely still named that, but... Ebott is a mountain in the United States..."
 
 Something very strange was going on. Hat Kid seemed to be the first to put the clues together. "So, hang on. Sometime between you falling down here and this guy-"
 
@@ -96,7 +96,7 @@ Everyone turned to stare at Frisk, various confused or horrified expressions on 
 
 Finally, Hat Kid snapped her fingers. She turned to Mu. "What Moonjumper did must have damaged the multiverse more than we thought. Universes are colliding and mixing much more easily than they should be."
 
-"My word..." Toriel was lost. "I... I-" She cleared her throat, standing a bit taller. "My home is on the other end of these ruins. It is quite sturdy, there will be no danger there. If you'll follow me there, perhaps we can all be on the same page."
+"My word..." Toriel was lost. "I... I-" She cleared her throat, standing a bit taller. "Ahem. My home is on the other end of these ruins. It is quite sturdy, there will be no danger there. If you'll follow me there, perhaps we can all be on the same page."
 
 After nods from the others, Hattie smiled. "Lead the way."
 
