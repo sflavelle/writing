@@ -36,7 +36,7 @@ Papyrus was *alive*!
 
 Papyrus turned toward him... and so did the human next to him, wearing a familiar striped shirt and-
 
-And suddenly all Sans saw was a haunting figure, staring him down at the end of a hall, knife out, head to toe in dust and blood, the dust and blood of his friends, everyone he knew, of course they were back, they'd reset after all, they-
+-in the dim light of the judgement hall was a haunting figure, staring him down as it approached, knife out, head to toe in dust and blood, the dust and blood of his friends, everyone he knew, of course they were back, they'd reset after all, they-
 
 His magical energy flared as his fight or flight response kicked in. He had to save Papyrus, he would be okay, he-
 
@@ -114,7 +114,7 @@ The apartment complex's common room was furnished as little more than a big livi
 
 The penguin only smiled warmly at her, and pulled her into a hug. "I'm so proud of you, my little diva. I know you'll do your absolute best."
 
-"Is this the young child you've told me so much about?" Toriel looked upon the scene with warmth in her eyes and a fond smile on her muzzle. "It is a pleasure to meet you, my child. You may call me Toriel, and these are our friends. You will be safe here," she added, raising a paw to her chest, where her heart would be.
+"Is this the young child you've told me so much about?" Toriel looked upon the scene with warmth in her eyes and a fond smile on her muzzle. "It is a pleasure to meet you, my childreb. You may call me Toriel, and these are our friends. You will be safe here," she added, raising a paw to her chest, where her heart would be.
 
 "hey tori," Sans greeted casually from her right, and she turned to face the skeleton, with Frisk next to him. "the kid got a bit spooked earlier. i think they're doing better, but they could use some comfort this sack of bones just isn't equipped with." He let out a soft chuckle.
 
