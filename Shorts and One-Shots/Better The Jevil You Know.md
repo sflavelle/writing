@@ -502,6 +502,30 @@ Then, with a poof and a popping noise, you found yourself at your full size, and
 
 "I want to be clear," you stressed as you both sat on the ground facing each other in this dream version of your living room. "I'm not the 'puppetmaster' or affiliated with him. But my understanding is that the thing that controls Kris is someone who *literally* sees the world as a game. Now, whether this puppermaster-- *puppetmaster*, god, English is hard sometimes- whether he's pulling their strings as well, I don't know. But... well, I saw what you saw. Y'know, when I was you." You leaned in, resting a hand on his shoulder. "People speaking to me, whose words I saw on the edge of my vision. The same words telling me I restored HP when I ate. The everpresent feeling of being watched from all angles, whenever Kris was around with those red eyes..."
 
-"I *understand* how you must have felt. He was *right*, and nobody else saw it." You sighed, muttered "ah, fuck it", and embraced him. "And from the sounds of things, now we are rid of all that. So if we are sticking together, where does that leave us?"
+"I *understand* how you must have felt. The bastard was *right*, and nobody else saw it." You sighed, muttered "ah, fuck it", and embraced him. "And from the sounds of things, now we are rid of all that. So if we are sticking together, where does that leave us?"
 
-Jevil's cheeks flushed, not at all expecting this soul he had rescued to be suddenly hugging him - realising that he had missed being touched, from all his time being 'free' in the cell he had called his own. The validation that this human had seen and understood what he had gone through, when no one else had any idea what he was talking about... except perhaps Kris, from what this soul had said.
+Jevil's cheeks flushed, his smile dropping in surprise - not at all expecting this soul he had rescued to be suddenly hugging him - realising that he had missed being touched, from all his time being 'free' in the cell he had called his own. The validation that this human had seen and understood what he had gone through, when no one else had any idea what he was talking about... except perhaps Kris, from what this soul had said.
+
+A small smile returned to his lips. "I have rescued us to a new world! Some time has passed since you have been among the living, and I enlisted the help of the dark Prince in secret to create a vessel for your soul! Being a monster vessel, it requires a source of magic, and well, well, I have plenty to spare! And now we can explore this new realm we have found once you fully reawaken! How does that sound?"
+
+The implication took a moment to sink in. "Wait, you and Ralsei made me a body again? You... risked being caught to help me? Why...?"
+
+"Why not!" He beamed and got to his feet, bouncing happily about the room. "I can do anything! That foolish man can't find me, not without poor Kris! And besides..."
+
+He turned to you once more, good smile turning impish.
+
+"What's wrong with a little chaos, chaos?" He giggled, and pranced over to you, petting you on the head. "For now, my friend, you should rest. Our new world won't go anywhere while you finish recovering. And if you should need accompaniment while you dream, Jevil is not far away~!"
+
+He beamed, bouncing on his feet into the next room and out of sight.
+
+When you got up and looked, he was nowhere to be found. 
+
+You heard the screams of demons approaching you, and you hefted a shotgun you hadn't had before into both hands. This dream was at an end, and a new one was about to begin. 
+
+"Hey... Jevil?" you said to nobody in particular. 
+
+"... thanks for saving me."
+
+You cocked the shotgun and leapt into the fray as the dreamscape morphed around you. 
+
+At least you wouldn't be bored while healing.
