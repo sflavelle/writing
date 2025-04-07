@@ -28,7 +28,7 @@ Undyne was grabbed by the collar of her armour and yanked backward, stumbling. "
 
 The thud of heavy wood from the diner slamming into the ground where she had just been a second ago was enough to shut her up. 
 
-Undyne stared at the thing that had nearly taken her out, then turned to the human that had pulled her from harm's way, soul still tinted green. With a wave of her spear, Maddy's soul flickered back to its normal colour. "...D-don't think this means anything! Just because we're under attack-"
+Undyne stared at the thing that had nearly taken her out, then turned to the human that had pulled her from harm's way, soul still tinted green. With a wave of her spear, Maddy's soul flickered back to its normal colour, and she felt lighter again, able to unplant her feet. "...D-don't think this means anything! Just because we're under attack-"
 
 "Let me help you."
 
