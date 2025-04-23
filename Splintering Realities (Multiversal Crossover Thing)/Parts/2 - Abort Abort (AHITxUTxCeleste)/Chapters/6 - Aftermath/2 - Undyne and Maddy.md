@@ -1,7 +1,6 @@
 *****
 
-Madeline looked about herself at the sullen monsters around the bonfire. The battle, the loss of friends and family, and the revelation of that 'Moonjumper' monster (and whatever 'Chara' was) had done much to 
-drive some to despair.
+Madeline looked about herself at the sullen monsters around the bonfire. The battle, the loss of friends and family, and the revelation of that 'Moonjumper' monster (and whatever 'Chara' was) had done much to drive some to despair.
 
 She pulled the straps of her hoodie tighter, partially hiding her face. She had done her best with Theo to get as many of the monsters as she could to safety, but...
 

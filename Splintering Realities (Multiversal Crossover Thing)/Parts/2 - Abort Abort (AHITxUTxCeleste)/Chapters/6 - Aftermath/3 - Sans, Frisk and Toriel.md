@@ -39,7 +39,7 @@ Frisk nodded, turning to face him. Their cheeks were still wet. "I-I just wanted
 
 This, along with the revelation of Chara, lined everything up for Sans. He had met a kid who was struggling over the sudden death of a monster by their hand, whom had grown to enjoy his and Paps' company, and had been traumatised further by his brother's want to prove himself to the Royal Guard by capturing the human... allowing Chara into their body...
 
-"...you... knew about asgore, didn't you kid? that whole thing?"
+"...you... knew about asgore back then, didn't you kid? that whole thing?"
 
 Toriel nodded for them. "I told them, in no uncertain terms, that *Asgore* would... would kill them."
 
