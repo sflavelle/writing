@@ -88,6 +88,6 @@ It was another skeleton, though one he had not seen yet. This one wore a black t
 
 Now upright, Snatcher crossed his arms in front of him. "You look like something that came up out of the swamp. Just how many of you skeletons are there?"
 
-The skeleton's grin compressed into a smirk. "I am something *more* than my peers. Borne to balance out the ideals of this multiverse. Some believe our war to be one of 'good versus evil' and other such simplifications, and that the only acceptable outcome is the complete and total annihilation of the other. However--"
+The skeleton's grin compressed into a smirk. "I am something *more* than my peers. Borne to balance out the ideals of this multiverse. Some believe our war to be one of 'good versus evil' and other such simplifications, and that the only acceptable outcome for one side is the complete and total annihilation of the other. However--"
 
 "All I know is, that you must be Nightmare," Snatcher cut him off. He smirked as well. "Look, I love a good villain monologue as much as the next guy. What I don't love is being asleep to receive it and therefore being defenseless. Considering you're dead and we're speaking, what you have to say must be important to us. To me. And considering Moonjumper was detected around your... what'd the kid call it - subverse? - I'm guessing that he's the one that killed you.
