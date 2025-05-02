@@ -20,7 +20,7 @@ She took the mug, her eyes following the appendage, up the arm, to yet another v
 
 This one seemed fairly relaxed, beaming down at her in greeting. The first thing she noticed was his whole... whatever his 'bright yellow' palette thing was about. The only thing about him that wasn't was a light blue polo, complementing and contrasting with his boots and the cape wrapped around his shoulders. Even his eyes were the same kind of yellow.
 
-It was the golden headpiece he adorned that gave her the best clue to who this actually was, though. She chuckled, finally accepting the cup. "The gold's a little on the nose, don't you think?"
+It was the golden headpiece he adorned that gave her the best clue to who this actually was, though. She chuckled, finally bringing the cup toward herself. "The gold's a little on the nose, don't you think?"
 
 The skeleton was self-aware enough to at least chuckle sheepishly, phalanges scraping at the back of his skull. "It wouldn't quite be me without it," he admitted. He nodded at the space next to Mu. "Mind if I take a seat?"
 
