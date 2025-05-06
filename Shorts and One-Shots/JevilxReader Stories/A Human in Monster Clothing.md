@@ -27,6 +27,10 @@ Oh. Those are... those are the animal kinda legs, not the 'furry' ones you were 
 
 Welp guess you suddenly had to learn to walk with legs that didn't bend the way you're used to. Fuck.
 
+And... you had hooves. So that was what you heard - hard... bone? You weren't sure - that made up your feet hitting the floor.
+
+Well, this was going to be something.
+
 ----
 
 It took you longer than you felt comfortable admitting to get across the room, from the bed to the doorway, but at least your legs seemed strong... enough.
@@ -36,3 +40,7 @@ They held you - if you held yourself right. And you weren't quite used to how th
 You're glad nobody's seen you yet.
 
 Though the dim blinking LED of a security camera, unnoticed by you in your struggle, begs to differ.
+
+You decide to keep trying, turning around and slowly, with more confidence than previously, stepping back over to the bed. 
+
+Immediately you sat on the thin mattress once you reached it, giving your aching lower half a break. You were starting to understand how your new legs worked... Starting to.

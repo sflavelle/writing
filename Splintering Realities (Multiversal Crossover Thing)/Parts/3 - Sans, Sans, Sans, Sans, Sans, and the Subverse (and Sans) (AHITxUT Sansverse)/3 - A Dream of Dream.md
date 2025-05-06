@@ -76,7 +76,7 @@ Something was waiting for him there.
 
 Well, if *that* was how it was going to be... He slid silently into the shadows, moving effortlessly under the surface toward his target. 
 
-And then, once he felt as though he were right underneath his prey, he burst out from the ground--
+And then, once he felt as though he were right underneath his prey, he burst out from the ground laughing--
 
 And something slimy and acidic immediately wrapped itself around Snatcher's neck, pulling and redirecting his trajectory such that he was slammed firmly into the floor of his lab.
 
