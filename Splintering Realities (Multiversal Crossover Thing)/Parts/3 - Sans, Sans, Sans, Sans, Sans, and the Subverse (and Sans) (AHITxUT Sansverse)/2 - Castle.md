@@ -20,7 +20,7 @@ His eyelights blinked open.
 
 The room was ensconced in a shimmering, eerie green light.
 
-And all the skeletons were frozen in place, even as their eyes all locked on him and his friends.
+And all the skeletons were frozen in place, all their attacks hanging in the air, even as their eyes all locked on him and his friends.
 
 ...And Cross.
 
@@ -48,6 +48,8 @@ In another life, he had killed.
 
 He quickly moved along.
 
+His eyesockets widened as the next skeleton had *a third of his fucking skull missing*. He was bigger too, giving him a sort of hulking appearance. The axe he held in his hands looked quite sharp, and the single eyelight that watched him - the other seemingly snuffed out for good with his injury - felt... slightly dull, but curious. Cautious. What had happened to the guy?
+
 The last skeleton to meet would have seemed fairly normal, only a black shirt and sneakers standing out to him clothing-wise. If not for the black streaks coming from blank eye sockets... he was handling a knife too, and not a magical one - was it the same knife that ~~Frisk~~ Chara had once wielded against him?
 
 His eyes flickered back to Tori and the others. With Cross they had moved safely out of the way of the blast that had been fired at them. Hattie gave him a look. "I don't have much left on this time stop."
@@ -65,3 +67,11 @@ The various skeletons mid-attack stumbled to a stop as the remnants of their att
 The atmosphere was so tense you could cut it with a knife.
 
 "was wonderin' where you fucked off to, crossy," said the edgy red Sans, eyeing Cross even as kept himself in a battle-ready stance. His eyelights snapped back to Sans himself, and he spat, "you're a long way from home, classic."
+
+"don't i know it." Sans shrugged. "well, now that i've got that out of the way, i got a question of my own."
+
+He closed his eyes, and when he opened them again, his eyelights had gone out.
+
+"*what the fuck am i looking at.*"
+
+Flowey barked out a laugh, as did 'Dusty'. 'The Hulk' even let out a low chuckle. 
