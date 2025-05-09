@@ -44,7 +44,7 @@ Thankfully Dream let her enjoy the moment, looking around him at Seaside, still 
 
 Mustache Girl finished a particularly long sip. "I thought- Okay, forgive me for being blunt, it's just... who I am - the loud blue one said you died."
 
-"In a sense, yes." He sighed. "Quite... annoying, I must be honest. But I still somewhat exist, as you can see! Even if I no longer have a physical body..."
+Dream was startled into laughter. It was true, but he hadn't heard anyone refer to Blue in quite that way before! "In a sense, yes." He sighed. "Quite... annoying, I must be honest. My brother and I are both supposed to be immortal, you see, so..." He clicked his tongue in thought. "But I still somewhat exist, as you can see! Even if I no longer have a physical body..."
 
 "Are we on the right track, then? Was it Moonjumper that did... this?" She gestured at his body.
 
@@ -52,9 +52,9 @@ Mustache Girl finished a particularly long sip. "I thought- Okay, forgive me for
 
 Mu nodded. "Sounds like him. 's... why we're here and all that." She blinked. "Is... Nightmare also visiting us?"
 
-"I don't sense him *here*," the skeleton replied quickly. "But considering the problem I would not be surprised if he was making contact with one of your friends. I do apologise for tha--"
+"I don't sense him *here*," the skeleton replied quickly. "But considering the problem I would not be surprised if he was also reaching out, making contact with one of your friends. I do apologise for tha--"
 
-Mu held up a hand to stop him, and Dream startled into silence, surprised by the action. "Look, no offence, I don't need to know the backstory between you two. If we don't do something though, your killer will undo the entire multiverse. And not just this... cluster of alternative universes or whatever's going on."
+Mu held up a hand to stop him, and Dream startled into silence, surprised by the action. "Look, no offence, I don't need to know the backstory between you two. If we don't do something though, your killer will undo the entire multiverse. And not just this... cluster of parallel... alternative universes or whatever's going on."
 
 "... What about the nightmare thing?" He asked sheepishly.
 

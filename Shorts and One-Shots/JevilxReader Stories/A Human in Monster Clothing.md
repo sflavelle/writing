@@ -27,7 +27,7 @@ Oh. Those are... those are the animal kinda legs, not the 'furry' ones you were 
 
 Welp guess you suddenly had to learn to walk with legs that didn't bend the way you're used to. Fuck.
 
-And... you had hooves. So that was what you heard - hard... bone? You weren't sure - that made up your feet hitting the floor.
+And... you had hooves. So that was what you heard - hard... bone? Keratin? You weren't sure - that made up your feet hitting the floor.
 
 Well, this was going to be something.
 
