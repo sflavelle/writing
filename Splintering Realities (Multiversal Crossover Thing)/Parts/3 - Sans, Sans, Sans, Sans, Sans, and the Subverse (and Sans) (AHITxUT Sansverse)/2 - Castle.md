@@ -75,3 +75,31 @@ He closed his eyes, and when he opened them again, his eyelights had gone out.
 "*what the fuck am i looking at.*"
 
 Flowey barked out a laugh, as did 'Dusty'. 'The Hulk' even let out a low chuckle. 
+
+Papyrus Sans was the first to respond, looking as if he is meeting his idol - starry eyes and all. "It Is An Honour To Welcome The Original Sans Into The Multiverse! Although, You've Come At A Bad Time. These Villainous Rapscallions Have Somehow Destroyed The Guardian Of Positivity!"
+
+"Told you already Blue," snapped the one with the target over his chest. "We don't even know where Dream hides to even go near him."
+
+"killer's right," muttered Dust. "plus, you and *that* freak," he nodded at the painter, "snuck in here and offed our boss, so don't go pretending you're the innocent one."
+
+"We Did Not!" Blue growled. "We Didn't Even Have Access To Your Castle Until Cross Came To Find Us!"
+
+"okay, hang on." Sans raised his palms. "gonna need some context here."
+
+"...Yes, I'm afraid so," agreed Toriel, confused and concerned. "I take it then, that your sides have always fought?"
+
+"yeah..." The hulking Sans nodded, adjusting his hold on the axe he carried. "me n' dusty... red, cross, killer... we're all outcasts. make s'm... poor choices... had a rough life."
+
+"But they chose to align themselves with the Corrupted Guardian Of Negativity," proclaimed the artist. "Their actions have caused the suffering of millions across the multiverse."
+
+"agree to disagree," snapped Red. "nightmare's only fulfilling his duties. gives us somewhere to call home. makes us feel part of something again."
+
+"But Then Why Spread--"
+
+Sans rested a hand on Blue's shoulder to cut him off. "i think i'm seeing it. dream, nightmare, positivity, negativity. but if this conflict has been so... ever present, why has *this* happened now? either one of 'em coulda died before this point, yeah?"
+
+"...Well, No." Blue scratched at the back of his skull. "They Are Both Supposed To Be Immortal."
+
+Sans gave the kids a pointed look. "do they have any particular abilities? something that could be useful to an omnicidal maniac?"
+
+"...I guess the one they're most known for is in the name," Killer shrugged. They can both visit the Dreamscape and do... kinda whatever in people's dreams or nightmares."
