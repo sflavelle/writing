@@ -23,11 +23,11 @@ You slowly lift the sheets covering you to the side. Yep, that's more fur. White
 
 You flinch, your legs snapping back up off the ground. The harsh noise takes you completely by surprise. you look at yourself...
 
-Oh. Those are... those are the animal kinda legs, not the 'furry' ones you were expecting. What was the term? Digitigrade? Yeah? No, the other one. Ani... pluh... Plantigrade. Plantigrade! Yeah, that sounded right.
+Oh. Those are... those are the animal kinda legs, not the 'furry' human-like ones your brain was expecting. What was the term? Digitigrade? Yeah? No, the other one. Ani... pluh... Plantigrade. Plantigrade! Yeah, that sounded right.
 
 Welp guess you suddenly had to learn to walk with legs that didn't bend the way you're used to. Fuck.
 
-And... you had hooves. So that was what you heard - hard... bone? Keratin? You weren't sure - that made up your feet hitting the floor.
+And... you had hooves. So that was what you heard - hard... bone? Keratin? You weren't awake/alive enough for this shit - that made up your feet hitting the floor.
 
 Well, this was going to be something.
 
@@ -41,6 +41,22 @@ You're glad nobody's seen you yet.
 
 Though the dim blinking LED of a security camera, unnoticed by you in your struggle, begs to differ.
 
-You decide to keep trying, turning around and slowly, with more confidence than previously, stepping back over to the bed. 
+You decide to keep trying, turning around and slowly, with more confidence than previously, stepping back over to the bed.
 
-Immediately you sat on the thin mattress once you reached it, giving your aching lower half a break. You were starting to understand how your new legs worked... Starting to.
+Immediately you sat on the thin mattress once you reached it, giving your aching lower half a break. You were panting, if only because for part of the process of getting to and from the door you had been holding your breath. (That was a you thing, annoyingly.) You were starting to understand how your new legs worked... Starting to.
+
+As you started to settle again, you became aware of the sound of footsteps - someone padding down the corridor outside the door toward you, gentle thumps with a clicking noise to it. Ah, people *do* exist here. Perhaps Jevil, through whatever soul connection you two had, had noticed you had awoken.
+
+Their shadow appeared in the doorway shortly before the person it belonged to.
+
+It was not Jevil.
+
+This monster, however, you *did* know - if only through osmosis.
+
+She gave a little squeak as she noticed you already looking at her, adjusting the glasses over her yellow snout so her vision was clear. After a deep breath, she walked over to you, her claws clicking against the tiled floor. She looked quite tired, and you couldn't help but wonder whether it was dark here because it was late at night, or you (and evidently everyone else here) were underground... You wondered separately, whether she was overworked at the same time...
+
+You prepared to listen carefully to what Alphys, the Underground's Royal Scientist, had to tell you.
+
+"G-good evening," the lizard greeted with a nervous smile. "It's good t-to see you finally awake. You can c-call me Alphys." She consulted the clipboard she had been holding to her side. "Um, Jevil has deposited you in my care after you both arrived from, he said another world...? Uh, b-but th-that's not important right now! I-it uhm, just means you'll need an introduction to the Underground!"
+
+..Okay, so Jevil had just so happened to discover the Undertale universe, and had dropped you off here of all places where he went to do... something? "I uh... yes, of course. Do you know where he went off to...?"
