@@ -14,7 +14,7 @@ You retreat into your thoughts...
 
 ----
 
-The sound of doors opening, and footsteps getting louder, rouse you from your haze. You're not sure how much time has passed.
+The sound of doors sliding open, and footsteps getting louder, rouse you from your haze. You're not sure how much time has passed.
 
 Blinking, you start to notice that a light source is nearing, a torch of some kind judging by the light it casts on the floor. Whoever it is is about to round the corner. Who is your captor?
 
@@ -24,7 +24,7 @@ Wait, no, no time for thinking about songs.
 
 He gets close enough to you to take notice of you, and you see from the light that you're in a cell, of a dungeon of some kind. How quaint.
 
-He stops in front of the cell bars, his face takes in the sight of you, and you notice a raised eyebrow. He doesn't look *entirely* human to you, more... 'close enough' to human. It's hard to explain.
+He stops in front of the cell bars, his face takes in the sight of you, and you notice a raised eyebrow. He doesn't look *entirely* human to you, more... 'close enough' to human. It's hard to explain, but certainly uncanny.
 
 He takes a breath, and begins to speak.
 
@@ -42,9 +42,9 @@ Nonetheless... "Buddy. Pal. Are you *really* going to stand there and tell me th
 
 "You knoweth full well, what led you here," the blue man said curtly, "or hast thou insanity taken your memorye as welleth, over these monthse?"
 
-"Buddy, you're killing me with your speech," you huff, which causes you to swing lightly from the chains. You hear a quiet jingling from somewhere above your head. You were wearing a hat of some kind, weren't you? "I'm *sure* some time has passed between me waking up here and you coming by, but it *must* have been a day at most, not... months? Are you sure you're not mistaking me for someone else?"
+"Buddy, you're killing me with your speech," you huff, which causes you to swing lightly from the chains. You hear a quiet jingling from somewhere above your head. "I'm *sure* some time has passed between me waking up here and you coming by, but it *must* have been a day at most, not... months? Are you sure you're not mistaking me for someone else?"
 
-Something seems to click in his head, and he narrows his eyes, taking you in with a more critical expression. Something seems off to him. You take a few breaths, trying your best not to flip out at him. It certainly *seems* like he's expecting you to be someone else.
+Something seems to click in his head, and he narrows his eyes, taking you in with a more critical expression. Eyeing your face, your expressions, the way you hold yourself... Something seems off to him. You take a few breaths, trying your best not to flip out at him. It certainly *seems* like he's expecting you to be someone else.
 
 A minute later, he steps back, hand to his chin in thought.
 

@@ -36,13 +36,13 @@ He stepped out into the room, feeling multiple pairs of eyes on him. Stepping ar
 
 The one nearest him wore a black jacket atop a red shirt. Their teeth were almost shark-like, and one was-- was that gold? That was gold. This edgy bastard has a gold tooth.
 
-He was mid-bone-attack with what seemed like an artist version of him - this one was about to counter the attack with a... giant paintbrush? It reminded him of that 'turf war' game the kids played back on the spaceship. He recognised his own jacket tied around the painter's waist, and a color scheme of browns and blues. One of his eyes was... in the shape of a star? Okay. And he wore a bandolier in which he could see several vials with some sorta liquid in them. Potions? He wasn't sure.
+He was mid-bone-attack with what seemed like an artist version of him - this one was about to counter the attack with a... giant paintbrush? It reminded him of that 'turf war' game the kids played back on the spaceship. He recognised his own jacket tied around the painter's waist, and a color scheme of browns and blues. One of his eyes was... in the shape of a star? Okay. And he wore a bandolier in which he could see several vials with some sorta liquid in them. Potions? Paints? He wasn't sure.
 
 The next Sans along made his soul hurt, and absently he felt for Paps' scarf around his neck. Because he could see immediately that this guy was... 'Papyrus but Sans' was the best way he could put it. If he had ever taken his brother up on the 'costume party' idea he had had however many years back, this would be how he would have looked.
 
 He was facing Grey again. Now that he was closer, he could see the grittiness of the grey jacket, shirt... His lazy grin strained.
 
-That was monster dust.
+That wasn't grit. It was monster dust.
 
 In another life, he had killed.
 
@@ -86,7 +86,7 @@ Papyrus Sans was the first to respond, looking as if he is meeting his idol - st
 
 "okay, hang on." Sans raised his palms. "gonna need some context here."
 
-"...Yes, I'm afraid so," agreed Toriel, confused and concerned. "I take it then, that your sides have always fought?"
+"...Yes, I'm afraid so," agreed Asgore, confused and concerned. "I take it then, that your sides have always fought?"
 
 "yeah..." The hulking Sans nodded, adjusting his hold on the axe he carried. "me n' dusty... red, cross, killer... we're all outcasts. make s'm... poor choices... had a rough life."
 
