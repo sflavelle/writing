@@ -89,7 +89,7 @@ Mu gasped. "You can SWEAR?!" she shouted over the roar of sound, looking giddy.
 
 Another pause as this sank in.
 
-"Oh," was Mustache Girl's soft reply. She'd heard rumors of the dark side of the Metro. It didn't surprise her that the Kid had ended up on the Nyakuza's bad side. "What did you do?"
+"...Oh," was Mustache Girl's soft reply. She'd heard rumors of the dark side of the Metro. It didn't surprise her that the Kid had ended up on the Nyakuza's bad side. "What did you do?"
 
 "They took my Time Pieces..."
 
