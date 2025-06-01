@@ -36,7 +36,7 @@ He stepped out into the room, feeling multiple pairs of eyes on him. Stepping ar
 
 The one nearest him wore a black jacket atop a red shirt. Their teeth were almost shark-like, and one was-- was that gold? That was gold. This edgy bastard has a gold tooth.
 
-He was mid-bone-attack with what seemed like an artist version of him - this one was about to counter the attack with a... giant paintbrush? It reminded him of that 'turf war' game the kids played back on the spaceship. He recognised his own jacket tied around the painter's waist, and a color scheme of browns and blues. One of his eyes was... in the shape of a star? Okay. And he wore a bandolier in which he could see several vials with some sorta liquid in them. Potions? Paints? He wasn't sure.
+He was mid-bone-attack with what seemed like an artist version of him - this one was about to counter the attack with a... giant paintbrush? It reminded him of that 'turf war' game the kids played back on the spaceship. He recognised his own jacket tied around the painter's waist, and a color scheme of browns and blues. One of his eyes was... in the shape of a star? Okay, that looked a little odd on a skeleton, bit who was he to judge. And he wore a bandolier in which he could see several vials with some sorta liquid in them. Potions? He wasn't sure.
 
 The next Sans along made his soul hurt, and absently he felt for Paps' scarf around his neck. Because he could see immediately that this guy was... 'Papyrus but Sans' was the best way he could put it. If he had ever taken his brother up on the 'costume party' idea he had had however many years back, this would be how he would have looked.
 
@@ -68,7 +68,7 @@ The atmosphere was so tense you could cut it with a knife.
 
 "was wonderin' where you fucked off to, crossy," said the edgy red Sans, eyeing Cross even as kept himself in a battle-ready stance. His eyelights snapped back to Sans himself, and he spat, "you're a long way from home, classic."
 
-"don't i know it." Sans shrugged. "well, now that i've got that out of the way, i got a question for you all."
+"don't i know it." Sans shrugged, disregarding the nickname for now. He wasn't sure what that meant. "well, now that i've got that out of the way, i got a question for you all."
 
 He closed his eyes, and when he opened them again, his eyelights had gone out.
 
