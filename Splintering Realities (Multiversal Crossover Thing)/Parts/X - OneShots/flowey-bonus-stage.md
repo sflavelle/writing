@@ -40,7 +40,7 @@ On closer inspection, yeah, it looked out of place in this show. Every other sur
 
 "I see Joel is putting the DMG to good use," Elly remarked.
 
-"Huh?" Phil raised an eyebrow, but whatever he was going to say to Elly next was cut off as something appeared from the dirt. 
+"Huh?" Phil raised an eyebrow, about to question Elly on what she meant but was cut off as something sprouted from the dirt. 
 
 It... was a large buttercup flower.
 
@@ -52,6 +52,6 @@ And to Phil's horror, Elly's disappointment and Rya's disinterest, the flower ha
 
 Indeed, it sounded like Phil's own voice, higher pitched and goofy sounding.
 
-"What, you think Joel spends *money* on this show?" Phil scoffed. "You'll get the same voice actor as the rest of us and you'll be *happy*."
+"What, you think Joel spends *money* on this show for voice actors?" Elly scoffed.
 
-Flowey's grin dimmed. What did they mean, this was a 'show'? What happened to *his* voice?! Ugh, whatever, this wasn't the reason he came here. "Golly, you must be so confused!"
+Flowey's grin dimmed. What did they mean, this was a 'show'? What happened to *his* voice?! Ugh, whatever, this wasn't the reason he came here. He plastered his full grin back onto his face "Golly, you must be so confused!"
