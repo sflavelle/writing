@@ -20,9 +20,9 @@ She took the mug, her eyes following the appendage, up the arm, to yet another v
 
 This one seemed fairly relaxed, beaming down at her in greeting. The first thing she noticed was his whole... whatever his 'bright yellow' palette thing was about. The only thing about him that wasn't was a light blue polo, complementing and contrasting with his boots and the cape wrapped around his shoulders. Even his eyes were the same kind of yellow.
 
-It was the golden headpiece he adorned that gave her the best clue to who this actually was, though. She chuckled, finally bringing the cup toward herself. "The gold's a little on the nose, don't you think?"
+It was the golden tiara headpiece he adorned that gave her the best clue to who this actually was, though. She chuckled, finally bringing the cup toward herself. "The gold's a little on the nose, don't you think?"
 
-The skeleton was self-aware enough to at least chuckle sheepishly, phalanges scraping at the back of his skull. "It wouldn't quite be me without it," he admitted. He nodded at the space next to Mu. "Mind if I take a seat?"
+The skeleton was self-aware enough to at least chuckle sheepishly, digits scraping at the back of his skull. "It wouldn't quite be me without it," he admitted. He nodded at the space next to Mu. "Mind if I take a seat?"
 
 "I *guess*." Mustache Girl rolled her eyes. The sudden appearance of this skeleton, out of place in her memory, made it clear what was happening. "So I suppose I'm dreaming then."
 
@@ -84,9 +84,9 @@ And something slimy and acidic immediately wrapped itself around Snatcher's neck
 
 The ghost grumbled as the stranger's appendage retracted from him, and he turned his head to face his opponent - only to frown in confusion. 
 
-It was another skeleton, though one he had not seen yet. This one wore a black turtleneck sweater and formal dress pants, and a mass of black, oily sludge that seemed to coalesce around his back... where four tentacles(?) sprouted, made of the same substance, currently aimed at him. The cyan eyes that watched him were calm, perhaps amused.
+It was another skeleton, though one he had not seen yet. This one wore a black turtleneck sweater and formal dress pants, and a mass of black, oily sludge that seemed to coalesce around his back... where four tentacles(?) sprouted, made of the same substance, currently aimed at him. The singular cyan eye that watched him was calm, perhaps amused.
 
-Now upright, Snatcher crossed his arms in front of him. "You look like something that came up out of the swamp. Just how many of you skeletons are there?"
+Now upright, Snatcher crossed his arms in front of him. "You look like something that came up out of my swamp. Just how many of you skeletons are there?"
 
 The skeleton's grin compressed into a smirk. "I am something *more* than my peers. Borne to balance out the ideals of this multiverse. Some believe our war to be one of 'good versus evil' and other such simplifications, and that the only acceptable outcome for one side is the complete and total annihilation of the other. However--"
 

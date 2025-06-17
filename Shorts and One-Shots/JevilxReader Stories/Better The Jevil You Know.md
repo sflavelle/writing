@@ -216,7 +216,7 @@ Rouxls nods, and leans forward against the wall with you. "...A thought occurs,"
 
 "What?!" You gasp, turning toward him. "I-I'm sorry, I-"
 
-He shakes his head. "This... decay, exists due to the Dark Fountain bringing it into existence. This is my understanding, speaking to the Dark Prince Ralsei. ...Perhaps, this is a chance to reset. To let the expectations ebbeth away, let the darkness in our souls shape us into what we desire to be."
+He shakes his head. "Jevil is, of course his own problem, however... This... decay, exists due to the Dark Fountain bringing it into existence. This is my understanding, speaking to the Dark Prince Ralsei. ...Perhaps, this is a chance to reset. To let the expectations ebbeth away, let the darkness in our souls shape us into what we desire to be."
 
 "...I'm not sure that I want to let the darkness in my soul win," you say quietly, almost to yourself.
 
@@ -239,6 +239,14 @@ You befitted the name 'Jevil' for sure.
 Pudgy cheeks and an impish mouth and fangs hung beneath pointed crosses painted around the eyes, like a black four-pointed star. (Weren't save points in the other game 'stars' in the same way?) Your eyes, to go with them, were black like something demonic, with golden irises that almost glowed in contrast. 
 
 The purple-blue skin was ever so slightly fuzzy, very short fur growing. It felt... strangely pleasant to the touch, as did the chubbiness on your new frame, evidence of the jester's previous lavish life in the castle. You wondered if it was because of his curvature that his outfit, and indeed anything you could find to wear, was so... form-fitting.
+
+You had worn his outfit again briefly, trying to understand *him* through it. The vest that covered most of his frame had patterning around the middle that gave you the impression of royalty, or one of those weird hunting party guys on horses. It was a little tight around the belly - was that normal or had he somehow managed to put *on* some pounds in captivity?
+
+His ruff and his shoes were the only things that broke from his black-and-purple scheme. They stood out completely from the rest of the outfit, with bright green and orange segments on the ruff, and the same green on his footwear. It was...
+
+Well, it was something. 
+
+You admittedly appreciated the plain black cowl for warmth, though. 
 
 Despite discovering that you look like some kind of devil doll, and those in the Castle who had witnessed Jevil's downfall turning to run whenever they crossed paths with you, you found you didn't mind the body so much. 
 
@@ -274,7 +282,7 @@ Kris nodded. With a brief glance toward the others, the Lightner launched into i
 
 "Nice! Good work!" You grinned at them. "Thank you for saving me from a world of embarrassment. I can only imagine what he could have done in my body. Now, what's the bad news?"
 
-The foyer was silent. There were grim looks on the groups' faces. Rouxls held a hand to his mouth, eyes wide, shocked. 
+The foyer was silent. There were grim looks on the groups' faces, as they struggled to figure out how to break the news. Rouxls held a hand to his mouth, eyes wide, shocked. 
 
 "...Guys...?"
 
@@ -396,9 +404,9 @@ You eyed 'Kris', gesturing rudely at him. Speaking to whereever this voice was c
 
 **[ANGEL.]**
 
-The Vessel turned, and you followed to see that a helmeted knight had appeared in this void with you. And behind them...
+The Vessel turned, and you followed to see that a dark, imposing knight figure had appeared in this void with you. And behind them...
 
-Very faint shapes of something massive, something ominous, loomed over the three of you. It felt like it should have been invisible, but its aura in this moment or... *something*... was so imposing at that moment.
+Very faint shapes of something massive, something ominous, loomed over the three of you. It felt like it should have been invisible, but its aura in this moment or... *something*... was so imposing at that moment. You got the impression that *this* was the booming voice speaking to you.
 
 **[YOUR CONNECTION TO THIS WORLD IS TEMPORARY.]**
 
@@ -422,6 +430,8 @@ He took one step toward you.
 
 "You're allowed to walk away, dude."
 
+And another.
+
 **[YOU MISUNDERSTAND.]**
 
 Kris lifted the blade up, readying it for a swing.
@@ -430,7 +440,7 @@ Kris lifted the blade up, readying it for a swing.
 
 ***[IT IS MINE.]***
 
-The blade came down.
+The blade came down, slicing through your chest.
 
 There was an instant of hot pain, agony like you had never felt--
 
@@ -452,7 +462,7 @@ Nothing.
 
 "...did... ...fr...?"
 
-Your world was a near impenetrable fog, your self aware of almost nothing. You could not tell the passage of time, how long you had been here. 
+Your world was a near impenetrable fog, your self... aware of almost nothing. You could not tell the passage of time, how long you had been here. 
 
 Your prison was dark and void, formless... much like yourself. Occasionally you felt a sense of being held, a warmth, a comfort - even if you were in no shape to process those feelings.
 
@@ -474,7 +484,7 @@ You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I
 
 "...Okay, but how?" You leaned against the handle of a Dualsense controller. "Because I think I remember you died in *my* body... unless I finally *am* succumbing to the madness everyone thought you had."
 
-"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "You see, young Kris and I had so much fun with our numbers game that I decided to join him! By placing my soul in the prize that I bestowed upon him, I could be as free as I desired, and the King would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
+"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "You see, young Kris and I had so much fun with our numbers game that I decided to join him! By placing my soul in the prize that I bestowed upon him, I could be as free as I desired, and the King and the Puppetmaster would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
 
 You crossed your arms, frowning. "Well, you got me, I'm a sucker. So why are you bringing me with you now...?"
 
@@ -504,7 +514,7 @@ Then, with a poof and a popping noise, you found yourself at your full size, and
 
 "I *understand* how you must have felt. The bastard was *right*, and nobody else saw it." You sighed, muttered "ah, fuck it", and embraced him. "And from the sounds of things, now we are rid of all that. So if we are sticking together, where does that leave us?"
 
-Jevil's cheeks flushed, his smile dropping in surprise - not at all expecting this soul he had rescued to be suddenly hugging him - realising that he had missed being touched, from all his time being 'free' in the cell he had called his own. The validation that this human had seen and understood what he had gone through, when no one else had any idea what he was talking about... except perhaps Kris, from what this soul had said.
+Jevil's cheeks flushed, his smile dropping in surprise - not at all expecting this soul he had rescued to be suddenly hugging him - realising that he had missed being touched, from all his time being 'free' in the cell he had called his own. The validation, the relief that this human had seen and understood what he had gone through, when no one else had any idea what he was talking about... except perhaps Kris, from what this soul had said.
 
 A small smile returned to his lips. "I have rescued us to a new world! Some time has passed since you have been among the living, and I enlisted the help of the dark Prince in secret to create a vessel for your soul! Being a monster vessel, it requires a source of magic, and well, well, I have plenty to spare! And now we can explore this new realm we have found once you fully reawaken! How does that sound?"
 
@@ -520,12 +530,3 @@ He beamed, bouncing on his feet into the next room and out of sight.
 
 When you got up and looked, he was nowhere to be found. 
 
-You heard the screams of demons approaching you, and you hefted a shotgun you hadn't had before into both hands. This dream was at an end, and a new one was about to begin. 
-
-"Hey... Jevil?" you said to nobody in particular. 
-
-"... thanks for saving me."
-
-You cocked the shotgun and leapt into the fray as the dreamscape morphed around you. 
-
-At least you wouldn't be bored while healing.

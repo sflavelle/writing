@@ -2,7 +2,7 @@ And then, as Ralsei began to wonder if the Void would swallow them whole-
 
 There was a flash of white, and a burst of sound, and suddenly the three monsters found themselves stood in the middle of a platform, barriers spinning wildly around them. Subconsciously the three pressed against each other, not eager to be hit by such high-speed objects.
 
-The room was darkened, the only light being the sunlight from the window opposite the group. The machine made mechanical noises and a 'spinning down' kind of sound as the barriers slowed, and the platform holding them began to lower them to the ground - but apart from the machine dropping into this failsafe state, nothing else in the room was powered it would seem.
+The room was darkened, the only light being the cloudy sunlight from the window opposite the group. The machine made mechanical noises and a 'spinning down' kind of sound as the barriers slowed, and the platform holding them began to lower them to the ground - but apart from the machine dropping into this failsafe state, nothing else in the room was powered it would seem.
 
 The platform clunked mechanically against the base of the machine, pressing into the floor, and the barriers settled into place at the back. The gate opened, finally allowing the monsters out, and all three of Ralsei, Rouxls Kaard, and Jevil gladly did so. "Is everyone okay?" Ralsei asked, catching their breath.
 

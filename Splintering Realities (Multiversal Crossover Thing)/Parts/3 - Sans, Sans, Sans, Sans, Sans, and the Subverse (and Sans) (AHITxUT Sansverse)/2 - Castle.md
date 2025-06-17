@@ -100,12 +100,12 @@ Sans rested a hand on Blue's shoulder to cut him off. "i think i'm seeing it. dr
 
 "...Well, No." Blue scratched at the back of his skull. "They Are Both Supposed To Be Immortal."
 
-Sans gave the kids a pointed look. "do they have any particular abilities? something that could be useful to an omnicidal maniac?"
+Sans gave the kids a pointed look. "do they have any particular abilities? something that could be useful to, let's say, an omnicidal maniac?"
 
 "...I guess the one they're most known for is in the name," Killer shrugged. "They can both visit the Dreamscape and do... kinda whatever in people's dreams or nightmares."
 
 "They Also, Mostly Nightmare, Feed Off Of Emotions. Siphoning Them Away Or Spreading Them Further With Their Auras."
 
-"What, like an emotional vampire?" Snatcher asked, entering into the room and promptly tanking a surprised Dust's blaster, only remarking after the fact. "Already dead, kiddo."
+"What, like an emotional vampire?" Snatcher asked, entering into the room and promptly tanking a surprised Dust's blaster with no reaction, only remarking after the fact. "Already dead, kiddo. Good reflex though."
 
 "...s'mthin' like that," nodded Horror, unphased by the additional guest. "it's how they get their power."
