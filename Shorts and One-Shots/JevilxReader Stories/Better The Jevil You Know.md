@@ -388,7 +388,11 @@ And they were asking you... how to get *into* the game's world?!
 
 "Yeah, yeah." Now 'Kris' was pushing into your personal space. You gave him a gentle push away. "I bet that's just the *lore* reason. I mean look at you! You can do magic and you're friends with the gang for being *you*! *I* wanna be friends with them too! I mean we know Jevil would never act like that!"
 
-"The fuck?" You were offended by how this person seemed to assume that you just wrote yourself into the story to be part of Deltarune's world. "The fuck is your problem? I didn't ask for Jevil to do what he did. I didn't ask to *lose my body* to be here! Have I dreamed of being in a video game world, sure! I've never wanted to *die* to make--"
+"The fuck?" You were offended by how this person seemed to assume that you just wrote yourself into the story to be part of Deltarune's world. You jabbed a clawed finger into Kris's armour. "The fuck is your problem? I didn't ask for Jevil to do what he did. I didn't ask to *lose my body* to be here! Have I dreamed of being in a video game world, sure! I've never wanted to *die* to make that happen!"
+
+
+
+""
 
 **[E N O U G H.]**
 
