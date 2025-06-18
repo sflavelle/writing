@@ -432,6 +432,12 @@ He took one step toward you.
 
 And another.
 
+You tried to take a step back - but you couldn't move. 
+
+Something was controlling you, keeping you in place. 
+
+You could only watch in growing terror as the Player approached.
+
 **[YOU MISUNDERSTAND.]**
 
 Kris lifted the blade up, readying it for a swing.
