@@ -390,13 +390,33 @@ And they were asking you... how to get *into* the game's world?!
 
 "The fuck?" You were offended by how this person seemed to assume that you just wrote yourself into the story to be part of Deltarune's world. You jabbed a clawed finger into Kris's armour. "The fuck is your problem? I didn't ask for Jevil to do what he did. I didn't ask to *lose my body* to be here! Have I dreamed of being in a video game world, sure! I've never wanted to *die* to make that happen!"
 
+The Player was unperturbed. Through Kris they spoke quietly, "Well, I think it's unfair, you know? And this has been some nice 'additional content' or whatever, but I think if I'm not allowed to be part of this world--"
 
+Suddenly, 'Kris' withdrew his sword from its scabbard, and you were too late to react - you found yourself shivering in fear, the point of the sword poised just beneath your chin. 
 
-""
+'Kris' smirked, finishing the statement. "... I think you don't get to be either."
+
+Before he could act (and not ACT), you reached for the magic surging through you, warping a few steps away as the Player thrust the sword upward. *That would have gone through your head*, you realised in shock.
+
+*He actually wanted to kill you.*
+
+Anger and adrenaline surged through you. "Let Kris go," you snarled, conjuring up a few spade bullets, letting them just hover in place in front of you. "They don't deserve to be part of this." For additional protection, you reached out your hand and summoned Jevil's blade to your side.
+
+At least, that was your intent.
+
+"Oh," the Vessel murmured calmly, a smug smile on their face. "Perhaps looking for this?"
+
+Letting the sword hang loosely from their hand, they reached behind themselves with the other, and pulled out -- *they had your blade*. When did that happen?
+
+The scythe went away again, and the Vessel began to charge at you, holding Kris's sword in both hands. You launched your idle bullets at him before warping again, to the opposite side of the clearing. You could already tell you needed to stop using that - maybe it was because you had *just* learned to use that aspect of your magic, but it was using up more of your reserves than you expected. You flung more bullets in his direction in an attempt to slow him down...
+
+And then turned tail and fled through the dark forest, 'Kris' in hot pursuit.
+
+You had to reach Castle Town, at least. Would the Player still try to kill you if you had an audience? Could you wake anyone up? For perhaps the first time you bemoaned Jevil's form's lack of stamina--
 
 **[E N O U G H.]**
 
-The world around you and 'Kris' went black. The echo of the booming voice that had suddenly spoke to them reverberated around them.
+The world around you and 'Kris' went black, and both of you were forced to a stop. The echo of the booming voice that had suddenly spoke to them reverberated around them.
 
 **[JESTER. YOUR STORY ENDED LONG AGO.]**
 
@@ -408,7 +428,7 @@ You eyed 'Kris', gesturing rudely at him. Speaking to whereever this voice was c
 
 **[ANGEL.]**
 
-The Vessel turned, and you followed to see that a dark, imposing knight figure had appeared in this void with you. And behind them...
+The Vessel turned, and you followed to see that a dark, imposing knight figure had appeared in this void with you, staring impassively at you with it's weapon drawn, but not ready to strike. And behind them...
 
 Very faint shapes of something massive, something ominous, loomed over the three of you. It felt like it should have been invisible, but its aura in this moment or... *something*... was so imposing at that moment. You got the impression that *this* was the booming voice speaking to you.
 
@@ -420,7 +440,7 @@ Very faint shapes of something massive, something ominous, loomed over the three
 
 **[I WILL ALLOW YOU TO CONTINUE ON ONE CONDITION.]**
 
-In a flash, a scythe appeared in the Vessel's hand. Wait that was-- Jevil's own blade.
+In a flash, Jevil's scythe once again appeared in the Vessel's hand.
 
 **[E R A D I C A T E  H I M.]**
 
