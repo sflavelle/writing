@@ -104,14 +104,19 @@ Sans gave the kids a pointed look. "do they have any particular abilities? somet
 
 "...I guess the one they're most known for is in the name," Killer shrugged. "They can both visit the Dreamscape and do... kinda whatever in people's dreams or nightmares."
 
-<<<<<<< HEAD
-"'n they kinda... feed off feelings," added Horror. Out of the corner of his eyelights, he noticed Dust suddenly cock his head to one side, looking toward the doorway to what seemed to be the kitchen, speaking to... no one? "...mostly th' boss i think. negative feelins... make him stronger."
+"They Also, Mostly Nightmare, Feed Off Of Emotions. Siphoning Them Away Or Spreading Them Further With Their Auras."
 
-"huh. i mean, maybe there's something there for our guy..." Sans 'hmm'ed and turned toward Hat Kid, who had moved to join him. "What do ya reckon, kid? Moonjumper material?"
+"What, like an emotional vampire?" Snatcher asked, entering into the room and promptly tanking a surprised Dust's blaster with no reaction, only remarking after the fact. "Already dead, kiddo. Good reflex though."
+
+"...s'mthin' like that," nodded Horror, unphased by the additional guest. "it's how they get their power."
+
+"huh. i mean, maybe there's something there for our guy..." Sans 'hmm'ed and turned toward Hat Kid, who had moved to join him. Out of the corner of his eyelights, he noticed Dust suddenly cock his head to one side, looking toward the doorway to what seemed to be the kitchen, speaking to... no one? "What do ya reckon, kid? Moonjumper material?"
 
 Hattie shrugged, but nodded. "Going off of what we know, I could see him doing it. If he's trashing the multiverse though, I'm not too sure..."
 
-"oh. you're right." Dust said suddenly, and Sans glanced at him. His eyes widened as the dusty skeleton approached him, eyes focused on him in... concern? Dust wasn't looking at his face though...
+"Gotta agree," added Snatcher. "He already *has* the ability to visit dreams. And I'm not sure what the ability to siphon emotions is going to do for him."
+
+"oh. you're right." Dust said suddenly to nobody in particular, and Sans glanced at him. His eyes widened as the dusty skeleton approached him, eyes focused on him in... concern? Dust wasn't looking at his face though...
 
 "um. dude?" Sans leaned away slightly as Dust came up to him, but otherwise made no effort to retreat. He watched as he carefully, with reverence, brushed his fingers over Paps' scarf.
 
@@ -120,10 +125,3 @@ The other skeleton sighed sadly. "...'m sorry bout your bro, classic."
 *Oh.*
 
 The other skeletons around him flinched as they also took in the scarf, for what seemed like the first time.
-=======
-"They Also, Mostly Nightmare, Feed Off Of Emotions. Siphoning Them Away Or Spreading Them Further With Their Auras."
-
-"What, like an emotional vampire?" Snatcher asked, entering into the room and promptly tanking a surprised Dust's blaster with no reaction, only remarking after the fact. "Already dead, kiddo. Good reflex though."
-
-"...s'mthin' like that," nodded Horror, unphased by the additional guest. "it's how they get their power."
->>>>>>> main
