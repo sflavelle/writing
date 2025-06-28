@@ -102,4 +102,20 @@ Sans rested a hand on Blue's shoulder to cut him off. "i think i'm seeing it. dr
 
 Sans gave the kids a pointed look. "do they have any particular abilities? something that could be useful to an omnicidal maniac?"
 
-"...I guess the one they're most known for is in the name," Killer shrugged. They can both visit the Dreamscape and do... kinda whatever in people's dreams or nightmares."
+"...I guess the one they're most known for is in the name," Killer shrugged. "They can both visit the Dreamscape and do... kinda whatever in people's dreams or nightmares."
+
+"'n they kinda... feed off feelings," added Horror. Out of the corner of his eyelights, he noticed Dust suddenly cock his head to one side, looking toward the doorway to what seemed to be the kitchen, speaking to... no one? "...mostly th' boss i think. negative feelins... make him stronger."
+
+"huh. i mean, maybe there's something there for our guy..." Sans 'hmm'ed and turned toward Hat Kid, who had moved to join him. "What do ya reckon, kid? Moonjumper material?"
+
+Hattie shrugged, but nodded. "Going off of what we know, I could see him doing it. If he's trashing the multiverse though, I'm not too sure..."
+
+"oh. you're right." Dust said suddenly, and Sans glanced at him. His eyes widened as the dusty skeleton approached him, eyes focused on him in... concern? Dust wasn't looking at his face though...
+
+"um. dude?" Sans leaned away slightly as Dust came up to him, but otherwise made no effort to retreat. He watched as he carefully, with reverence, brushed his fingers over Paps' scarf.
+
+The other skeleton sighed sadly. "...'m sorry bout your bro, classic."
+
+*Oh.*
+
+The other skeletons around him flinched as they also took in the scarf, for what seemed like the first time.

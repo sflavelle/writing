@@ -59,4 +59,4 @@ You prepared to listen carefully to what Alphys, the Underground's Royal Scienti
 
 "G-good evening," the lizard greeted with a nervous smile. "It's good t-to see you finally awake. You can c-call me Alphys." She consulted the clipboard she had been holding to her side. "Um, Jevil has deposited you in my care after you both arrived from, he said another world...? Uh, b-but th-that's not important right now! I-it uhm, just means you'll need an introduction to the Underground!"
 
-..Okay, so Jevil had just so happened to discover the Undertale universe, and had dropped you off here of all places where he went to do... something? "I uh... yes, of course. Do you know where he went off to...?"
+..Okay, so Jevil had just so happened to discover the Undertale universe, and had dropped you off here of all places where he went to do... something? "I uh... yes, of course. Though, er, is this really a good time for you? I can't really tell what the time is, but it feels... late."
