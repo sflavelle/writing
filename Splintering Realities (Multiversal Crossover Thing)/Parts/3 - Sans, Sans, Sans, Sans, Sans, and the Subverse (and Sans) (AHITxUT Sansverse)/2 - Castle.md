@@ -36,13 +36,13 @@ He stepped out into the room, feeling multiple pairs of eyes on him. Stepping ar
 
 The one nearest him wore a black jacket atop a red shirt. Their teeth were almost shark-like, and one was-- was that gold? That was gold. This edgy bastard has a gold tooth.
 
-He was mid-bone-attack with what seemed like an artist version of him - this one was about to counter the attack with a... giant paintbrush? It reminded him of that 'turf war' game the kids played back on the spaceship. He recognised his own jacket tied around the painter's waist, and a color scheme of browns and blues. One of his eyes was... in the shape of a star? Okay. And he wore a bandolier in which he could see several vials with some sorta liquid in them. Potions? He wasn't sure.
+He was mid-bone-attack with what seemed like an artist version of him - this one was about to counter the attack with a... giant paintbrush? It reminded him of that 'turf war' game the kids played back on the spaceship. He recognised his own jacket tied around the painter's waist, and a color scheme of browns and blues. One of his eyes was... in the shape of a star? Okay, that looked a little odd on a skeleton, bit who was he to judge. And he wore a bandolier in which he could see several vials with some sorta liquid in them. Potions? He wasn't sure.
 
 The next Sans along made his soul hurt, and absently he felt for Paps' scarf around his neck. Because he could see immediately that this guy was... 'Papyrus but Sans' was the best way he could put it. If he had ever taken his brother up on the 'costume party' idea he had had however many years back, this would be how he would have looked.
 
 He was facing Grey again. Now that he was closer, he could see the grittiness of the grey jacket, shirt... His lazy grin strained.
 
-That was monster dust.
+That wasn't grit. It was monster dust.
 
 In another life, he had killed.
 
@@ -68,7 +68,7 @@ The atmosphere was so tense you could cut it with a knife.
 
 "was wonderin' where you fucked off to, crossy," said the edgy red Sans, eyeing Cross even as kept himself in a battle-ready stance. His eyelights snapped back to Sans himself, and he spat, "you're a long way from home, classic."
 
-"don't i know it." Sans shrugged. "well, now that i've got that out of the way, i got a question for you all."
+"don't i know it." Sans shrugged, disregarding the nickname for now. He wasn't sure what that meant. "well, now that i've got that out of the way, i got a question for you all."
 
 He closed his eyes, and when he opened them again, his eyelights had gone out.
 
@@ -86,7 +86,7 @@ Papyrus Sans was the first to respond, looking as if he is meeting his idol - st
 
 "okay, hang on." Sans raised his palms. "gonna need some context here."
 
-"...Yes, I'm afraid so," agreed Toriel, confused and concerned. "I take it then, that your sides have always fought?"
+"...Yes, I'm afraid so," agreed Asgore, confused and concerned. "I take it then, that your sides have always fought?"
 
 "yeah..." The hulking Sans nodded, adjusting his hold on the axe he carried. "me n' dusty... red, cross, killer... we're all outcasts. make s'm... poor choices... had a rough life."
 
@@ -100,10 +100,11 @@ Sans rested a hand on Blue's shoulder to cut him off. "i think i'm seeing it. dr
 
 "...Well, No." Blue scratched at the back of his skull. "They Are Both Supposed To Be Immortal."
 
-Sans gave the kids a pointed look. "do they have any particular abilities? something that could be useful to an omnicidal maniac?"
+Sans gave the kids a pointed look. "do they have any particular abilities? something that could be useful to, let's say, an omnicidal maniac?"
 
 "...I guess the one they're most known for is in the name," Killer shrugged. "They can both visit the Dreamscape and do... kinda whatever in people's dreams or nightmares."
 
+<<<<<<< HEAD
 "'n they kinda... feed off feelings," added Horror. Out of the corner of his eyelights, he noticed Dust suddenly cock his head to one side, looking toward the doorway to what seemed to be the kitchen, speaking to... no one? "...mostly th' boss i think. negative feelins... make him stronger."
 
 "huh. i mean, maybe there's something there for our guy..." Sans 'hmm'ed and turned toward Hat Kid, who had moved to join him. "What do ya reckon, kid? Moonjumper material?"
@@ -119,3 +120,10 @@ The other skeleton sighed sadly. "...'m sorry bout your bro, classic."
 *Oh.*
 
 The other skeletons around him flinched as they also took in the scarf, for what seemed like the first time.
+=======
+"They Also, Mostly Nightmare, Feed Off Of Emotions. Siphoning Them Away Or Spreading Them Further With Their Auras."
+
+"What, like an emotional vampire?" Snatcher asked, entering into the room and promptly tanking a surprised Dust's blaster with no reaction, only remarking after the fact. "Already dead, kiddo. Good reflex though."
+
+"...s'mthin' like that," nodded Horror, unphased by the additional guest. "it's how they get their power."
+>>>>>>> main

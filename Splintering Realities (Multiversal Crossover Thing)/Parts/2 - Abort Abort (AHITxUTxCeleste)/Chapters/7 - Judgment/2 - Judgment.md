@@ -2,7 +2,7 @@
 
 "Sure," Hat Kid nodded, sitting up.
 
-"i need to discuss your LV," he says bluntly. "both of you." Toriel let out a soft 'oh', and Frisk gasped, realising he was going to pass judgment on them - as they had done with them prior.
+"i need to discuss your LV," he says bluntly. "both of you." Toriel let out a soft 'oh', and Frisk gasped, realising he was going to pass judgment on them - as he had done with them prior.
 
 "LV...?" Mu cocked her head.
 
@@ -141,3 +141,23 @@ The visions faded away once the group saw her stepping forward the ball of stole
 "...I can't believe that was how I acted back then," Mu mused, quietly. "To think that was only a few months ago."
 
 Hattie nodded, still a little teary. "I... guess that was the idea. You had to live through Seaside being taken over, and... well, power over Time changes people."
+
+"Uhm. I'm sorry to interrupt, but..." Toriel seemed uncomfortable. "Why did... those foxes want to die? ... Did you...?"
+
+"They are Fire Spirits, dear," jumped in Cooking Cat, for which Hattie was grateful. "They're normally quite docile, normally. All they usually wish is to, um... become one with the flame."
+
+Hat Kid did feel comfortable taking over the next part. "They explained to me that they need a strong magical fire to be part of... Snatcher just wanted me to, y'know, *kill* them. The spirits explicitly *wanted* to be consumed in the fire. Even if that has contributed to this 'LV' number, that's why I think it doesn't count."
+
+"... because they wanted to die in that particular manner?" The boss monster looked conflicted. She turned her head towards Cookie. "Can you vouch for this behaviour?"
+
+"I can confirm for you that that is how they are. They live to die..."
+
+"not gonna lie, that's, uh. kinda fucked up."
+
+"That's Subcon Forest, unfortunately," Cookie nodded. "Our world in general is a bit of a... uh, I think the best way to put it is 'it's not a happy place'."
+
+"Or," Mu added, "you could do what most others on the planet do and call it a shit house."
+
+Hat Kid burst into laughter even as the others reacted strongly to the use of language. Sans simply shook his head.
+
+"aaanyway. that doesn't even get into the rest of it. 
