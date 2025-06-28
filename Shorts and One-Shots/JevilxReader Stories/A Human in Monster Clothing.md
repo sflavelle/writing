@@ -59,10 +59,10 @@ You prepared to listen carefully to what Alphys, the Underground's Royal Scienti
 
 "G-good evening," the lizard greeted with a nervous smile. "It's good t-to see you finally awake. Welcome to the Lab, you can c-call me Dr. Alphys." She consulted the clipboard she had been holding to her side. "Um, a monster by the name of Jevil has deposited you in my care a few days ago after you both arrived from, he said another world...? Uh, b-but th-that's not important right now! I-it uhm, just means you'll need an introduction to the Underground! A-anyway, from my understanding you've been through a lot?"
 
-..Okay, so Jevil had just so happened to discover the Undertale universe, and had dropped you off here of all places where he went to do... something? You nodded. "Yeah... that's right. Considering the last memory i remember after such a long, erm sleep was..." You wracked your brain. "Uh... getting stabbed."
+...Okay, so Jevil had just so happened to discover the Undertale universe, and had dropped you off here of all places where he went to do... something? You nodded. "Yeah... that's right. Considering the last memory i remember after such a long, erm sleep was..." You wracked your brain. "Uh... getting stabbed."
 
 Alphys just stared at you blankly. "I... Well, you uh... Seem? To be alive? Ahem. Well. It is... quite late in the evening, so I hope you'll understand that will run some checkups on you at a more... reasonable hour." She chuckles. 
 
 You blinked, then nodded, smiling warmly. "Oh, no stress at all! I completely understand that. Perhaps some quick introductions then and I can let you, ahh, return to sleep or something?"
 
-"Heh, u-um, actually I haven't been to bed yet." The lizard seemed embarrassed. If you had to guess the rough time, it must have been super late at night. "I was just about to um... make a snack and wind down with a few episodes of t-the show I'm watching at the moment..." She paused, and her expression shifted briefly. Was she nervous? "If you, um... don't feel tired at the moment, y-you could... join me in the living space for a while...?"
+"Heh, u-um, actually I haven't been to bed yet." The lizard seemed embarrassed. If you had to guess the rough time, it must have been super late at night. "I was just about to um... make a snack and wind down with a few episodes of t-the show I'm watching at the moment..." She paused, and her expression shifted briefly. Was she nervous? "If you, um... don't feel tired at the moment, y-you could... join me in the living space...?"
