@@ -65,4 +65,4 @@ Alphys just stared at you blankly. "I... Well, you uh... Seem? To be alive? Ahem
 
 You blinked, then nodded, smiling warmly. "Oh, no stress at all! I completely understand that. Perhaps some quick introductions then and I can let you, ahh, return to sleep or something?"
 
-"Heh, u-um, actually I haven't been to bed yet." The lizard seemed embarrassed. If you had to guess the rough time, it must have been super late at night. "I was just about to um... make a snack and wind down with a few episodes of t-the show I'm watching at the moment..." She paused, and her expression shifted briefly. Was she nervous? "If you, um... don't feel tired at the moment, y-you could... join me in the living space...?"
+"Heh, u-um, actually I haven't been to bed yet." The lizard seemed embarrassed. If you had to guess the rough time, it must have been super late at night. "I was just about to um... make a snack and wind down with a few episodes of t-the show I'm watching at the moment..." She paused, and her expression shifted briefly. Was she nervous? "If you, um... don't feel tired at the moment, y-you could... join me in the living space for a while...?"
