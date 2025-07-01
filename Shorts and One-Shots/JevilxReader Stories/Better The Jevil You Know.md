@@ -220,9 +220,9 @@ He shakes his head. "Jevil is, of course his own problem, however... This... dec
 
 "...I'm not sure that I want to let the darkness in my soul win," you say quietly, almost to yourself.
 
-"'Tis a different darkness," Rouxls clarifies. "We needst nay play the roles we were placed in. Thy opportunity strikes to be reborn, to nay be Y/N the Commoner, nay Jevil, Jester of Chaos. ...Nay Rouxls Kaard, the civil servant."
+"'Tis a different darkness," Rouxls clarifies. "We needst nay play the roles we were placed in. Thy opportunity strikes to be reborn, to nay be Y/N the Commoner, nay Jevil, Jester of Chaos."
 
-You glance at him. Is he having an identity crisis too?
+You glance at him. You think on what he said. And you lay your head on your arms, leaning forward on the castle walls.
 
 A gentle breeze brushes through as you both watch the Card Kingdom pass you by.
 
@@ -240,7 +240,7 @@ Pudgy cheeks and an impish mouth and fangs hung beneath pointed crosses painted 
 
 The purple-blue skin was ever so slightly fuzzy, very short fur growing. It felt... strangely pleasant to the touch, as did the chubbiness on your new frame, evidence of the jester's previous lavish life in the castle. You wondered if it was because of his curvature that his outfit, and indeed anything you could find to wear, was so... form-fitting.
 
-You had worn his outfit again briefly, trying to understand *him* through it. The vest that covered most of his frame had patterning around the middle that gave you the impression of royalty, or one of those weird hunting party guys on horses. It was a little tight around the belly - was that normal or had he somehow managed to put *on* some pounds in captivity?
+You had worn his outfit again briefly, trying to understand *him* through it. The vest that covered most of his frame had patterning around the middle that gave you the impression of royalty, or one of those weird hunting party guys on horses. It was a little tight around the belly, slightly straining the heart shaped buttons that held the vest together - was that normal or had he somehow managed to put *on* some pounds in captivity?
 
 His ruff and his shoes were the only things that broke from his black-and-purple scheme. They stood out completely from the rest of the outfit, with bright green and orange segments on the ruff, and the same green on his footwear. It was...
 
