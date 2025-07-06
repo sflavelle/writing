@@ -258,6 +258,42 @@ It wasn't working out yet, but you wanted to be able to do it at least once, eve
 
 ----
 
+In speaking to Ralsei one day, you find out that there is one Darkner in the kingdom who knows Jevil better than most. This interests you, as you have a picture of what Jevil was like up to and *after* his imprisonment, but not before. You had only vague ideas about his personality, his character before that point.
+
+And so, that afternoon, you venture out into Castle Town, nodding toward the citizens you pass by. People are starting to adjust to your presence and your 'restored sanity', and some creatures actually wave back at you - something that delights you.
+
+It's a busy day today - it seems as if you are catching the tail end of a market day, as various darkners are running around catching the last deals of the day, as some stalls are already packing up.
+
+Your destination though is the shop tent which is setup all year round. It's owner, supposedly, knew the jester even before whatever led to his imprisonment, and Ralsei mentioned him being a magician as well, so perhaps he might be able to help you even now?
+
+As you open the tent flaps and step in, though, you notice the lack of lights in the tent. Only one magically dimmed torch lit the area by the door, and even then just enough that one wouldn't stumble about trying to leave. 
+
+The area behind the counter is very dim, almost entirely black, a simple 'Closed' card propped up telling you that you've missed your opportunity to converse. 
+
+"Ah, damn," you murmur to yourself. It felt a bit strange though - it wasn't quite dark enough for the permanent shops to be closed. Unless this one just had to close early for whatever reason?
+
+You don't want to just leave it at that though, so you find an ink pen and a bit of card, and you scrawl a message to the absent shopkeeper, explaining who you were and why you were looking for him.
+
+Eyes well-used to seeing in the dark watched from the shadows in confusion as you placed the card on the counter and quietly left. Once Seam was certain you were gone, he left his perch and retrieved your message, scanning it carefully. His eyes widening in shock as he read your words. 
+
+The broken jester that was once his friend was... now someone completely different inhabiting his body? Seam wanted to put it down to Jevil's mind perhaps coping by having multiple personalities, and yet... some of the details were incredibly specific, or were of things that he had only heard of from the Lightners.
+
+And, well, if anyone *were* powerful enough (and insane enough) to attempt soul-swapping with another being, a *human* even, *at great distance*... it would be Jevil.
+
+Perhaps this was something he should investigate...
+
+----
+
+"One moment, please!" You called, carefully putting down the quill pen and the magical theory book you were consulting. You stood, glanced around to check that the room and yourself was presentable, then crossed your quarters to the door, opening it. "Oh, hello!" You greeted the nervous plush cat figure on the other side, extending your hand to offer him a handshake. "What can I do for you?"
+
+Seam stared at the figure of his (not) old friend, noticing again how differently he acted. After a moment, he turned his head away briefly to clear his throat, then looked back with fresh eyes. "Good evening. You erm... left a message for me yesterday."
+
+"...Oh!" You looked over your guest. He was quite a bit taller than you, robes covering most of his body, and patches and repairs littering his form. Even one of his eyes had been replaced with an old clothes button at one point. You could see immediately that Seam had lived a long life so far, and was well looked after. "You must be the former court magician, then? It's a pleasure to meet you, thanks for seeing me." You stepped back from the door to allow him in.
+
+He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, but it's something else to see it with my own eyes... You truly are not my old friend in there, are you?"
+
+----
+
 A few weeks later, there is a knock at the door to your quarters. You have been summoned to the front of the castle, told that the Lightners have returned with news for you.
 
 You wear Jevil's jester getup today, assuming it is time to get back to your old life, and to put the chaotic soul back in his cell. 

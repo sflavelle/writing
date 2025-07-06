@@ -56,8 +56,8 @@ As the man walked over to a computer desk in the middle of the room, the woman e
 
 "And just what is this 'Combine' you speak of?" Jevil asked, an odd little grin on his face.
 
-"I'm certain it's the name of a farming machine the humans use," Ralsei responded, turning to him.
+"It's the name of a farming machine the humans use," Ralsei responded, turning to him.
 
 "Er... I mean, yes, but..." The woman shook her head. "Were I to be as lucky as you three."
 
-"I am afraid the word 'Combine' means something much more sinister here," the man - Kleiner - responded. "However you ended up here, you are in luck. This facility is one of the few places on Earth still safe from the Combine, though it rests in a city completely under their control. Assuming you do not wish to be discovered, you'll need to find somewhere to sleep nearby..." He paused, in thought, then turned to his cohort. "Alyx, do you believe there is any place within this building that might be suitable for these creatures to lay low?"
+"I am afraid the word 'Combine' means something much more sinister now," the man - Kleiner - responded. "However you ended up here, you are in luck. This facility is one of the few places on Earth still safe from the Combine, though it rests in a city completely under their control. Assuming you do not wish to be discovered, you'll need to find somewhere to sleep nearby..." He paused, in thought, then turned to his cohort. "Alyx, do you believe there is any place within this building that might be suitable for these creatures to lay low?"
