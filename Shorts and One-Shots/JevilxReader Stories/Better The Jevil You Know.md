@@ -290,7 +290,7 @@ Seam stared at the figure of his (not) old friend, noticing again how differentl
 
 "...Oh!" You looked over your guest. He was quite a bit taller than you, robes covering most of his body, and patches and repairs littering his form. Even one of his eyes had been replaced with an old clothes button at one point. You could see immediately that Seam had lived a long life so far, and was well looked after. "You must be the former court magician, then? It's a pleasure to meet you, thanks for seeing me." You stepped back from the door to allow him in.
 
-He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, but it's something else to see it with my own eyes... You truly are not my old friend in there, are you?"
+He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, and of course I read the message you had left for me, but it's... something else to see it with my own eyes... You truly are not my old friend in there, are you?"
 
 ----
 
