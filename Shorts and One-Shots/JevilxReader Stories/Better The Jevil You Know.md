@@ -278,7 +278,7 @@ Eyes well-used to seeing in the dark watched from the shadows in confusion as yo
 
 The broken jester that was once his friend was... now someone completely different inhabiting his body? Seam wanted to put it down to Jevil's mind perhaps coping by having multiple personalities, and yet... some of the details were incredibly specific, or were of things that he had only heard of from the Lightners.
 
-And, well, if anyone *were* powerful enough (and insane enough) to attempt soul-swapping with another being, a *human* even, *at great distance*... it would be Jevil.
+And, well, if anyone *were* powerful enough (and insane enough) to attempt soul-swapping with another being, a *human* even, *at great distance*... it would probably be Jevil.
 
 Perhaps this was something he should investigate...
 
@@ -291,6 +291,12 @@ Seam stared at the figure of his (not) old friend, noticing again how differentl
 "...Oh!" You looked over your guest. He was quite a bit taller than you, robes covering most of his body, and patches and repairs littering his form. Even one of his eyes had been replaced with an old clothes button at one point. You could see immediately that Seam had lived a long life so far, and was well looked after. "You must be the former court magician, then? It's a pleasure to meet you, thanks for seeing me." You stepped back from the door to allow him in.
 
 He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, and of course I read the message you had left for me, but it's... something else to see it with my own eyes... You truly are not my old friend in there, are you?"
+
+Your eyes dropped, half-lidded, and you felt a strange sense of guilt as your eyes averted his. "I-I'm sorry."
+
+"Do not be," Seam replied easily, squeezing your cheeks gently. "This was his decision, not your own. I just... admittedly find it rather difficult to accept." He let go of you, and you looked back toward him, seeing that he seemed to be struggling internally. Finally he took a breath and spoke. "I have... no right to be asking this of you. But I... feel that I must see with my own eyes. And perhaps an examination would... help me understand how to help *you* with some of the concerns you had brought up to me."
+
+Another breath. "Y/N... would you allow me to examine your soul?"
 
 ----
 
