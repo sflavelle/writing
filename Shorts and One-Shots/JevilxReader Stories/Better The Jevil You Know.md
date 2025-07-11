@@ -446,6 +446,8 @@ Anger and adrenaline surged through you. "Let Kris go," you snarled, conjuring u
 
 At least, that was your intent.
 
+But it did not appear.
+
 "Oh," the Vessel murmured calmly, a smug smile on their face. "Perhaps looking for this?"
 
 Letting the sword hang loosely from their hand, they reached behind themselves with the other, and pulled out -- *they had your blade*. When did that happen?
@@ -456,7 +458,7 @@ And then turned tail and fled through the dark forest, 'Kris' in hot pursuit.
 
 You had to reach Castle Town, at least. Would the Player still try to kill you if you had an audience? Could you wake anyone up? For perhaps the first time you bemoaned Jevil's form's lack of stamina--
 
-**[E N O U G H.]**
+**[E N O U G H,]** boomed a new voice from what felt like all directions.
 
 The world around you and 'Kris' went black, and both of you were forced to a stop. The echo of the booming voice that had suddenly spoke to them reverberated around them.
 
@@ -473,6 +475,8 @@ You eyed 'Kris', gesturing rudely at him. Speaking to whereever this voice was c
 The Vessel turned, and you followed to see that a dark, imposing knight figure had appeared in this void with you, staring impassively at you with it's weapon drawn, but not ready to strike. And behind them...
 
 Very faint shapes of something massive, something ominous, loomed over the three of you. It felt like it should have been invisible, but its aura in this moment or... *something*... was so imposing at that moment. You got the impression that *this* was the booming voice speaking to you.
+
+Was *this* the entity pulling the strings here? The one orchestrating this spread of darkness, bleeding realities together?
 
 **[YOUR CONNECTION TO THIS WORLD IS TEMPORARY.]**
 
@@ -506,7 +510,7 @@ You could only watch in growing terror as the Player approached.
 
 **[YOU MISUNDERSTAND.]**
 
-Kris lifted the blade up, readying it for a swing.
+They raised the blade up, readying it for a swing.
 
 **[THIS IS NOT THE ANGEL'S CHOICE TO MAKE.]**
 
@@ -574,7 +578,7 @@ You shook your head to loosen the thought from your mind. It wasn't important ri
 
 You blinked. "Y- ...You absorbed my soul?"
 
-The jester shook his head. "I would do no such thing! How could you know of monsters and souls, lightner?" He lifted you away from him again and stared down at you, cheekily poking at you with a gentle claw. "Your world was quite boring, bereft of magic from what I had seen!"
+The jester shook his head in the negative. "I would do no such thing! How could you know of monsters and souls, lightner?" He lifted you away from him again and stared down at you, cheekily poking at you with a gentle claw. "Your world was quite boring, bereft of magic from what I had seen!"
 
 You squirmed under his touch. Well... As if he didn't know. May as well say it. "I... have a bit of an idea of how some things work from, ah, games involving your world?"
 

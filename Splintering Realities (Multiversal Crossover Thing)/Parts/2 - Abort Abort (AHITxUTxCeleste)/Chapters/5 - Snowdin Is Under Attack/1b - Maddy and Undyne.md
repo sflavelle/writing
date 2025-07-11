@@ -22,6 +22,8 @@ Two creatures - a floating masked being and a sinister looking red... cloud - wr
 
 Leaving nothing but dust. 
 
+"Oh my Asgore..." Undyne murmured in shock.
+
 These two creatures were slaughtering monsters-
 
 Undyne was grabbed by the collar of her armour and yanked backward, stumbling. "Oh that is LOW-"

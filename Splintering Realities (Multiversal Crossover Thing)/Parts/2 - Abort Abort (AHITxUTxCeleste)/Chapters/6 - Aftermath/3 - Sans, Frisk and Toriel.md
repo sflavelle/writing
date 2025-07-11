@@ -26,7 +26,7 @@ A pause. "what you *wanted* and what you *did* are two very different things."
 
 "Sans, my death was my own fault," spoke a motherly voice behind Frisk.
 
-Toriel entered gingerly into the broken establishment, looking with concern and care at the skeleton. "I asked Frisk to prove to me that they were strong enough. I... You must understand. I have seen many humans pass through into the Underground, and surely enough, soon after I receive word of their death." Her eyes glazed over as she recalled previous events. "Frisk had been so kind to the monsters in the ruins, not hurting a single one. But I... I was stubborn. They offered their mercy, multiple times. I... did not trust that their mercy, avoidance would be enough. They had proven their strength in our battle, and their kindness in their interactions with monsters beforehand. In the end... I was my own undoing."
+Toriel entered gingerly into the broken establishment, looking with concern and care at the skeleton. "I asked Frisk to prove to me that they were strong enough. I... You must understand. I have seen many humans pass through into the Underground, and surely enough, soon after I receive word of their death." Her eyes glazed over as she recalled previous events. "Frisk had been so kind to the monsters in the ruins, not hurting a single one. But I... I was stubborn. They offered their mercy, multiple times. I... did not trust that their mercy, their avoidance would be enough. They had proven their strength in our battle, and their kindness in their interactions with monsters beforehand. In the end... I was my own undoing."
 
 
 Frisk's eyes welled with tears as they clambered back over the debris to hug Toriel tightly. Between sniffles, they recalled. "W-when you had gone to do something in the ruins, I um... I got some advice from one of the Froggits. They said... that if I couldn't ACT to prevent a fight, that I could, uh... 'weaken' my opponent, until they didn't want to fight anymore, and spare them that way. That's... that's why I... I'm so sorry..." With that, they buried their head in Toriel's robe again, clutching her tightly and mumbling "I'm sorry" multiple times.
@@ -37,7 +37,7 @@ Frisk's eyes welled with tears as they clambered back over the debris to hug Tor
 
 Frisk nodded, turning to face him. Their cheeks were still wet. "I-I just wanted to prove myself to him. I didn't... didn't mean to..." A fresh sob wracked through their body, and they buried their face back into Toriel's robe.
 
-This, along with the revelation of Chara, lined everything up for Sans. He had met a kid who was struggling over the sudden death of a monster by their hand, whom had grown to enjoy his and Paps' company, and had been traumatised further by his brother's want to prove himself to the Royal Guard by capturing the human... allowing Chara into their body...
+This, along with the revelation of Chara, made things make sense for Sans. He had met a kid who was struggling over the sudden death of a monster by their hand, whom had grown to enjoy his and Paps' company, and had been traumatised further by his brother's want to prove himself to the Royal Guard by capturing the human... allowing Chara into their body...
 
 "...you... knew about asgore back then, didn't you kid? that whole thing?"
 
@@ -45,4 +45,4 @@ Toriel nodded for them. "I told them, in no uncertain terms, that *Asgore* would
 
 Shit. So the kid was acting in self-defense, and that's why they were horrified that Papyrus has died...
 
-Fuck.
+"fuck..."

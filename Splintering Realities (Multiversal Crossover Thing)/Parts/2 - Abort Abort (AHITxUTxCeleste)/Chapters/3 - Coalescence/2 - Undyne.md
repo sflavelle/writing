@@ -56,7 +56,7 @@ Maddy's eyes widened. *The statue was not a statue.* The knight's voice rang hol
 
 The knight thrust its spear out, pointing it outstretched toward Madeline. Adrenaline flooded the human's body, and she began to think about her best chance of escape.
 
-"*We have waited a thousand years for this moment!*"
+"*Do you understand?! We have waited a thousand years for this moment!*"
 
 The knight paused, and one of its hands went to its helmet, swiftly removing it in a grand gesture. And underneath...
 
