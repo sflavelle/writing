@@ -36,7 +36,7 @@ He stepped out into the room, feeling multiple pairs of eyes on him. Stepping ar
 
 The one nearest him wore a black jacket atop a red shirt. Their teeth were almost shark-like, and one was-- was that gold? That was gold. This edgy bastard has a gold tooth.
 
-He was mid-bone-attack with what seemed like an artist version of him - this one was about to counter the attack with a... giant paintbrush? It reminded him of that 'turf war' game the kids played back on the spaceship. He recognised his own jacket tied around the painter's waist, and a color scheme of browns and blues. One of his eyes was... in the shape of a star? Okay, that looked a little odd on a skeleton, bit who was he to judge. And he wore a bandolier in which he could see several vials with some sorta liquid in them. Potions? He wasn't sure.
+He was mid-bone-attack with what seemed like an artist version of him - this one was about to counter the attack with a... giant paintbrush? It reminded him of that 'turf war' video game the kids played back on the spaceship. He recognised his own jacket tied around the painter's waist, and a color scheme of browns and blues. One of his eyes was... in the shape of a star? Okay, that looked a little odd on a skeleton, but who was he to judge. And he wore a bandolier in which he could see several vials with some sorta liquid in them. Potions? He wasn't sure.
 
 The next Sans along made his soul hurt, and absently he felt for Paps' scarf around his neck. Because he could see immediately that this guy was... 'Papyrus but Sans' was the best way he could put it. If he had ever taken his brother up on the 'costume party' idea he had had however many years back, this would be how he would have looked.
 
@@ -86,7 +86,7 @@ Papyrus Sans was the first to respond, looking as if he is meeting his idol - st
 
 "okay, hang on." Sans raised his palms. "gonna need some context here."
 
-"...Yes, I'm afraid so," agreed Asgore, confused and concerned. "I take it then, that your sides have always fought?"
+"...Yes, I'm afraid so," agreed Toriel, confused and concerned. "I take it then, that your sides have always fought?"
 
 "yeah..." The hulking Sans nodded, adjusting his hold on the axe he carried. "me n' dusty... red, cross, killer... we're all outcasts. make s'm... poor choices... had a rough life."
 
@@ -106,22 +106,24 @@ Sans gave the kids a pointed look. "do they have any particular abilities? somet
 
 "They Also, Mostly Nightmare, Feed Off Of Emotions. Siphoning Them Away Or Spreading Them Further With Their Auras."
 
-"What, like an emotional vampire?" Snatcher asked, entering into the room and promptly tanking a surprised Dust's blaster with no reaction, only remarking after the fact. "Already dead, kiddo. Good reflex though."
+"What, like an emotional vampire?" Snatcher asked, entering into the room from a different entrance, and promptly tanking a surprised Dust's blaster with no reaction, only remarking after the fact. "Already dead, kiddo. Good reflex though."
 
 "...s'mthin' like that," nodded Horror, unphased by the additional guest. "it's how they get their power."
 
-"huh. i mean, maybe there's something there for our guy..." Sans 'hmm'ed and turned toward Hat Kid, who had moved to join him. Out of the corner of his eyelights, he noticed Dust suddenly cock his head to one side, looking toward the doorway to what seemed to be the kitchen, speaking to... no one? "What do ya reckon, kid? Moonjumper material?"
+"huh. i mean, maybe there's something there for our guy..." Sans 'hmm'ed and turned toward Hat Kid, who had moved to join him. Out of the corner of his eyelights, he noticed Dust suddenly cock his head to one side, looking toward the doorway to what seemed to be the kitchen, speaking to... no one? "what do ya reckon, kid? moonjumper material?"
 
 Hattie shrugged, but nodded. "Going off of what we know, I could see him doing it. If he's trashing the multiverse though, I'm not too sure..."
 
 "Gotta agree," added Snatcher. "He already *has* the ability to visit dreams. And I'm not sure what the ability to siphon emotions is going to do for him."
 
-"oh. you're right." Dust said suddenly to nobody in particular, and Sans glanced at him. His eyes widened as the dusty skeleton approached him, eyes focused on him in... concern? Dust wasn't looking at his face though...
+"oh. you're right." Dust said suddenly to nobody in particular, and Sans and Hattie glanced at him. His eyes widened as the dusty skeleton approached him, eyes focused on him in... concern? Dust wasn't looking at his face though...
 
-"um. dude?" Sans leaned away slightly as Dust came up to him, but otherwise made no effort to retreat. He watched as he carefully, with reverence, brushed his fingers over Paps' scarf.
+"um. dude?" Sans leaned away slightly as Dust came up to him, but otherwise made no effort to retreat. He watched as the other skeleton carefully, with reverence, brushed his fingers over Paps' scarf.
 
 The other skeleton sighed sadly. "...'m sorry bout your bro, classic."
 
 *Oh.*
 
 The other skeletons around him flinched as they also took in the scarf, for what seemed like the first time.
+
+"aw, shit dude," Red had the sense to look honestly shocked. "that's not fair. your paps doesn't deserve that fate."
