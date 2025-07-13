@@ -116,7 +116,7 @@ Hattie shrugged, but nodded. "Going off of what we know, I could see him doing i
 
 "Gotta agree," added Snatcher. "He already *has* the ability to visit dreams. And I'm not sure what the ability to siphon emotions is going to do for him."
 
-"oh. you're right." Dust said suddenly to nobody in particular, and Sans and Hattie glanced at him. His eyes widened as the dusty skeleton approached him, eyes focused on him in... concern? Dust wasn't looking at his face though...
+"oh. you're right." Dust said suddenly to nobody in particular, eyes wide, and Sans and Hattie glanced at him. His eyes widened as the dusty skeleton approached him, eyes focused on him in... concern? Dust wasn't looking at his face though...
 
 "um. dude?" Sans leaned away slightly as Dust came up to him, but otherwise made no effort to retreat. He watched as the other skeleton carefully, with reverence, brushed his fingers over Paps' scarf.
 

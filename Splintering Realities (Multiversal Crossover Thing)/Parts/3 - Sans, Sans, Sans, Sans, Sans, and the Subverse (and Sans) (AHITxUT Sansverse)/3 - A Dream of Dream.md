@@ -44,7 +44,7 @@ Thankfully Dream let her enjoy the moment, looking around him at Seaside, still 
 
 Mustache Girl finished a particularly long sip. "I thought- Okay, forgive me for being blunt, it's just... who I am - the loud blue one said you died."
 
-Dream was startled into laughter. It was true, but he hadn't heard anyone refer to Blue in quite that way before! "In a sense, yes." He sighed. "Quite... annoying, I must be honest. My brother and I are both supposed to be immortal, you see, so..." He clicked his tongue in thought. "But I still somewhat exist, as you can see! Even if I no longer have a physical body..."
+Dream was startled into laughter. It was true, but he hadn't heard anyone refer to Blue in quite that way before! "In a sense, yes." He sighed, and quickly after his expression dropped. "Quite... annoying, I must be honest. My brother and I are both supposed to be immortal, you see, so..." He clicked his tongue in thought. "But I still somewhat exist, as you can see! Even if I no longer have a physical body..."
 
 "Are we on the right track, then? Was it Moonjumper that did... this?" She gestured at his body.
 
@@ -58,7 +58,7 @@ Mu held up a hand to stop him, and Dream startled into silence, surprised by the
 
 "... What about the nightmare thing?" He asked sheepishly.
 
-"Snatcher or Hattie? They'll be fine," she waved off his concerns. 
+"Visiting Snatcher or Hattie? They'll be fine," she waved off his concerns. 
 
 ----
 
@@ -86,7 +86,7 @@ The ghost grumbled as the stranger's appendage retracted from him, and he turned
 
 It was another skeleton, though one he had not seen yet. This one wore a black turtleneck sweater and formal dress pants, and a mass of black, oily sludge that seemed to coalesce around his back... where four tentacles(?) sprouted, made of the same substance, currently aimed at him. The singular cyan eye that watched him was calm, perhaps amused.
 
-Now upright, Snatcher crossed his arms in front of him. "You look like something that came up out of my swamp. Just how many of you skeletons are there?"
+Lifting himself upright, Snatcher crossed his arms in front of him. "You look like something that came up out of my swamp. Just how many of you skeletons are there?"
 
 The skeleton's grin compressed into a smirk. "I am something *more* than my peers. Borne to balance out the ideals of this multiverse. Some believe our war to be one of 'good versus evil' and other such simplifications, and that the only acceptable outcome for one side is the complete and total annihilation of the other. However--"
 
