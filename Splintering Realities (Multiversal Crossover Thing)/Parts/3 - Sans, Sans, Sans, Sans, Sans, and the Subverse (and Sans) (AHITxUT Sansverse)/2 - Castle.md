@@ -30,7 +30,7 @@ And Flowey... well.
 
 "Aww, why'd you stop it kid?!" the manic flower whined from Frisk's backpack, . "It was just about to get real good!"
 
-Sans shook his head, and took a deep breath he didn't need.
+Sans shook his head and huffed out a low chuckle. Flowey, man.
 
 He stepped out into the room, feeling multiple pairs of eyes on him. Stepping around multiple attacks, frozen in time,  he stood in the center of the room, where nothing would immediately harm him once time restarted, and he slowly turned in place to look at all the different versions of himself.
 
@@ -76,9 +76,9 @@ He closed his eyes, and when he opened them again, his eyelights had gone out.
 
 Flowey barked out a laugh, as did 'Dusty'. 'The Hulk' even let out a low chuckle. 
 
-Papyrus Sans was the first to respond, looking as if he is meeting his idol - starry eyes and all. "It Is An Honour To Welcome The Original Sans Into The Multiverse! Although, You've Come At A Bad Time. These Villainous Rapscallions Have Somehow Destroyed The Guardian Of Positivity!"
+Papyrus Sans was the first to respond, rushing forward toward the time traveller, looking as if he is meeting his idol - starry eyes and all. "It Is An Honour To Welcome The Original Sans Into The Multiverse! Although, You've Come At A Bad Time. These Villainous Rapscallions Have Somehow Destroyed The Guardian Of Positivity!"
 
-"Told you already Blue," snapped the one with the target over his chest. "We don't even know where Dream hides to even go near him."
+"Told you already Blue," shrugged the one with the target over his chest. "We don't even know where Dream hides to even go near him."
 
 "killer's right," muttered Dust. "plus, you and *that* freak," he nodded at the painter, "snuck in here and offed our boss, so don't go pretending you're the innocent one."
 
@@ -108,13 +108,13 @@ Sans gave the kids a pointed look. "do they have any particular abilities? somet
 
 "What, like an emotional vampire?" Snatcher asked, entering into the room from a different entrance, and promptly tanking a surprised Dust's blaster with no reaction, only remarking after the fact. "Already dead, kiddo. Good reflex though."
 
-"...s'mthin' like that," nodded Horror, unphased by the additional guest. "it's how they get their power."
+"...s'mthin' like that," shrugged Horror, unphased by the additional guest. "it's how they get their power."
 
 "huh. i mean, maybe there's something there for our guy..." Sans 'hmm'ed and turned toward Hat Kid, who had moved to join him. Out of the corner of his eyelights, he noticed Dust suddenly cock his head to one side, looking toward the doorway to what seemed to be the kitchen, speaking to... no one? "what do ya reckon, kid? moonjumper material?"
 
 Hattie shrugged, but nodded. "Going off of what we know, I could see him doing it. If he's trashing the multiverse though, I'm not too sure..."
 
-"Gotta agree," added Snatcher. "He already *has* the ability to visit dreams. And I'm not sure what the ability to siphon emotions is going to do for him."
+"I have to agree with the brat," added Snatcher, floating closer. "He already *has* the ability to visit dreams. And I'm not sure what the ability to siphon emotions is going to do for him."
 
 "oh. you're right." Dust said suddenly to nobody in particular, eyes wide, and Sans and Hattie glanced at him. His eyes widened as the dusty skeleton approached him, eyes focused on him in... concern? Dust wasn't looking at his face though...
 

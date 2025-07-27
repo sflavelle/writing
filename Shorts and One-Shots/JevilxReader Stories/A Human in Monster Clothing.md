@@ -101,7 +101,7 @@ Your own voice was small as you answered, "I-I think I have some idea ... please
 
 You had begun shaking as you responded. "C-Clear as crystal." You didn't think to add that you had already been living around monsters. 
 
-"Good!" Immediately the robot let you go, and you collapsed backwards onto the lab bed. Its voice had already taken on a brighter tone, acting as if it had not just threatened your life. "Then it's a pleasure to make your acquaintance! Has the kind Alphys introduced me yet?"
+"Good!" Immediately the robot let you go, and you collapsed backwards onto the lab bed. Its voice had already taken on a brighter tone, acting as if it had not just threatened your life. "Then it's a pleasure to make your acquaintance! How was my performance? Did I come off as dark and brooding as I intended~?"
 
 The robot then proceeded to cut off your reply immediately and told you to call them "Mettaton". You *wanted* to call them mean names, but you kept that to yourself. Instead you gave your name between heaving breaths, trying to settle yourself. You vaguely recognised the name from the internet, but that was about it.
 
@@ -111,7 +111,7 @@ You weren't awake enough for this shit.
 
 ----
 
-"How long have you known?" You later carefully asked Alphys while you both enjoyed a lunch break from the testing of your magical capacity.
+"How long have you known?" You later carefully asked Alphys while you both enjoyed a lunch break from the testing of your body's magical capacity.
 
 She paused mid-bite of her sandwich, eyes snapping up to yours. She tried to answer, somehow forgot she had food in her mouth, and then gave up and simply raised an eyebrow in question as she sorted herself out. 
 
@@ -123,7 +123,7 @@ You leaned back with the noodle cup and patiently waited for her to explain.
 
 After calming herself down and taking a few breaths, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... wait- so you weren't really aware in that state?"
 
-You shook your head, but gestured for her to keep going. "Right, u-uh -- when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in my lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
+You shook your head, but gestured for her to keep going. "Right, u-uh -- when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
 
 "And then there was one day, we went to visit him and there was just? A hole? In the wall? And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? I think he may be looking for somewhere for you both to stay."
 
