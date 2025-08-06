@@ -64,7 +64,7 @@ And when he did, he simply let his skull knock against the ground. "god damnit, 
 
 "i know!" he replied from the ground, knocking his skull again. "i had a moment, okay?"
 
-"hey buddy," Other Sans greeted Asgore, still keeping his target pinned. "this bonehead with you?"
+"hey fluffybuns," Other Sans greeted Asgore, still keeping his target pinned. "this bonehead with you?"
 
 "GREETINGS, KING ASGORE!" Papyrus greeted loudly. Frisk had taken to hiding behind him, peeking their head out carefully. "YOU SHOULD HAVE LET US KNOW YOU WERE GOING TO JOIN US FOR NICE CREAM."
 
@@ -114,7 +114,7 @@ The apartment complex's common room was furnished as little more than a big livi
 
 The penguin only smiled warmly at her, and pulled her into a hug. "I'm so proud of you, my little diva. I know you'll do your absolute best."
 
-"Is this the young child you've told me so much about?" Toriel looked upon the scene with warmth in her eyes and a fond smile on her muzzle. "It is a pleasure to meet you, my childreb. You may call me Toriel, and these are our friends. You will be safe here," she added, raising a paw to her chest, where her heart would be.
+"Is this the young child you've told me so much about?" Toriel looked upon the scene with warmth in her eyes and a fond smile on her muzzle. "It is a pleasure to meet you, my children. You may call me Toriel, and these are our friends. You will be safe here," she added, raising a paw to her chest, where her heart would be.
 
 "hey tori," Sans greeted casually from her right, and she turned to face the skeleton, with Frisk next to him. "the kid got a bit spooked earlier. i think they're doing better, but they could use some comfort this sack of bones just isn't equipped with." He let out a soft chuckle.
 
@@ -174,7 +174,7 @@ Hat Kid picked up the presentation from there. "We will explain more of that in 
 
 The group applauded, turning their gaze to their King and the skeleton as they made a gesture to get up... only for another Sans and Asgore to walk in through the door behind the girls. There were gasps and hushed whispers among the crowd, and a few monsters eyeing the two among them warily. *Their* Sans and Asgore were relaxed however, as they had already met their counterpart before this presentation.
 
-The two monsters on stage were both wearing some sort of headwear from Hattie's repertoire to differentiate themselves from the versions in this universe. Sans still wore the Ice Hat beanie, smiling warmly at the crowd while Asgore wore one of Hattie's patterned purple top hats as he bowed gently.
+The two monsters on stage were both wearing some sort of headwear from Hattie's repertoire to differentiate themselves from the versions in this universe. Sans still wore the Ice Hat beanie, smiling his signature smile at the crowd while Asgore wore one of Hattie's patterned purple top hats as he bowed gently.
 
 "Now, to explain how this has come to pass, we'd also like Frisk to come on up, and, uh - who was it you nominated again?"
 

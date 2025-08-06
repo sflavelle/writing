@@ -26,7 +26,7 @@ As the ringing in her ears from the impact subsided, she became aware of a quiet
 
 Slowly, Lily opened her eyes, turning her head to find the source of the voice...
 
-Her eyes eventually landing on what looked like a sheet ghost a few meters away, floating over from the treeline. It froze in place as she looked at it, breathing quickly, but it seemed to force itself to calm down and approach her. "um... don't... don't try to move too much... i'll go get some help, okay...?"
+Her eyes eventually landing on what looked like a sheet ghost a few meters away, floating over from the treeline. It froze in place as she looked at it, breathing quickly, but it seemed to force itself to calm down and approach her. "um... don't... don't try to move too much... i'll... go get some help, okay...?"
 
 The ghost faded away.
 
@@ -40,10 +40,10 @@ The beginnings of dread settled into her gut as she reached for the transmit but
 
 She waited for less time this time, only twenty seconds, but the ongoing silence gave her the impression that something was deeply wrong. She carefully traced along the surface of the headset, trying to remember the gestures to activate the emergency broadcast mode, but as she drew the lines along the touch surface-
 
-"*Agent 5, this is Alphys of Ebott University. This is a restricted communication frequency for Ebott scientific staff. I um... is this a roleplay of some kind?*"
+"*'Agent 5', this is Doctor Alphys of Ebott University. This is a restricted communication frequency for Ebott scientific staff. I um... is this a roleplay of some kind?*"
 
 Lily's brows furrowed, a mix of pain and confusion. She racked her brain, trying to remember whereabouts Ebott was in relation to Inkopolis City. ...However, nothing came to mind. "No ma'am," she responded. "I... don't think I've heard of Ebott before. Although considering I just saw a ghost, I wouldn't be surprised I'm losing my mind."
 
-"*A ghost...? Oh, was it Napstablook? I know them. Uh... for what it's worth, I've never heard of Inkopolis either. Do you need help...? I can try to triangulate your position*"
+"*A ghost...? Oh, was it Napstablook? I know them. Uh... for what it's worth, I've never heard of Inkopolis either. Do you need help...? I can try to triangulate your position, and send somebody over...*"
 
 Lily blinked. *Oh, that wasn't good.* "Uh... yeah. Could use some assistance. The gho-- uh... 'Napstablook' said they were getting help, but I don't know what help they meant. I took a pretty bad fall."

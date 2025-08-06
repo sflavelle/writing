@@ -78,7 +78,7 @@ Flowey barked out a laugh, as did 'Dusty'. 'The Hulk' even let out a low chuckle
 
 Papyrus Sans was the first to respond, rushing forward toward the time traveller, looking as if he is meeting his idol - starry eyes and all. "It Is An Honour To Welcome The Original Sans Into The Multiverse! Although, You've Come At A Bad Time. These Villainous Rapscallions Have Somehow Destroyed The Guardian Of Positivity!"
 
-"Told you already Blue," shrugged the one with the target over his chest. "We don't even know where Dream hides to even go near him."
+"Told you already Blue," shrugged the one with the target over his chest. "Wasn't us. We don't even know where Dream hides to even go near him."
 
 "killer's right," muttered Dust. "plus, you and *that* freak," he nodded at the painter, "snuck in here and offed our boss, so don't go pretending you're the innocent one."
 
@@ -88,7 +88,7 @@ Papyrus Sans was the first to respond, rushing forward toward the time traveller
 
 "...Yes, I'm afraid so," agreed Toriel, confused and concerned. "I take it then, that your sides have always fought?"
 
-"yeah..." The hulking Sans nodded, adjusting his hold on the axe he carried. "me n' dusty... red, cross, killer... we're all outcasts. make s'm... poor choices... had a rough life."
+"yeah..." The hulking Sans nodded, adjusting his hold on the axe he carried. "me n' dusty... red, cross, killer... we're all outcasts. made s'm... poor choices... had a rough life."
 
 "But they chose to align themselves with the Corrupted Guardian Of Negativity," proclaimed the artist. "Their actions have caused the suffering of millions across the multiverse."
 

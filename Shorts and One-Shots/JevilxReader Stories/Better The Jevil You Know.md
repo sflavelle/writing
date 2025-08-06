@@ -82,7 +82,7 @@ Then they come around the corner into your vision. There's three of them, not in
 
 Your eyes widen. *You know these three.*
 
-Kris, Susie, and... Ralsei, was it? They're characters from that one game... Undergame. Or something.
+Kris, Susie, and... Ralsei, was it? They're characters from that one game... Undergame. Or something. Undertale? No, the newer one. Uhhh... it'll come to you eventually.
 
 Okay, that explains Blue Guy.
 
@@ -160,7 +160,7 @@ Your eyes widen. Wait. "He's... in another universe."
 
 "...He's managed to escape to the Light World?!" Ralsei asks, a panic in his voice.
 
-You shake your head, and slowly clamber to your feet. "World's a world, dude. No, I'm... separate, from all this. Living an entirely different life. None of this... magic, monsters. Not a thing. I'm from a different universe completely."
+You shake your head, and slowly clamber to your feet, trembling from weakness. "World's a world, dude. No, I'm... separate, from all this. Living an entirely different life. None of this... magic, monsters. Not a thing. I'm from a different universe completely."
 
 There was silence as you finally stood, and you looked at the jester hat on the ground. You reached out with a blue-grey, clawed hand to pick it up, looking it over. "Guess that means either my world's fucked, or... or he is, heh. Depending on where the magic went."
 
@@ -178,13 +178,15 @@ She rushed out of the cell, and quickly vanished out of sight. "Susie, wait!" Ra
 
 Kris started to follow after them, then paused, looking at you with a curious look to their expression.
 
+Their red eyes boring into you for a few seconds too long.
+
 Then they also turned and left, leaving you with Rouxls Kaard. What a name. What a stupid, stupid name. Now that the others were gone, you were unchained, and the cell door was still wide open, he watched you with some apprehension, as if you were going to show your true colors now that the Lightners were gone. You cocked your head to the side, raising an eyebrow. "I suppose you're going to lock me back up now, huh?"
 
 He hesitated before answering. "I... don't knoweth." Though he stood in place, hands clasped behind back like some sort of butler, he seemed... conflicted. "It would indeedst appear thou art not the jester in SOULeth. However, I still feelst thy magic courseth through thy body."
 
 Either Rouxls was being kind in ignoring your winces at his speech, or this happened all the time with him.
 
-It took you a moment to process what he just said, and your eyes shot up to his, narrowing. "What? I have his magic? ...Why did you not tell them?"
+It took you a moment to process what he just said, and your eyes shot up to his, narrowing. "What? I have this 'Jevil's magic? ...Why did you not tell them?"
 
 "I couldst nay get a word in," was his response, a soft smile on his features.
 
@@ -204,11 +206,17 @@ Rouxls' smile this time is much more genuine. "I bid thee welcome to the Card Ki
 
 ----
 
-You're allowed to swap the jester garb you woke up in for something more... 'normal' (normal for this world, at least), before you are guided in a tour of Card Castle. You learn that the Jevil situation is to do with him being corrupted by a 'Dark World', and that the forces of Dark and Light are out of balance, which is why Kris, Susie, and Ralsei are around, aiming to close something called a 'Dark Fountain' and stabilise the worlds that are being corrupted.
+You're allowed to swap the jester garb you woke up in for something more... 'normal' (normal for this world, at least), before you are guided in a tour of Card Castle. 
+
+You learn that the Jevil situation is to do with him being corrupted by a 'Dark World', and that the forces of Dark and Light are out of balance, which is why Kris, Susie, and Ralsei are around, aiming to close something called a 'Dark Fountain' and stabilise the worlds that are being corrupted. Jevil *had* been corrupted in some manner and imprisoned, and then the Lightners had nearly freed him when investigating the castle some time ago... but then that had been it. 
+
+Until now, seemingly.
 
 Rouxls, in return, learns your name, and you talk to him of the world in which you came from, of your modern technology and the pressures of modern society.
 
-Which is how you ended up telling him, at a pause in his tour, as you both stood leaning over the castle walls, looking down into the appropriately named Castle Town, that now that the shock had worn off, this deviation in your life was... somewhat exciting. "I was, as I guess is the appropriate term here, a 'commoner'," you tell him, scratching a claw over your cheek. "People rely on the speed of machines quite a lot, and then just assume you can perform as quick and fast as one," you scowl. "It's ridiculous! They want you to be quality control, but you don't even get *half a second* to just scan it nowadays! It's all 'go go go' and 'faster, faster'! It destroys me. I *would* rather be back in that cell of yours than have to do that again."
+Which is how you ended up telling him, at a pause in his tour, as you both stood leaning over the castle walls, looking down into the appropriately named Castle Town, that now that the shock had worn off, this deviation in your life was... somewhat exciting. 
+
+"I was, as I guess is the appropriate term here, a 'commoner'," you tell him, scratching a claw over your cheek. "People rely on the speed of machines quite a lot, and then just assume you can perform as quick and fast as one," you scowl. "It's ridiculous! They want you to be quality control, but you don't even get *half a second* to just scan it nowadays! It's all 'go go go' and 'faster, faster'! It destroys me. I *would* rather be back in that cell of yours than have to do that again."
 
 You rest your head on your arms on the castle wall, letting out a sigh. "I get this is a change that isn't exactly wanted... for you guys and for my world, but... I'll make the most of it while I'm here, I suppose."
 
@@ -216,7 +224,7 @@ Rouxls nods, and leans forward against the wall with you. "...A thought occurs,"
 
 "What?!" You gasp, turning toward him. "I-I'm sorry, I-"
 
-He shakes his head. "Jevil is, of course his own problem, however... This... decay, exists due to the Dark Fountain bringing it into existence. This is my understanding, speaking to the Dark Prince Ralsei. ...Perhaps, this is a chance to reset. To let the expectations ebbeth away, let the darkness in our souls shape us into what we desire to be."
+He shakes his head. "Jevil is, of course his own problem, however... This... decay, exists due to the Dark Fountain bringing it into existence. Someone has brought the Dark here. ...This is my understanding, speaking to the Dark Prince Ralsei. ...Perhaps, this is a chance to reset. To let the expectations ebbeth away, let the darkness in our souls shape us into what we desire to be."
 
 "...I'm not sure that I want to let the darkness in my soul win," you say quietly, almost to yourself.
 
@@ -268,7 +276,7 @@ Your destination though is the shop tent which is setup all year round. It's own
 
 As you open the tent flaps and step in, though, you notice the lack of lights in the tent. Only one magically dimmed torch lit the area by the door, and even then just enough that one wouldn't stumble about trying to leave. 
 
-The area behind the counter is very dim, almost entirely black, a simple 'Closed' card propped up telling you that you've missed your opportunity to converse. 
+The area behind the counter is very dim, almost entirely black, a simple 'Closed' card propped up and nobody around telling you that you've missed your opportunity to converse. 
 
 "Ah, damn," you murmur to yourself. It felt a bit strange though - it wasn't quite dark enough for the permanent shops to be closed. Unless this one just had to close early for whatever reason?
 
@@ -284,11 +292,11 @@ Perhaps this was something he should investigate...
 
 ----
 
-"One moment, please!" You called, carefully putting down the quill pen and the magical theory book you were consulting. You stood, glanced around to check that the room and yourself was presentable, then crossed your quarters to the door, opening it. "Oh, hello!" You greeted the nervous plush cat figure on the other side, extending your hand to offer him a handshake. "What can I do for you?"
+"One moment, please!" You called in reply to the knocking at your door, carefully putting down the quill pen and the magical theory book you were consulting. You stood, glanced around to check that the room and yourself was presentable, then crossed your quarters to the door, opening it. "Oh, hello!" You greeted the nervous plush cat figure on the other side, extending your hand to offer him a handshake. "What can I do for you?"
 
-Seam stared at the figure of his (not) old friend, noticing again how differently he acted. After a moment, he turned his head away briefly to clear his throat, then looked back with fresh eyes. "Good evening. You erm... left a message for me yesterday."
+Seam stared at the figure of his (not) old friend, noticing again how differently he acted. After a moment, he turned his head away briefly to clear his throat, then looked back with fresh eyes, clasping his paw in yours. "Good evening. You erm... left a message for me yesterday."
 
-"...Oh!" You looked over your guest. He was quite a bit taller than you, robes covering most of his body, and patches and repairs littering his form. Even one of his eyes had been replaced with an old clothes button at one point. You could see immediately that Seam had lived a long life so far, and was well looked after. "You must be the former court magician, then? It's a pleasure to meet you, thanks for seeing me." You stepped back from the door to allow him in.
+"...Oh!" You looked over your guest. He was quite a bit taller than you, robes covering most of his body, and patches and repairs littering his form. Even one of his eyes had been replaced with an old clothes button at one point. You could see immediately that Seam had lived a long life so far, and was well looked after. "You must be the former court magician, then. Seam, right? It's a pleasure to meet you, thanks for seeing me." You stepped back from the door to allow him in.
 
 He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, and of course I read the message you had left for me, but it's... something else to see it with my own eyes... You truly are not my old friend in there, are you?"
 
@@ -452,7 +460,7 @@ But it did not appear.
 
 Letting the sword hang loosely from their hand, they reached behind themselves with the other, and pulled out -- *they had your blade*. When did that happen?
 
-The scythe went away again, and the Vessel began to charge at you, holding Kris's sword in both hands. You launched your idle bullets at him before warping again, to the opposite side of the clearing. You could already tell you needed to stop using that - maybe it was because you had *just* learned to use that aspect of your magic, but it was using up more of your reserves than you expected. You flung more bullets in his direction in an attempt to slow him down...
+The scythe went away again, and the Vessel began to charge at you, holding Kris's sword in both hands. You launched your idle bullets at him before warping again, to the opposite side of the clearing. You could already tell you needed to stop using his warping magic - maybe it was because you had *just* learned to use that aspect of your magic, but it was using up more of your reserves than you expected. You flung more bullets in his direction in an attempt to slow him down...
 
 And then turned tail and fled through the dark forest, 'Kris' in hot pursuit.
 
@@ -460,7 +468,7 @@ You had to reach Castle Town, at least. Would the Player still try to kill you i
 
 **[E N O U G H,]** boomed a new voice from what felt like all directions.
 
-The world around you and 'Kris' went black, and both of you were forced to a stop. The echo of the booming voice that had suddenly spoke to them reverberated around them.
+The world around you and 'Kris' went black, and both of you were forced to a stop. The echo of the booming voice that had suddenly spoke to you reverberated around you both.
 
 **[JESTER. YOUR STORY ENDED LONG AGO.]**
 
@@ -544,7 +552,7 @@ Your prison was dark and void, formless... much like yourself. Occasionally you 
 
 After what might have felt like an eternity existing without consciousness, soon you began to feel, to take shape once more. You were still trapped within your mind, but gradually your mind began to awaken and dream once more.
 
-At first your dreams were a blur, more colors and concepts, vague feelings than something substantial. But as the days progressed your dreams became more 'real', more solid. Your brain, your mind was able to start forming objects and structures once more.
+At first your dreams were a blur, more colors and concepts, vague feelings than something substantial. But as the days progressed your dreams became more 'real', more solid. Your brain, your mind was able to start forming objects and structures in your thoughts once more.
 
 In one such dream, you were exploring a gigantified version of your home, roaming your cluttered computer desk like some kind of borrower. Stepping around Stream Decks and controllers and cables, you were exploring as a tiny version of yourself, and it was kind of exhilarating--
 
@@ -554,7 +562,7 @@ Your head snapped up, as a shadow loomed over you.
 
 Jevil, sat in your chair, many times larger than you, smiled down at you. "Is this the kind of adventures humans like you dream of? I daresay it's rather cute~."
 
-You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I'm small and--" You paused, eyes narrowing. "...Hang on... Something happened. Didn't it?"
+You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I'm small and--" You paused, eyes narrowing. "...Hang on... Something... happened. Didn't it?"
 
 "Indeed, indeed!" He beamed. "And now we are both truly free, free of the puppetmaster who sought to play his games~!" He looked especially pleased about this fact.
 
