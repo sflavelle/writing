@@ -121,8 +121,14 @@ Her pupils shrank to tiny dots, and suddenly her stutter was back in full force.
 
 You leaned back with the noodle cup and patiently waited for her to explain.
 
-After calming herself down and taking a few breaths, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
+Alphys paused, sighing into her hands, having a moment of thought, before looking up into your eyes with a mixture of guilt and nervousness. "...Y/N, i-it's *okay*," she said carefully. "I *know*. He... ...Jevil wasn...wasn't careful about keeping your soul hidden before you were given this vessel. I've *seen* the shape of your soul."
+
+...Maybe you should've known that Jevil was the kind of monster to play fast-and-loose with other people's things.
+
+You stared at her briefly, but slumped back in your chair, staring up at the ceiling. You exhaled slowly, then took a deep breath to collect your thoughts. "...Fuck," you finally settled on.
+
+Alphys giggled despite the tense moment. After calming herself down and taking a few breaths, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
 
 "And then there was one day, we went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? I think he may be looking for somewhere for you both to stay."
 
-"So..." You sighed and glanced away. "Sounds like maybe he didn't know or care about... um, the whole situation here." You slurped up some of the noodles. "I want to be mad... But I suppose I didn't expect much from him."
+"So..." You sighed and glanced away. "Sounds like maybe he didn't know or care about... um, the whole situation here." You slurped up some of the noodles. "I want to be mad... But I suppose I didn't expect much from him. So then... So how long have I been here, then...? Or I guess, how long have you known about me?"
