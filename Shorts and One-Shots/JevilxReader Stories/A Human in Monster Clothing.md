@@ -73,62 +73,26 @@ Alphys nervously giggled with you. "T-thats fine! You *have* been through a lot,
 
 ----
 
-You spent the next hour or so in another lab room that was repurposed as a living room space, eating a cup of noodles while watching what was apparently season 2 of an anime the doctor was watching. You both sat on the small couch (though respectfully you gave her some room) as 'Mew Mew' vowed to 'light up the darkness' through magical girl transformations or something like that. 
+You spent the next hour or so in another lab room that was repurposed as a living room space, eating from a cup of noodles while watching what was apparently season 2 of an anime the doctor was watching. You both sat on the small couch (though respectfully you gave her some room) as 'Mew Mew' vowed to 'light up the darkness' through magical girl transformations or something like that. 
 
 You fell asleep again sooner than you expected, and when you woke sometime that 'morning' you had had a blanket draped carefully over you. You were pleasantly surprised - you had no idea how long you were in Alphys' care before you woke, but you had perhaps expected for her to be less personal. Whatever the reason, though,  you were content - you weren't in immediate danger, and while Jevil had still not shown his face since you awoke, around Alphys you felt safe enough. 
 
 Speaking of the scientist, she was fascinated with the world you had come from, and the adventure you had already endured - "That explains how you're so comfortable with all this," she said. She told you that she wanted especially to examine your 'shell' and your soul... "T-to see how it has adapted, o-of course!"
 
-And though you weren't looking forward to exposing your soul - because it would expose your humanity underneath all the fur and borrowed magic - it turns out you didn't need to.
+And you weren't looking forward to having your soul exposed - because it would expose your humanity underneath all the fur and borrowed magic.
 
-----
+You tried to dance around the subject with details of your previous adventure - she was shocked to learn that the monster you had arrived in the Underground with had previously soul-swapped with you to escape 'un-imprisonment' - but Alphys of course soon caught on. 
 
-You woke the next day, after one of introductions and menial tests, to find a box towering over your bedside.
+"
 
-You yelped and jolted back toward the opposite edge of your bed, looking it over, eyeing the black LED panel on its front, and was about to relax, having fooled yourself into thinking you were being watched in your sleep, when the box *leaned forward* and spoke five words that chilled you to your core. 
-
-"*We know what you are.*"
-
-A robotic arm shot out from its side and grasped the collar of your gown, yanking you towards it. The front panel lit up, revealing itself to be a screen of sorts which lit up in red. You were shocked into silence. 
-
-"Look like a monster all you want, darling; we've seen the *human* soul inside that makes *you* tick."
-
-A face appeared on its screen, a low resolution smiley face. Somehow this made the situation creepier. "Do you know what happens to humans down here?" It asked, its speech dripping with a threat. 
-
-Your own voice was small as you answered, "I-I think I have some idea ... please don't," you pleaded.
-
-"Allow me to be crystal clear, then." It pulled you closer, toward a camera module in the top of its front panelling. "You continue to live at the good doctor's request. While you are here, you will *not* harm a single monster. If either of us *find out* you have broken this single guideline, *I will not hesitate to put your soul to better use*. Do you understand me, human?"
-
-You had begun shaking as you responded. "C-Clear as crystal." You didn't think to add that you had already been living around monsters. 
-
-"Good!" Immediately the robot let you go, and you collapsed backwards onto the lab bed. Its voice had already taken on a brighter tone, acting as if it had not just threatened your life. "Then it's a pleasure to make your acquaintance! How was my performance? Did I come off as dark and brooding as I intended~?"
-
-The robot then proceeded to cut off your reply immediately and told you to call them "Mettaton". You *wanted* to call them mean names, but you kept that to yourself. Instead you gave your name between heaving breaths, trying to settle yourself. You vaguely recognised the name from the internet, but that was about it.
-
-After the rude introduction, he wasted no time in introducing himself as *the* star of the underground, listing all his roles on the silver screen.
-
-You weren't awake enough for this shit. 
-
-----
-
-"How long have you known?" You later carefully asked Alphys while you both enjoyed a lunch break from the testing of your body's magical capacity.
-
-She paused mid-bite of her sandwich, eyes snapping up to yours. She tried to answer, somehow forgot she had food in her mouth, and then gave up and simply raised an eyebrow in question as she sorted herself out. 
-
-"Mettaton decided to wake me up today," you explained, nervously. "Said, um... you've already *seen* my soul. You know I'm..." You trailed off, fingers brushing along the fur on your opposite forearm.
-
-Her pupils shrank to tiny dots, and suddenly her stutter was back in full force. "I-I! Um! I'm sorry-- I never-- We..."
-
-You leaned back with the noodle cup and patiently waited for her to explain.
-
-Alphys paused, sighing into her hands, having a moment of thought, before looking up into your eyes with a mixture of guilt and nervousness. "...Y/N, i-it's *okay*," she said carefully. "I *know*. He... ...Jevil wasn...wasn't careful about keeping your soul hidden before you were given this vessel. I've *seen* the shape of your soul."
+ "...Y/N, i-it's *okay*," she said carefully. "I *know*. He... ...Jevil wasn...wasn't careful about keeping your soul hidden before you were given this vessel. I've *seen* the shape of your soul."
 
 ...Maybe you should've known that Jevil was the kind of monster to play fast-and-loose with other people's things.
 
 You stared at her briefly, but slumped back in your chair, staring up at the ceiling. You exhaled slowly, then took a deep breath to collect your thoughts. "...Fuck," you finally settled on.
 
-Alphys giggled despite the tense moment. After calming herself down and taking a few breaths, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
+Alphys snorted, despite the tense moment. After calming herself down and taking a few breaths, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
 
-"And then there was one day, we went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? I think he may be looking for somewhere for you both to stay."
+"And then there was one day, I went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? I think he may be looking for somewhere for you both to stay."
 
 "So..." You sighed and glanced away. "Sounds like maybe he didn't know or care about... um, the whole situation here." You slurped up some of the noodles. "I want to be mad... But I suppose I didn't expect much from him. So then... So how long have I been here, then...? Or I guess, how long have you known about me?"

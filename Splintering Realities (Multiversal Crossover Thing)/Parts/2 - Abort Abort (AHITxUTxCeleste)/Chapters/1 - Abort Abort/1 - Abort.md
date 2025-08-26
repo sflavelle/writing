@@ -138,7 +138,7 @@ Sans eyed her back. "...time fluctuations, huh? what kind?"
 
 "Everyone...?" Hat Kid's eyes were wide.
 
-"the entire monster race," Sans nodded solemnly, and the girls noticed his eyes, or pupils or whatever had disappeared, leaving a blank stare. It was... kind of unnerving. "ever since the war however many... thousand years ago. this underground system has been our home. we're all however many generations removed from it..."
+"damn near the entire monster race," Sans nodded solemnly, and the girls noticed his eyes, or pupils or whatever had disappeared, leaving a blank stare. It was... kind of unnerving. "ever since the war however many... thousand years ago. this underground system has been our home. we're all however many generations removed from it..."
 
 "b u t  w e  n e v e r  f o r g o t."
 

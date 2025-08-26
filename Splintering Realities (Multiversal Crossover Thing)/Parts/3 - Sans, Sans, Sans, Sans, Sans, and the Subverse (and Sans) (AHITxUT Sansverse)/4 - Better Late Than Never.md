@@ -22,7 +22,7 @@ Even as Sans had to mentally remind himself '*not our chara, not our chara*', he
 
 "I--" 'Chara' blinked, confused. "Yes it is...?"
 
-"well then who's ekstaels?"
+"well then who's ekstael?"
 
 Flowey and 'Chara' blinked at him. Then the flower gently thwapped at his side with a leaf, causing him to jolt and his eyes to light back up, while the other let out a soft giggle. "You idiot, I think that's their universe or whatever."
 
@@ -40,7 +40,7 @@ Eventually they found a bit of unused paper and a pen, and Chara beckoned the th
 
 "It goes like this." Chara drew a quick circle and began to write as they addressed their audience. "Sans, do you know why we initially called you Classic?"
 
-"it's cause i'm a classy guy, right?" came the other's response. Frisk giggled.
+"it's cause i'm a pretty classy guy, right?" came the other's response. Frisk giggled.
 
 "Should've seen that coming," Chara sighed. "Our worlds all have a common code. A baseline to work from. A cast of actors from which the multiverse modifies to play new roles. But the original... what all this is based on... is your universe. And, uh, Classic's universe." They gestured with the pen toward the circle on the paper, in which they had written the word 'Undertale'. "We know this universe as 'Undertale', found in the base code somewhere in the Void."
 
@@ -56,7 +56,7 @@ Chara nodded. "He comes from one of these universes. Fittingly, we call them 'Un
 
 Then, they started adding to their diagram, splitting off of the triangle of these three archetypes. "Oh, but what if we mixed these two premises?" Swapfell. "What if we put the Underground through even *harsher* circumstances?!" Horrortale. "What if *humans* were the ones trapped Underground?" Overtale. "Fuck it, let's put the monsters in outer space!" Chara laughed, genuinely, while adding 'Outertale'. 
 
-"What if, with Determination's control over your timeline, Sans decided to raise his own determination and LV to break the Fallen Human's hold over the Underground?" Dusttale. "What if all the resets... The defeats... The *deaths*... broke you down, Sans, and one day Chara comes by and instead of killing you again... Hands *you* the knife?" Finally they wrote down 'Something New' and began to write down names next to each AU circle.
+"What if, with Determination's control over your timeline, Sans decided to raise his own determination and LV to break the Fallen Human's hold over the Underground?" Dusttale. "What if all the resets... The defeats... The *deaths*... broke you down, Sans, and one day Chara comes by and instead of killing you again... Hands *you* the knife?" Finally they wrote down 'Something New' and began to write down names for each Sans next to each AU circle.
 
 "... you're joking," Sans choked out, eyelights small as pinpricks. "i couldn't... i could never... you're seriously telling me some of the sanses out there have slaughtered their underground?"
 
@@ -66,6 +66,6 @@ Then, they started adding to their diagram, splitting off of the triangle of the
 
 "But it is. It's a version of you that couldn't take the endless loops of genocide, that thought the ends might justify the means. *You* managed to avoid that. Take solace in the fact that Papyrus is still with him *in spirit*."
 
-"Oooh, *that's* what that is," Flowey suddenly said, understanding. "I thought the guy had lost his marbles."
+"Oooh, *that's* what that is," Flowey suddenly said. "I thought the guy had lost his marbles."
 
 "No, well... that's Killer, I suppose." Chara shrugged. "He's the one that really went off the deep end to become who he is now."

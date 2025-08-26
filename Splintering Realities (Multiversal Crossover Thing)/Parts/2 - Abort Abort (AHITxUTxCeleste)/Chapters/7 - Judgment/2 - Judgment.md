@@ -8,7 +8,7 @@
 
 "it's a monster term," Sans explained. "it stands for 'level of violence'." He took a breath, and leaned in toward the two kids. "most humans and monsters are gonna have an LV of 1. that's great. LV 2 can happen as an accident, sometimes. y'know, tragic events, failing to save someone... but when i met you both, before frisk reset, there was something when I checked you then that concerned me. so, i'm going to run that check again. okay? i'll be totally transparent with it, since you've been fairly helpful so far. but i need you to help me understand it. are you ready?"
 
-Mu and Hattie shared a look. "I... guess?" Hat Kid raised an eyebrow? "What does this 'check' invol--"
+Mu and Hattie shared a look. "I... guess?" Hat Kid raised an eyebrow. "What does this 'check' invol--"
 
 She stopped in her tracks the moment she felt her sins crawling on her back. Felt the weight of every decision she had ever made in one instant.
 

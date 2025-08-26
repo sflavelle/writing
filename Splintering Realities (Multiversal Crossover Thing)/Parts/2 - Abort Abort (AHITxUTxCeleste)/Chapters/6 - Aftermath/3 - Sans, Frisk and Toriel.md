@@ -18,7 +18,7 @@ Slowly, Sans turned his head from where it lay on the bar, his lightless sockets
 
 Frisk swallowed. That stare never got easier to look at. "Sans, I-- ...I never wanted to kill him."
 
-A pause. "what you *wanted* and what you *did* are two very different things."
+A pause. "what you *wanted* and what you *did* back then are two very different things."
 
 "...I know." Silence filled the room for a few uncomfortable, thick moments. "...Don't you remember *before* that though? I loved meeting you both. I had a great time with his puzzles. I thought... I thought things were going to be alright."
 

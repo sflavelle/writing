@@ -282,7 +282,7 @@ The area behind the counter is very dim, almost entirely black, a simple 'Closed
 
 You don't want to just leave it at that though, so you find an ink pen and a bit of card, and you scrawl a message to the absent shopkeeper, explaining who you were and why you were looking for him.
 
-Eyes well-used to seeing in the dark watched from the shadows in confusion as you placed the card on the counter and quietly left. Once Seam was certain you were gone, he left his perch and retrieved your message, scanning it carefully. His eyes widening in shock as he read your words. 
+A single cat's eye, well-used to seeing in the dark, watched from the shadows in confusion as you placed the card on the counter and quietly left. Once Seam was certain you were gone, successfully fooled by his plan to avoid reuniting with Jevil the mad jester, he left his perch and retrieved your message, scanning it carefully. His eyes widening in shock as he read your words. 
 
 The broken jester that was once his friend was... now someone completely different inhabiting his body? Seam wanted to put it down to Jevil's mind perhaps coping by having multiple personalities, and yet... some of the details were incredibly specific, or were of things that he had only heard of from the Lightners.
 
@@ -314,7 +314,7 @@ You wear Jevil's jester getup today, assuming it is time to get back to your old
 
 When you arrive, Rouxls is being regaled by Ralsei with tales of the team's adventures while Kris and Susie stand behind him quietly (a little awkwardly, in Susie's case). They notice you immediately as you enter, and they examine you with some concern as you walk up to them. "Hello, hello!" you call, slightly absently - you miss how those present tense up at the repetition. "Great to see you all again. Travelling well?"
 
-Ralsei nods, but there's an expression of concern and reluctance on his face. "Yes! Uh, the corruption from the Dark World's influence has been stopped! We've... um, sealed the Fountain, and nothing should come through to torment this world again!"
+Ralsei nods, but there's an expression of concern and reluctance on his face. "Yes! Uh, the corruption from the Dark World's influence here has been stopped! We've... um, sealed the Fountain, and nothing should come through to torment this world again!"
 
 "Oh! Well, that's excellent news, isn't it! The day will grace this kingdom once more, will it not?"
 
@@ -568,9 +568,9 @@ You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I
 
 "...Okay, but how?" You leaned against the handle of a Dualsense controller. "Because I think I remember you died in *my* body... unless I finally *am* succumbing to the madness everyone thought you had."
 
-"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "You see, young Kris and I had so much fun with our numbers game that I decided to join him! By placing my soul in the prize that I bestowed upon him, I could be as free as I desired, and the King and the Puppetmaster would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
+"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "*That* was a diversion! You see, young Kris and I had so much fun with our numbers game that I decided to join him! By placing my soul in the prize that I bestowed upon him, I could be as free as I desired, and the King and the Puppetmaster would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
 
-You crossed your arms, frowning. "Well, you got me, I'm a sucker. So why are you bringing me with you now...?"
+You crossed your arms, frowning. "...Well, you got me, I'm a sucker. So why are you bringing me with you now...?"
 
 A gentle claw brushed over your head, but Jevil didn't answer immediately. His smile dimmed slightly as he decided how best to answer your query. "...The puppetmaster... He was the one to reveal the nature of our world to me, the nature of the game we were all pawns in. And while, yes yes, perhaps my sanity has been damaged by the revelation, in my cell I truly was free, free from the puppet master's strings!"
 

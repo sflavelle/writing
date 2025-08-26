@@ -10,13 +10,13 @@ Her head sank, as her mind spiralled down, barely registering the sound of armor
 
 "Hey, punk."
 
-Maddy looked up behind her at Undyne. The monster warrior was taking it rough as well - having lost a few of her Guard. Her eyesockets were dim, and she looked haunted by what she had seen... but was still managing to keep watch over the survivors.
+Maddy looked up behind her at Undyne. The monster warrior was taking it rough as well - having lost a few of her Guard. Her good eye was dim, and she looked haunted by what she had seen... but was still managing to keep watch over the survivors.
 
 The monster continued, "I... Look, thanks for helping us get everyone to safety, human."
 
 Maddy winced. "I'm... sorry it wasn't everyone."
 
-Undyne sighed, and crouched down, her head level with the human's. "Don't be. I want to be mad at you, but... You did as much as you could." She huffed, glancing around at everyone around them, then looked back. "You saw what that... *thing* was capable of. Most people- most *monsters* would see what you saw and run away. But you - you and those kids - you pushed through and you did your damnedest to get people you didn't know existed to safety." She smiled, exposing her teeth. "I'm impressed. You've got guts, human. Even if you don't know ya do."
+Undyne sighed, and crouched down, her head level with the human's. "Don't be. I want to be mad at you, but... You did as much as you could." She huffed, glancing around at everyone around them, then looked back. "You saw what that... *thing* was capable of. Most people- most *monsters* would see what you saw and run away. But you - you and those kids - you pushed through and you did your damnedest to get people you didn't know existed to safety." She smiled weakly, exposing her teeth. "I'm impressed. You've got guts, human. Even if you don't know ya do."
 
 "Madeline. It's Madeline. Or... Maddy if you prefer."
 
@@ -64,7 +64,7 @@ Part of Maddy, in response, simply gestured at her floating self. Undyne raised 
 
 "So that... Mirror Temple..." Maddy gulped, fearful at the mere thought of the place. "With the creepiness and the demonic things that are apparently manifestations of my self doubts and the *giant fucking eyeball*... that's not...?"
 
-"Most certainly not." One of the larger guard dogs, having been overhearing the conversation, turned toward them. "To put it simply, us monsters are made of love and compassion. I don't know of any monster capable of what you're describing, dear."
+"Most certainly nothing to do with us." One of the larger guard dogs, having been overhearing the conversation, turned toward them. "To put it simply, us monsters are made of love and compassion. I don't know of any monster capable of what you're describing, dear."
 
 "Why do y'all call yourselves monsters anyway?" Theo noted. "You've gotta have a better outlook on yourselves! You can't be a monster if you explicitly *care* for people!"
 

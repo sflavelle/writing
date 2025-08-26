@@ -44,7 +44,7 @@ Thankfully Dream let her enjoy the moment, looking around him at Seaside, still 
 
 Mustache Girl finished a particularly long sip. "I thought- Okay, forgive me for being blunt, it's just... who I am - the loud blue one said you died."
 
-Dream was startled into laughter. It was true, but he hadn't heard anyone refer to Blue in quite that way before! "In a sense, yes." He sighed, and quickly after his expression dropped. "Quite... annoying, I must be honest. My brother and I are both supposed to be immortal, you see, so..." He clicked his tongue in thought. "But I still somewhat exist, as you can see! Even if I no longer have a physical body..."
+Dream was startled into laughter. It was true, but he hadn't heard anyone refer to Blue in quite that way before! "In a sense, yes." He sighed, and quickly after his expression dropped. "Quite... annoying, I must be honest. My brother and I are both supposed to be functionally immortal, you see, so..." He clicked his tongue in thought. "But I still somewhat exist, as you can see! Even if I no longer have a physical body..."
 
 "Are we on the right track, then? Was it Moonjumper that did... this?" She gestured at his body.
 

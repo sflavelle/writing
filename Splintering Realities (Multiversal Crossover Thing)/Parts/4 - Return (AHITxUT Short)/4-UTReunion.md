@@ -36,7 +36,7 @@ Papyrus was *alive*!
 
 Papyrus turned toward him... and so did the human next to him, wearing a familiar striped shirt and-
 
--in the dim light of the judgement hall was a haunting figure, staring him down as it approached, knife out, head to toe in dust and blood, the dust and blood of his friends, everyone he knew, of course they were back, they'd reset after all, they-
+-in the dim golden light of the judgement hall was a haunting figure, staring him down as it approached, knife out, head to toe in dust and blood, the dust and blood of his friends, everyone he knew, of course they were back, they'd reset after all, they-
 
 His magical energy flared as his fight or flight response kicked in. He had to save Papyrus, he would be okay, he-
 
@@ -44,7 +44,7 @@ His magical energy flared as his fight or flight response kicked in. He had to s
 
 Then he was enveloped in blue magic, a force crashing him roughly to the ground. He struggled to free himself, a few feet from the two. "nnngh, let me go bro! they'll hurt you!"
 
-"... I'M NOT HOLDING YOU DOWN, SANS." Papyrus' expression was now one of shock, as he held Frisk close to himself.
+"... I'M NOT HOLDING YOU DOWN, SANS." Papyrus' expression was now one of shock mixed with disbelief, as he held Frisk close to himself.
 
 "then-"
 
