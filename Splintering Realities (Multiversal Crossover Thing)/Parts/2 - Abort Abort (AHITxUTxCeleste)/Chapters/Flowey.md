@@ -4,4 +4,4 @@ Flowey had borrowed their way in through a gap in the tiled floor, bit did not s
 
 "Chara Dreemurr is dead," Asgore stated bluntly. 
 
-"And? So's Asriel, and yet I'm still here," Flowey muttered. Speaking up, he said, "The spirit told me things only they would know. That their dying wish had been for me-- for *Asriel* to bury them in their home town... and to kill the humans there who had wronged her."
+"And? So's Asriel, and yet I'm still here," Flowey muttered. Speaking up, he said, "The spirit spoke to me things only they would know. That their dying wish had been for me-- for *Asriel* to bury them in their home town... and to kill the humans there who had wronged her."

@@ -16,7 +16,7 @@ The monster continued, "I... Look, thanks for helping us get everyone to safety,
 
 Maddy winced. "I'm... sorry it wasn't everyone."
 
-Undyne sighed, and crouched down, her head level with the human's. "Don't be. I want to be mad at you, but... You did as much as you could." She huffed, glancing around at everyone around them, then looked back. "You saw what that... *thing* was capable of. Most people- most *monsters* would see what you saw and run away. But you - you and those kids - you pushed through and you did your damnedest to get people you didn't know existed to safety." She smiled weakly, exposing her teeth. "I'm impressed. You've got guts, human. Even if you don't know ya do."
+Undyne sighed, and crouched down, her head level with the human's. "Don't be. I want to be mad at you, but... You did as much as you could." She huffed, glancing around at everyone around them, then looked back. "You saw what that... *thing* was capable of. Most people- most *monsters* would see what you saw and run away. But you - you and those kids - you pushed through and you did your damnedest to get people you didn't know existed an hour ago to safety." She smiled weakly. "I'm impressed. You've got guts, human. Even if you don't know ya do."
 
 "Madeline. It's Madeline. Or... Maddy if you prefer."
 
@@ -34,11 +34,11 @@ Maddy's brows furrowed, and she turned herself fully to face the monster. "Huh?"
 
 Maddy wasn't ready to see her again yet. But she still let out a soft chuckle at what it must look like to Undyne - an apparent clone just appearing from nowhere. She turned to face the Part of Her. "Look, I... I fucked up. I thought that-"
 
-"Shut it." Despite the harsh words, Part of Maddy didn't appear to be angry. She spoke both to Maddy and Undyne, "There's something you need to know. I... get that it feels the same, but *this* mountain, and the one we came from, are not the same."
+"Shut it." Despite the harsh words, Part of Maddy didn't appear to be angry. She spoke both to Maddy and Undyne, "There's something you need to know. I... get that it feels the same to you, but *this* mountain, and the one we came from, are not the same."
 
 "...What does *that* mean," both responded simultaneously.
 
-"I don't know yet, okay?!" Part of Her snapped, rising into the air. "Just-- the surface of Mount Celeste up there, I *feel* the magic or whatever coursing through me. Down here... Something's not right. There's magic, sure, but it's... different. Nothing *feels* right. Whatever made that Mirror Temple, whatever keeps that idiot Oshiro's ghost alive up there... it's not *down here*."
+"I don't know the specifics yet, okay?!" Part of Her snapped, rising into the air. "Just-- the surface of Mount Celeste up there, I *feel* the magic or whatever coursing through me. Down here... Something's not right. There's magic, sure, but it's... different. Nothing *feels* right. Whatever made that Mirror Temple, whatever keeps that idiot Oshiro's ghost alive up there... it's not *down here*."
 
 Undyne focused her gaze on the levitating human. "For one, it's Mount Ebott. For two-"
 
@@ -58,7 +58,7 @@ Theo took a seat next to Maddy. His expression seemed slightly vacant as well, h
 
 Part of Maddy, in response, simply gestured at her floating self. Undyne raised an eyebrow again.
 
-"... okay, fair." Theo chuckled. "Personally, I think the magic here is different from whatever weird mountain magic we had going on above. And boy, that... I think they called it Moonjumper? He felt like something else entirely."
+"... Outside of the Mountain, but okay, fair." Theo chuckled. "Personally, I think the magic here is different from whatever weird mountain magic we had going on above. And boy, that... I think they called it Moonjumper? He felt like something else entirely."
 
 "Mountain magic...?" Undyne murmured. "Nah, that can't be us. That Barrier keeps us all down *here*, magic and all. And if y'all are *climbing* the mountain, there's no way you could have entered our influence before now."
 

@@ -40,7 +40,7 @@ Eventually they found a bit of unused paper and a pen, and Chara beckoned the th
 
 "It goes like this." Chara drew a quick circle and began to write as they addressed their audience. "Sans, do you know why we initially called you Classic?"
 
-"it's cause i'm a pretty classy guy, right?" came the other's response. Frisk giggled.
+"it's cause i'm a pretty classy guy, right?" came the other's response immediately. Frisk giggled.
 
 "Should've seen that coming," Chara sighed. "Our worlds all have a common code. A baseline to work from. A cast of actors from which the multiverse modifies to play new roles. But the original... what all this is based on... is your universe. And, uh, Classic's universe." They gestured with the pen toward the circle on the paper, in which they had written the word 'Undertale'. "We know this universe as 'Undertale', found in the base code somewhere in the Void."
 

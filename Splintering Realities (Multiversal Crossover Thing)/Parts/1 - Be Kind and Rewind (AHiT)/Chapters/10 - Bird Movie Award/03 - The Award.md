@@ -44,7 +44,7 @@ Hat Kid cleared her throat. Both directors looked over at her.
 
 Having skipped to the finalists, she read aloud to the both of them, brows furrowed. "'While Murder on the Owl Express especially has excellent cinematography and storytelling, as expected from Conductor movies, the main character leaves something to be desired in their depiction. The acting is wooden and the delivery almost uncomfortably uninspired. Considering our first place entry uses the same actor, one wonders what tension behind the scenes may have hindered this movie.'"
 
-She flinched, slightly offended by the criticism of her acting, then continued, skipping ahead. "'While Big Parade is a perhaps uninspired throwback to the age of movies without audio, of simple stories and experimentation with the medium, its execution is phenomenal. The joint movie debut of its lead actor, her cheer and enthusiasm as she leads her musical entourage through the city streets is infectious, and left our panel grinning ear to ear as she gradually ups the ante, bringing her parade from the streets to the rooftops and eventually to the air, showing her and her cast's range of movement as the musicians follow - still playing! This movie truly is a sight to be seen.'"
+She flinched, slightly offended by the criticism of her acting, then continued, skipping ahead. "'While Big Parade is a perhaps uninspired throwback to the age of movies without audible dialogue or audio, of simple stories and experimentation with the medium, its execution is phenomenal. The joint movie debut of its lead actor, her cheer and enthusiasm as she leads her musical entourage through the city streets is infectious, and left our panel grinning ear to ear as she gradually ups the ante, bringing her parade from the streets to the rooftops and eventually to the air, showing her and her cast's range of movement as the musicians follow - still playing! This movie truly is a sight to be seen.'"
 
 Both directors were silent for a few moments, before Conductor muttered 'gimme that' and snatched the paper from her to read. The Kid thought on the information they now had, trying to piece together what had changed in this timeline.
 
@@ -84,6 +84,6 @@ For her part, Hat Kid shrugged. "So you really don't have a Time Piece on you?"
 
 "Not unless you snuck one onto me, darling." He spread his arms out once more. "Search me if you must."
 
-She shook her head. "I trust you. I just... didn't think that *not* losing Time Pieces over the planet would affect little things like this."
+She shook her head. "I trust you. I just... didn't think that *not* losing Time Pieces over the planet would affect things like this."
 
 "Yeah... huh."

@@ -90,7 +90,7 @@ She shook her head. "We like to think it possible, but I personally don't see ho
 
 "Wait, so..." Hat Kid's eyes widened. "When I fixed the big time rift, it didn't send her back to her world because Time... *can't* go backwards there?"
 
-Badge Seller nodded. "I believe this is where her current state originated from. For most intents and purposes, this universe can't conform Alex to its physics and laws, because it already passed her off back to her universe. As a result she is... inbetween."
+Badge Seller nodded. "I believe this is where her current state originated from. For most intents and purposes, this universe can't conform Alex to its physics and laws, because it believes it has already passed her off back to her universe. As a result she is... inbetween."
 
 Alex's eyes widened, and her arms slowly wrapped around herself as she considered his words. In her short time here, she couldn't quite feel the breeze, or the textures of things. Even Cooking Cat's food had seemed bland, and not for her efforts putting it together... "...Am...I going to be like this forever? What does this mean?"
 
@@ -100,7 +100,7 @@ He eventually pulled out a small badge and pin. The girls could all see that it 
 
 Badge Seller presented the item to her. "Would you care to try it on?"
 
-Slowly Alex reached out, and carefully plucked the badge from the entity's hands - she didn't want to chance being impaled by his flickering hands - and examined it from every angle, under the gaze of the others.
+Slowly Alex reached out, and carefully plucked the badge from the entity's hands - she didn't want to chance being impaled by his flickering hands randomly appearing into her own - and examined it from every angle, under the gaze of the others.
 
 *Well, if this would help make her life here more bearable...*
 

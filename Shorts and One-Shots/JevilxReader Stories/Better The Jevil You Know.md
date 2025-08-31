@@ -306,6 +306,10 @@ Your eyes dropped, half-lidded, and you felt a strange sense of guilt as your ey
 
 Another breath. "Y/N... would you allow me to examine your soul?"
 
+Ah.
+
+Well, you hadn't seen your own soul yet...
+
 ----
 
 A few weeks later, there is a knock at the door to your quarters. You have been summoned to the front of the castle, told that the Lightners have returned with news for you.
