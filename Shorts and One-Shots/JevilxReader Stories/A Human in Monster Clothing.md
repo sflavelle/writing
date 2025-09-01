@@ -83,13 +83,17 @@ And you weren't looking forward to having your soul exposed - because it would e
 
 You tried to dance around the subject with details of your previous adventure - she was shocked to learn that the monster you had arrived in the Underground with had previously soul-swapped with you to escape 'un-imprisonment' - but Alphys of course soon caught on. 
 
-"
+"I just don't see what my soul is going to tell you," you'd said awkwardly in the main room, finishing your breakfast noodles.
 
- "...Y/N, i-it's *okay*," she said carefully. "I *know*. He... ...Jevil wasn...wasn't careful about keeping your soul hidden before you were given this vessel. I've *seen* the shape of your soul."
+ "...Y/N, i-it's *okay*," she said carefully. "I... I *know* you have a human soul." 
+ 
+ You paused, full fork touching your lips.
+
+"He... ...Jevil wasn...wasn't careful about keeping your soul hidden before you were given this vessel. I've *seen* the shape of your soul."
 
 ...Maybe you should've known that Jevil was the kind of monster to play fast-and-loose with other people's things.
 
-You stared at her briefly, but slumped back in your chair, staring up at the ceiling. You exhaled slowly, then took a deep breath to collect your thoughts. "...Fuck," you finally settled on.
+You stared at her for a few long moments, but then you slurped up the noodles, then slumped back in your chair, staring up at the ceiling. You exhaled slowly, then took a deep breath to collect your thoughts. "...Fuck," you finally settled on.
 
 Alphys snorted, despite the tense moment. After calming herself down and taking a few breaths, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
 
