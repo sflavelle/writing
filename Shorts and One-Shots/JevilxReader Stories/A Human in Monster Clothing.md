@@ -5,13 +5,13 @@ Was it the hum of fluorescent lights somewhere above?
 The sensation of sluggishness that permeated your being, born of your prior coma state?
 The texture of the sheet draped over your fur?
 
-...huh?
+...huh? *Fur*?
 
 You groan and slowly shift in your bed, slowly blinking your eyes open.
 
 The room is dark, but not pitch black. A light - the fluorescent tube light you hear is somewhere to your right, seemingly through a doorway - allowing the ability to see, but not blind you. Slowly, you turn your head to face the light with a yawn, moving your arm in preparation to shade your eyes. Yep, that's fur.
 
-(You vaguely remember being told that you were given a new body, a vessel for your soul, so you don't freak too much.)
+(You vaguely remember being told that you were given a new body, a vessel for your soul, so you don't freak too much - but you feel... strange.)
 
 (Part of you thinks you probably *should* examine your vessel now, but you figure you can do that whenever.)
 
@@ -45,7 +45,9 @@ You decide to keep trying, turning around and slowly, with more confidence than 
 
 Immediately you sat on the thin mattress once you reached it, giving your aching lower half a break. You were panting, if only because for part of the process of getting to and from the door you had been holding your breath. (That was a you thing, annoyingly.) You were starting to understand how your new legs worked... Starting to.
 
-As you started to settle again, you became aware of the sound of footsteps - someone padding down the corridor outside the door toward you, gentle thumps with a clicking noise to it. Ah, people *do* exist here. Perhaps Jevil, through whatever soul connection you two had, had noticed you had awoken.
+As you started to settle again, you became aware of a humming gradually increasing in volume. After some racking your brain about it, you placed the sound of doors sliding open, and realised an elevator had arrived.
+
+Then there was the sound of footsteps - someone padding down the corridor outside the door toward you, gentle thumps with a clicking noise to it. Ah, people *do* exist here. Perhaps Jevil, through whatever soul connection you two had, had noticed you had awoken.
 
 Their shadow appeared in the doorway shortly before the person it belonged to.
 
@@ -65,7 +67,7 @@ Alphys just stared at you blankly. "I... Well, you uh... Seem? To be alive? Ahem
 
 You blinked, then nodded, smiling warmly. "Oh, no stress at all! I completely understand that. Perhaps some quick introductions then and I can let you, ahh, return to sleep or something?"
 
-"Heh, u-um, actually I haven't been to bed yet." The lizard seemed embarrassed. If you had to guess the rough time, it must have been super late at night. "I was just about to um... make a snack and wind down with a few episodes of t-the show I'm watching at the moment..." She paused, and her expression shifted briefly. Was she nervous? "If you, um... don't feel tired at the moment, y-you could... join me in the living space if you feel hungry...?"
+"Heh, u-um, actually I haven't been to bed yet." The lizard seemed embarrassed. If you had to guess the rough time, it must have been super late at night. "I was just about to um... make a snack and wind down with a few episodes of t-the show I'm watching at the moment..." She paused, and her expression shifted briefly. Was she nervous? "If you, um... don't feel tired at the moment, y-you could... join me in the living space upstairs if you feel hungry...?"
 
 You felt at your stomach. "I don't... feel terribly hungry yet, but I guess I'll need the meal. Oh, uh - I'm Y/N. Sorry, doing this all out of order," you chuckled. To be fair to yourself, you weren't you for a while there.
 
@@ -100,3 +102,13 @@ Alphys snorted, despite the tense moment. After calming herself down and taking 
 "And then there was one day, I went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? I think he may be looking for somewhere for you both to stay."
 
 "So..." You sighed and glanced away. "Sounds like maybe he didn't know or care about... um, the whole situation here." You slurped up some of the noodles. "I want to be mad... But I suppose I didn't expect much from him. So then... So how long have I been here, then...? Or I guess, how long have you known about me?"
+
+Alphys thought, tapping a claw to her chin. "I... think about two weeks? Jevil turned up about a week before we knew about any human souls he held..."
+
+"And this 'Mettaton' knows too?"
+
+"Y-yeah, he just happened to spot it on one of my cameras. Now, I-I did make him promise, but! If he asks after your soul, d-don't oblige him, and come let me know, okay? The Underground would miss him if he decided to just waltz through the Barrier on his own..."
+
+"Uhh, yeah, sure! Um... what barrier?"
+
+"Hmm?" The scientist stared blankly for a short moment, then flinched back once she processed the question. "O-oh! Um, of course you wouldn't know. Well, while I check your soul integrity, I suppose I could, er, give a little background

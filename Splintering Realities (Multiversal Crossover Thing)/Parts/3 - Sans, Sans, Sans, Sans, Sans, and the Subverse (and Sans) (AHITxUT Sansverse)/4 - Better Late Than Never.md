@@ -36,7 +36,7 @@ It felt weird to Sans, knowing that this version of him that had been so helpful
 
 "Well, it's... sorta?" Chara scratched at the back of their skull, turning toward a desk to rummage through its contents. "A lot of AUs here start from one of several archetypes, so we know what to expect if someone says, 'it's a Swapfell verse' or 'an Outerverse' or something like that... Each new AU will have some difference or another, even if it's on a small scale but... It's rare that we get something new-- er, something *unique* on a multiversal scale."
 
-Eventually they found a bit of unused paper and a pen, and Chara beckoned the three closer as they shifted down into a prone position, laying on their front with the paper in front of them. Sans realised there was still a bit of youth in them. 
+Eventually they found a bit of unused paper and a pen, and Chara beckoned the three closer as they shifted down into a prone position, laying on their front with the paper in front of them. Sans realised there was still a bit of youth in them, with the way they kicked their legs up behind them as they began to doodle. 
 
 "It goes like this." Chara drew a quick circle and began to write as they addressed their audience. "Sans, do you know why we initially called you Classic?"
 
