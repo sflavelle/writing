@@ -13,11 +13,11 @@ The room is dark, but not pitch black. A light - the fluorescent tube light you 
 
 (You vaguely remember being told that you were given a new body, a vessel for your soul, so you don't freak too much - but you feel... strange.)
 
-(Part of you thinks you probably *should* examine your vessel now, but you figure you can do that whenever.)
+(Part of you thinks you probably *should* examine your vessel. But... that can wait until you've examined whereever you are a bit more.)
 
 Getting a better look at the room, it seems reminiscent of a hospital ward. But... you're the only one here, and - you check behind you - there are no windows.
 
-You wonder where Jevil left you. And on that note, just where the jester had gone off to himself.
+You wonder where Jevil left you. And for that matter, just where the jester had gone off to himself.
 
 You slowly lift the sheets covering you to the side. Yep, that's more fur. White and light shades of brown. You lift yourself up and without thinking further, you shift your body to the side and lift off the bed and onto your feet with a loud 'clack' as your feet(?) land on the tiled floor.
 
@@ -75,21 +75,29 @@ Alphys nervously giggled with you. "T-thats fine! You *have* been through a lot,
 
 ----
 
-You spent the next hour or so in another lab room that was repurposed as a living room space, eating from a cup of noodles while watching what was apparently season 2 of an anime the doctor was watching. You both sat on the small couch (though respectfully you gave her some room) as 'Mew Mew' vowed to 'light up the darkness' through magical girl transformations or something like that. 
+You spent the next hour or so in an upstairs lab room that was repurposed as a living room space, eating from a cup of noodles while watching what was apparently season 2 of an anime the doctor was watching. You both sat on the small couch (though respectfully you gave her some room) as 'Mew Mew' vowed to 'light up the darkness' through magical girl transformations or something like that. 
 
 You fell asleep again sooner than you expected, and when you woke sometime that 'morning' you had had a blanket draped carefully over you. You were pleasantly surprised - you had no idea how long you were in Alphys' care before you woke, but you had perhaps expected for her to be less personal. Whatever the reason, though,  you were content - you weren't in immediate danger, and while Jevil had still not shown his face since you awoke, around Alphys you felt safe enough. 
 
 Speaking of the scientist, she was fascinated with the world you had come from, and the adventure you had already endured - "That explains how you're so comfortable with all this," she said. She told you that she wanted especially to examine your 'shell' and your soul... "T-to see how it has adapted, o-of course!"
 
-And you weren't looking forward to having your soul exposed - because it would expose your humanity underneath all the fur and borrowed magic.
+And you weren't looking forward to having your soul exposed - because it would expose your humanity underneath all the fur and borrowed magic. You didn't know much about souls, even after your time in the Card Kingdom, but you *did* know that souls from humans looked noticeably different from monster souls.
 
 You tried to dance around the subject with details of your previous adventure - she was shocked to learn that the monster you had arrived in the Underground with had previously soul-swapped with you to escape 'un-imprisonment' - but Alphys of course soon caught on. 
 
 "I just don't see what my soul is going to tell you," you'd said awkwardly in the main room, finishing your breakfast noodles.
 
- "...Y/N, i-it's *okay*," she said carefully. "I... I *know* you have a human soul." 
+"Well," she began, "It'll tell us a fair bit about your stats, certain traits you might possess, your soul color... it might even tell us about potential differences in monsters and humans from your world compared to ours!"
+
+"What do humans have to do with this?" You cocked your head to the side.
+
+"Uh, w-well, y'know..." Alphys vaguely gestured at you, looking away in embarrassment.
+
+"...No, I don't," you said carefully, but your sudden guarded, nervous expression betrayed your concern. "I-I mean, clearly I'm not..."
+
+Alphys sighed, and took a deep breath. "...Y/N, i-it's *okay*," she said carefully. "I... I *know* you have a human soul." 
  
- You paused, full fork touching your lips.
+ You paused, full fork touching your lips, your irises pinpricks.
 
 "He... ...Jevil wasn...wasn't careful about keeping your soul hidden before you were given this vessel. I've *seen* the shape of your soul."
 
@@ -97,18 +105,26 @@ You tried to dance around the subject with details of your previous adventure - 
 
 You stared at her for a few long moments, but then you slurped up the noodles, then slumped back in your chair, staring up at the ceiling. You exhaled slowly, then took a deep breath to collect your thoughts. "...Fuck," you finally settled on.
 
-Alphys snorted, despite the tense moment. After calming herself down and taking a few breaths, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
+Alphys snorted, despite the tense moment. After calming herself down and taking a few breaths, having managed to breach the subject, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
 
 "And then there was one day, I went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? I think he may be looking for somewhere for you both to stay."
 
-"So..." You sighed and glanced away. "Sounds like maybe he didn't know or care about... um, the whole situation here." You slurped up some of the noodles. "I want to be mad... But I suppose I didn't expect much from him. So then... So how long have I been here, then...? Or I guess, how long have you known about me?"
+You were silent for a minute, processing what she told you as you finished eating. She had known for... some amount of time, that you were definitely human, and in fact that for a time you had been just a soul. In a world where - you recall vaguely - these monsters needed human souls to break free from the Underground, you were surprised that you were still here. Your eyebrows raised as you thought. Was it because of a threat of Jevil's power? Did Alphys feel some obligation that succeeded her own duty to the crown?
 
-Alphys thought, tapping a claw to her chin. "I... think about two weeks? Jevil turned up about a week before we knew about any human souls he held..."
+You finished off your noodle cup, and set it aside. "...Right," you finally said, fixing your gaze on her. "But I take it my presence isn't exactly... ideal." You spoke vaguely, since you were at least aware that you weren't *supposed* to be aware of certain things here yet.
 
-"And this 'Mettaton' knows too?"
+Alphys hissed through her teeth, glancing away again. She made a hand gesture 'so-so'. "Well yes... and no." She sighed, and looked back. "Because of... certain events that have happened over the course of monster existence, we are trapped here under the earth because of humans. We are getting close to freeing ourselves, but so far, the best method that we have of doing so is... well, um, c-collecting the souls of fallen h-humans." Her eyes snapped away again. "W-we have... uh... five so far. We need... seven."
 
-"Y-yeah, he just happened to spot it on one of my cameras. Now, I-I did make him promise, but! If he asks after your soul, d-don't oblige him, and come let me know, okay? The Underground would miss him if he decided to just waltz through the Barrier on his own..."
+"...I see." You nodded quietly, leaning back in your seat to stare up at the roof of the lab. "...Am I going to be one of them?"
 
-"Uhh, yeah, sure! Um... what barrier?"
+Alphys was silent at first.
 
-"Hmm?" The scientist stared blankly for a short moment, then flinched back once she processed the question. "O-oh! Um, of course you wouldn't know. Well, while I check your soul integrity, I suppose I could, er, give a little background
+Your expression sank.
+
+"...T-that's what I want to find out," she finally said, in a quiet voice. "By... by law, all human souls are to be taken to A-Asgore, our king. As... humans were the ones that put us down here. The ones that um... were responsible for the d-deaths of his children."
+
+"Oh, shit." You bit your lip. "I... can understand why he wouldn't be happy with them then."
+
+She nodded. "But you're not from the surface, are you? Not our surface. ...If... you'd let me learn about you, and do some tests... I could make a case for an exception for you. You... seem nice enough. O-or at least, you haven't tried to kill me." She awkwardly chuckled, trying to lighten the mood.
+
+You responded to the latter remark with a raised eyebrow. "Well... let me know what I can do to help you, I suppose. Uh - short of giving my life, of course." You had to at least return Alphys' awkward light-making joke.
