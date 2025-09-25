@@ -121,10 +121,20 @@ Alphys was silent at first.
 
 Your expression sank.
 
-"...T-that's what I want to find out," she finally said, in a quiet voice. "By... by law, all human souls are to be taken to A-Asgore, our king. As... humans were the ones that put us down here. The ones that um... were responsible for the d-deaths of his children."
+"...T-that's what I want to find out," she finally said, in a quiet voice. "By... by law, all human souls are to be taken to A-Asgore, our king. Their power is... that is, the power of their souls... is required to break the Barrier. As... humans were the ones that put us down here. The ones that um... were responsible for the d-deaths of his children."
 
 "Oh, shit." You bit your lip. "I... can understand why he wouldn't be happy with them then."
 
 She nodded. "But you're not from the surface, are you? Not our surface. ...If... you'd let me learn about you, and do some tests... I could make a case for an exception for you. You... seem nice enough. O-or at least, you haven't tried to kill me." She awkwardly chuckled, trying to lighten the mood.
 
 You responded to the latter remark with a raised eyebrow. "Well... let me know what I can do to help you, I suppose. Uh - short of giving my life, of course." You had to at least return Alphys' awkward light-making joke.
+
+She nodded, and smiled lightly.
+
+----
+
+And so, you allowed yourself to be examined for the rest of the day. Alphys was thorough with her work - examining your soul's condition, noting its prominent Kindness trait, followed by gentle CHECKs and probes to determine your statistics.
+
+Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic, but *darkness* - something close to, but not quite Void. It was veins *within* the dark vessel that carried magic through the body and protected the soul. Your magical link with Jevil was also found in this examination - a pool of magical energy that ebbed and flowed gently *around* your soul as your body used it, replenished from some unseen source.
+
+Between discussions around the tests that she was doing, she also talked to you about *you* - talking about behaviors, interests (she got excited when you told her you were into computers).
