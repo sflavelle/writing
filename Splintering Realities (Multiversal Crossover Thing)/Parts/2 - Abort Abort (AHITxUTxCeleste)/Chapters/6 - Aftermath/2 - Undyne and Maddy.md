@@ -24,7 +24,7 @@ Undyne sighed, and crouched down, her head level with the human's. "Don't be. I 
 
 Maddy's brows furrowed, and she turned herself fully to face the monster. "Huh?"
 
-"When you fell down here. That hole up there?" Undyne pointed up into the distance, and Madeline could see wisps of snow, moonlight, filter through a hole in the cavernous roof. "That's all you."
+"When you fell down here. That hole up there?" Undyne pointed up into the distance, and Madeline could see wisps of snow, moonlight, filter through a small hole in the cavernous roof. "That's all you."
 
 "Oh. Well, um... technically that wasn't me, that was only *Part of Me*."
 
@@ -58,7 +58,7 @@ Theo took a seat next to Maddy. His expression seemed slightly vacant as well, h
 
 Part of Maddy, in response, simply gestured at her floating self. Undyne raised an eyebrow again.
 
-"... Outside of the Mountain, but okay, fair." Theo chuckled. "Personally, I think the magic here is different from whatever weird mountain magic we had going on above. And boy, that... I think they called it Moonjumper? He felt like something else entirely."
+"... Outside of the Mountain, but okay, fair." Theo chuckled. "Personally, I *do* think the magic here is different from whatever weird mountain magic we had going on above. And boy, that... I think they called it Moonjumper? He felt like something else entirely."
 
 "Mountain magic...?" Undyne murmured. "Nah, that can't be us. That Barrier keeps us all down *here*, magic and all. And if y'all are *climbing* the mountain, there's no way you could have entered our influence before now."
 
