@@ -137,4 +137,26 @@ And so, you allowed yourself to be examined for the rest of the day. Alphys was 
 
 Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic, but *darkness* - something close to, but not quite Void. It was veins *within* the dark vessel that carried magic through the body and protected the soul. Your magical link with Jevil was also found in this examination - a pool of magical energy that ebbed and flowed gently *around* your soul as your body used it, replenished from some unseen source.
 
-Between discussions around the tests that she was doing, she also talked to you about *you* - talking about behaviors, interests (she got excited when you told her you were into computers).
+Between discussions around the tests that she was doing, she also talked to you about *you* - talking about behaviors, interests (she got excited when you told her you were into computers). She cocked an eyebrow as you mentioned that you had an intellectual disorder, then interrupted you while you were mentioning your difficulty understanding body language and your brain being wired up slightly differently to tell you that she had seen that in some monsters regularly. (Knowledge gained, monsters knew about autism.)
+
+While you and Alphys were in the midst of debating and debunking human behaviors from her 'history tapes' (more anime) you were interrupted by the doors into the lab slamming open dramatically, followed by a new voice.
+
+"ALPHYS, DARLING~! I'M HERE FOR MY SCHEDULED MAINTENANCE!"
+
+"Oh, whoops," Alphys muttered, then looked up at you, a blush forming on her cheeks. "Sorry Y/N, I'll have to wrap this up for now." She finished writing something on her clipboard, then called out as she stood, "Over here, Mettaton! S-sorry, I got distracted!"
+
+"What with, my dear?" The effeminate voice asked, getting closer, until they rounded the corner and stopped, seemingly seeing you.
+
+...Well, you weren't sure what kind of monster you expected Mettaton to be, but this wasn't it.
+
+"Oh!" The rectangular robot scooted forward on his wheel to get up close to you. "You're awake! How delighted I am to meet you, my dear... deer." He chuckled lightly, extending his telescopic arms to shake yours. "I trust you've not been keeping dear Alphys here too busy?"
+
+"Ahah... not more than she would normally be, I assume." You nodded toward her.
+
+"Mettaton," Alphys spoke up suddenly, "would y-you keep Y/N here entertained while I prep the usual room?"
+
+"Of *course*, darling!" The robot bowed, exaggerating his motion slightly (at least, that's how it felt to you). "I promise you, we won't be going anywhere."
+
+"T-thanks." She smiled nervously. "I won't be too long. Please, no arguing. O-or chainsaws."
+
+She ducked out of the room, missing how you slowly turned your head toward the robot, raising an eyebrow. "Uh... chainsaws?"
