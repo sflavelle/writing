@@ -169,7 +169,62 @@ It rang four times before the monster on the other end responded. "Howdy, Doctor
 
 "Y-yes sir, I'm perfectly fine. I rang to inform... uh... t-the *subject* has awoken, Asgore."
 
-There was a sigh on the other end. "I see. Please, tell me everything you can."
+There was a pause, followed by a heavy sigh on the other end... The sigh of a person that had hoped that he might not have to take action. "I see. Please, tell me everything you can."
 
 ----
 
+Although at first Mettaton the robot monster was skeptical of your intentions underground - though he had to admit, being unconscious for several weeks and in fact being *revived* by a monster somehow had helped your case...
+
+As he talked with you, sitting across the couch from each other in the main room...
+
+The way you answered his questions the best as you were able, offering information about yourself and what you knew about why you were in the Underground (Jevil probably just ended up here and liked it?) and how you and Jevil met up (he soulswapped with you to escape imprisonment, then only jumped in to save your soul when an extradimensional entity threatened your soul/his body (yes you were upset about being manipulated))...
+
+He felt you were at least not lying or hostile.
+
+That didn't mean that he wasn't feeling *urges*, with your soul (and a path to stardom on the surface) right there in front of him...
+
+But he had already been denied by Doctor Alphys, and well, with her plan explained to him, he was at least sated. It would be the same result if King Asgore used your soul for the barrier, of course.
+
+Alphys re-entered the room after a few minutes of chatter, carrying a black piece of equipment under her arm. "Alright Mettaton, sorry to keep you waiting," she said sheepishly. "Um, Y/N, while you're waiting for us, I was wondering if you might take a look at something for me?"
+
+She walked over to the lounge nook where you were sat and placed the device on the table. Now that you could see it more clearly, you could see that it was an old laptop from the surface. As you reached to open it, she explained, "I uh, found this in the dump last time I was down there, it looks like a type of computer but even after drying it it appears... not to work. I've got some tools on the bench over there," she cocked her head toward her workbench, "so if there's anything you can figure out about how this is put together, or if you can even repair it... anything helps." She smiled.
+
+"Hmm, sure!" You grinned back. "I'm not *as* familiar with laptops compared to desktop machines, but it's more or less the same thing just packaged differently. I'll see what I can find."
+
+"Aha~" The robot suddenly said to himself, an '!' appearing on his screen. "I recognise that spark in your eye! I daresay, Alphys darling, you may have found a likeminded soul. I hope, for your sake that the King is lenient in his judgment." He paused. "Wait, was I not supposed to--?"
+
+"I know the deal, Alphys told me," you waved him off. "I'll cross that bridge when we get to it. Now I believe you have some servicing to get done... 'darling'." You couldn't help the childish act of sticking your tongue out at him, as you pulled the dead laptop toward you, examining it more closely.
+
+----
+
+You were left alone for the better part of an hour to look at the device and take notes. There were rust stains on the plastic casing and a few minor signs of water damage, hinting at corrosion on the internal components. You didn't know anything about what 'the dump' was like, but from clues on and inside the laptop it seemed to be a wet or at least humid environment.
+
+Raiding from Alphys' stash of mismatched screwdrivers at her workbench, you found one that fit the laptop's small Philips screws and managed to get the underside off. You were in the process of spreading out the socketed and unscrewable components on the table...
+
+...when the door into the lab opened, and a gust of hot air from inside rushed past you. Even that brief breath of Hotland air was stifling. "Hiya," you called, glancing briefly at the guest who had just entered before returning to your work. "Alphys is busy at the minute, I think she'll be out shortly--"
+
+The glowing blue spear that then blocked your view of the laptop's internals got you to shut up. The side pressed at your face, prodding you to look back up at its owner.
+
+A scowling redheaded fish woman in a black tank top.
+
+You sighed, and rolled your eyes, nodding your head back toward the rear of the lab. "She's in one of the exam rooms with Mettaton."
+
+You made to return to your work, but she interrupted you, again moving your head up with the side of her spear. "It's you, isn't it?" She growled.
+
+"It's me?"
+
+"The human!" She spat with venom. "The one Asgore is coming to see?"
+
+"Huh? Already?" You raised an eyebrow, and straightened up, accepting that this monster wouldn't let you just return to your project. "I mean, I knew there were decisions he'd have to make, but--"
+
+"Listen up, punk." She pressed into your personal space, trapping you against the bench. "I don't know how the hell you got down here, past the guards, and brainwashed Alphys with your human mind-control--"
+
+"Mind control?! The fuck?"
+
+"But I'll be watching you. *Veeeeeery* closely." She grinned, exposing her sharp teeth as she leaned in closer. "You make a move on anyone? You're as good as dead. Clear?"
+
+Fucking hell, this woman was intimidating, but also fuck, couldn't she see you *weren't* moving on anyone? "Crystal," you finally said flatly, your expression unamused.
+
+"*Good.*" She grabbed you by the scruff of your shirt and shoved you in front of her. "Now. Take me to Alphys. No funny business."
+
+You sighed. "Lucky for you, I'm not funny," you quipped as you led her further into the labs.
