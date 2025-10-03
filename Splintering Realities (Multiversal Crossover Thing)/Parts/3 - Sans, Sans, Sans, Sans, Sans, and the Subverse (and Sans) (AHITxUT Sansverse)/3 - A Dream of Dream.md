@@ -78,7 +78,7 @@ Well, if *that* was how it was going to be... He slid silently into the shadows,
 
 And then, once he felt as though he were right underneath his prey, he burst out from the ground laughing--
 
-And something slimy and acidic immediately wrapped itself around Snatcher's neck, pulling and redirecting his trajectory such that he was slammed firmly into the floor of his lab.
+And something slimy and acidic immediately wrapped itself around Snatcher's neck, pulling and redirecting his trajectory such that he was slammed firmly into the floor of his lab and promptly pinned.
 
 "A laudable attempt, Snatcher. Unfortunately, one's thoughts and intents are not quite as private as you would expect, in the dreamscape."
 
@@ -88,6 +88,40 @@ It was another skeleton, though one he had not seen yet. This one wore a black t
 
 Lifting himself upright, Snatcher crossed his arms in front of him. "You look like something that came up out of my swamp. Just how many of you skeletons are there?"
 
-The skeleton's grin compressed into a smirk. "I am something *more* than my peers. Borne to balance out the ideals of this multiverse. Some believe our war to be one of 'good versus evil' and other such simplifications, and that the only acceptable outcome for one side is the complete and total annihilation of the other. However--"
+The skeleton's grin compressed into a smirk and began to pace around the spectre. "I am something *more* than my peers. Born to balance out the ideals of this multiverse. Some believed our war to be one of 'good versus evil' and other such simplifications, and that the only acceptable outcome for one side is the complete and total annihilation of the other. This is not the case."
 
-"All I know is, that you must be Nightmare," Snatcher cut him off. He smirked as well. "Look, I love a good villain monologue as much as the next guy. What I don't love is being asleep to receive it and therefore being defenseless. Considering you're dead and we're speaking, what you have to say must be important to us. To me. And considering Moonjumper was detected around your... what'd the kid call it - subverse? - I'm guessing that he's the one that killed you.
+"I remember hearing something from your 'peers' about positivity and negativity," Snatcher said flatly.
+
+"Indeed. Too much positivity in the multiverse can become toxic. However, so too can negativity do the same. There is a balance that must be struck. This is something that my brother and I, and indeed the general public, have fundamentally disagreed on for many decades."
+
+He continued, "There are two dangerous entities that we know of that do not care for this balance. The God of Destruction of this multiverse, Error, is one of them." The skeleton paused in place, turning toward his audience. "And evidently, this 'Moonjumper' creature who has managed to destroy my physical form - whom you and your team are following - is another. Error is a known quantity to us. This Moonjumper is not."
+
+"You're talking to me as if you still have a horse in this race," Snatcher told him, narrowing his eyes. "How are you even doing this?"
+
+----
+
+"It seems we've had the same idea," Nightmare mused as he appeared on the bridge of a spaceship. Evidently the child was dreaming of space.
+
+Dream was startled into turning around, having been standing at the captain's chair staring out into the deep space outside. "Nightmare! I knew it couldn't have just been me!" A golden bow and arrow flickered into existence in his hands as he strung it, aiming at the intruding force.
+
+Nightmare simply sighed, slowly walking toward the other. "Come now, brother. There is no need to battle. We have both already lost. You are also helping inform these interlopers on the being that slew us, are you not?"
+
+The guardian of positivity frowned, raising an eyebrow in confusion. "...Yes...?"
+
+"I doubt there is much more we can do about the roles we played in the waking world. What we *can* do, I believe, is if these beings are here because of our killer, then we can tell them what we know. Then perhaps, we might also learn some information about them."
+
+Nightmare approached his brother, going to stand on the opposite side of the captain's chair, and looked out into the void of space. Dream, more out of confusion than anything, lowered his bow.
+
+"For example, brother. I have learned from one of their number that the entity was already travelling the multiverses before it became what they call 'Moonjumper'. It came from an abandoned universe which, from what I understand is now part of the Void. *That* was its home."
+
+"The Void?" Dream narrowed his eyes at his counterpart. "Nothing's supposed to be able to survive in the Void."
+
+"You know as well as I do just how many Gasters have ended up there."
+
+"Yes, and look what happened to them! They--"
+
+The sound of a door sliding open caused both skeletons to look behind them.
+
+A child, the child they were here for, slid into the room, dressed in pajamas and holding a crow monster plush, and eyed the both of them. "What're..." She cut herself off with a yawn. "...What're you doing talking so loudly? 'm trying to sleep."
+
+Nightmare blinked. "You're... dreaming of sleeping, child?"
