@@ -34,7 +34,7 @@ Maddy's brows furrowed, and she turned herself fully to face the monster. "Huh?"
 
 Maddy wasn't ready to see her again yet. But she still let out a soft chuckle at what it must look like to Undyne - an apparent clone just appearing from nowhere. She turned to face the Part of Her. "Look, I... I fucked up. I thought that-"
 
-"Shut it." Despite the harsh words, Part of Maddy didn't appear to be angry. She spoke both to Maddy and Undyne, "There's something you need to know. I... get that it feels the same to you, but *this* mountain, and the one we came from, are not the same."
+"Shut it." Despite the harsh words, Part of Maddy didn't appear to be angry. She spoke both to Maddy and Undyne, "I'm still mad at you. But... There's something you need to know. I... get that it feels the same to you, but *this* mountain, and the one we came from, are not the same."
 
 "...What does *that* mean," both responded simultaneously.
 
@@ -54,7 +54,7 @@ Theo took a seat next to Maddy. His expression seemed slightly vacant as well, h
 
 "They're *kids*," Part of Maddy sighed out, annoyed. "They're making it up."
 
-"I don't know that they are. Okay, fine, I don't know all the complicated science terms, but they seemed to know what they're talking about." He leaned in. "They reckon worlds are blending together or something. I'm inclined to believe 'em. I think us three," he gestured between himself, Maddy and her doppleganger, "*started* on Mount Celeste, and then somewhere along the way, we ended up on, or *in* Mount Ebott. I mean, c'mon, magical beings? Monsters? Time travelling kids? That wouldn't exist on *our* Earth."
+"I don't know that they are. Okay, fine, I don't know all the complicated science terms, but they seemed to know what they're talking about." He leaned in. "They reckon worlds are blending together or something. I'm inclined to believe 'em. I think us three," he gestured between himself, Maddy and her doppleganger, "*started* on Mount Celeste, and then somewhere along the way, we ended up on, or *in* this Mount Ebott. I mean, c'mon, magical beings? Monsters? Time travelling kids? That wouldn't exist on *our* Earth."
 
 Part of Maddy, in response, simply gestured at her floating self. Undyne raised an eyebrow again.
 
