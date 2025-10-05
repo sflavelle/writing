@@ -4,13 +4,15 @@ Mu was the first to wake, owing to her life as a light sleeper, what with the Ma
 
 And as soon as she couldn't place where she woke up, she was scrambling to her feet to get a look around.
 
+She did not want anyone getting the jump on her again.
+
 Her emerging panic at being alone again halted as soon as she noticed Hat Kid nearby.
 
-Her eyebrow raised as she then saw the other kid, slowly coming to, in the same bed of flowers as she and Hattie.
+Her eyebrow raised as she then saw the other kid - the one that that skeleton, Sans, had killed - slowly coming to, in the same bed of flowers as she and Hattie.
 
 A bed of golden flowers, to be exact.
 
-This bed was brightly lit - Mu looked upward, and found its light source somewhere up above, a hole in the rocky walls surrounding them.
+This bed was brightly lit amidst the sea of darkness - Mu looked upward, and found its light source somewhere up above, a hole in the rocky walls surrounding them.
 
 Okay, so they were still underground...
 
@@ -40,11 +42,13 @@ It had been a Froggit that had given the advice that would ultimately condemn Fr
 
 And when, during that fateful encounter, Toriel had refused to engage them in any sort of conversation, some way of disarming this situation...
 
-...Well, they thought they were doing the right thing by doing what Toriel had asked. They thought, at some point, she would call a halt to the battle. That she would be convinced that Frisk could hold their own. That they would be allowed to pass on their way, to hurry their way through the Underground and find an exit, a way back home. 
+...Well, they thought they were doing the right thing by doing what Toriel had asked, following the Froggit's advice. They thought, at some point, she would call a halt to the battle. That she would be convinced that Frisk could hold their own. That they would be allowed to pass on their way, to hurry their way through the Underground and find an exit, a way back home. 
 
 They never wanted to kill her. 
 
-And then...
+But...
+
+...that was what happened.
 
 ...
 
@@ -52,7 +56,7 @@ The monsters outside of the ruins were scarier.
 
 Frisk fled when they could, away from the Death-looking deer and the dogs with axes.
 
-Poor Papyrus. They had liked him, when he wasn't trying to capture them for their soul.
+Poor Papyrus. They had liked him, when he wasn't trying to capture them for their soul. He was funny!
 
 But when the attacks started, Frisk had had to resort to self defence.
 

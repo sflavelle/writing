@@ -46,7 +46,7 @@ Still, she would have to say something, otherwise the inevitable would happen...
 
 She missed how Hat Kid and Mu, hearing this, checked their teleporter, only for their eyes to widen. And how Frisk's expression became so utterly confused...
 
-How could this timeline be so, so different? 
+How could this time be so, so different? 
 
 There was nothing she could do once the human male appeared on the climbing rope, shuffling down carefully toward them. A sigh escaping her. "Children," she pre-empted. "Please understand that this is only a warning."
 
@@ -68,7 +68,7 @@ He had already entered too far.
 
 Toriel released a world-weary sigh.
 
-"Welp, nothing for it. YOLOOOO!" The climber slackened his grip, and slides down to the floor of the cavern. After dusting himself off, he turned to meet the group, eyes widening at the monster among them, but otherwise not reacting. He was a dark-skinned man in his 30s, with frizzy hair and an impressive curly beard. Frisk thought he would look like a lumberjack if he had a bit more weight to him. "Uh, hi. I don't suppose any of you have seen a red headed young lady crash through here recently?"
+"Welp, nothing for it. YOLOOOO!" The climber slackened his grip, and slid down the rope to the floor of the cavern. After dusting himself off, he turned to meet the group, eyes widening at the monster among them, but otherwise not reacting. He was a dark-skinned man in his 30s, with frizzy hair and an impressive curly beard. Frisk thought he would look like a lumberjack if he had a bit more weight to him. "Uh, hi. I don't suppose any of you have seen a red headed young lady crash through here recently?"
 
 The kids shook their heads. Toriel's expression was one of deep thought. "Not in this part of the Underground, no... Surely that could not have been the source of the tremors."
 
@@ -88,7 +88,7 @@ Something very strange was going on. Hat Kid seemed to be the first to put the c
 
 "Theo," Theo chimed in. 
 
-"Theo," Hat Kid repeated, "appearing, the mountain above us turned from one into another? Just how long have you been down here, Frisk?"
+"Theo," Hat Kid repeated, "appearing here, the mountain above us turned from one into another? Just how long have you been down here, Frisk?"
 
 "This time? About 5 minutes?" 
 
@@ -124,6 +124,6 @@ Frisk stared at them, eyes wide. If this was a RESET, how did they know immediat
 
 Who *had* RESET?
 
-Frisk decided to out with it, hoping that some brief explanation will make the girls less cold toward them. "It seems like somebody reset the timeline. We're at the beginning of the Underground. Um... I made some stupid choices, and I ended up being possessed by a vengeful spirit. I... I-if everything ends up repeating, I'm gonna try harder to not let things go the way they did. How do you know about the time thing...?"
+Frisk decided to out with it, hoping that some brief explanation will make the girls less cold toward them. "It seems like somebody reset the timeline. We're at the beginning of the Underground. Um... I made some stupid choices, and in the end I wasn't... wasn't myself. I... I-if everything ends up repeating, I'm gonna try harder to not let things go the way they did. How do you know about the time thing...?"
 
-Vengeful spirit, huh? Mu wanted to write that off as an excuse, but noticing how soft and sorrowful they seemed after the reset, maybe there was something to it... She gestured toward Hat Kid, talking with Toriel and Theo - about food, it sounded like. The latter was frequently taking photos of the caverns, with its puzzles and designs on the walls. "My travelling partner is, well... let's say she's well versed in Time shenanigans."
+'Not themselves', huh? Mu wanted to write that off as an excuse, but noticing how soft and sorrowful they seemed after the reset, maybe there was something to it... She gestured toward Hat Kid, talking with Toriel and Theo - about food, it sounded like. The latter was frequently taking photos of the caverns, with its puzzles and designs on the walls. "My travelling partner is, well... let's say she's well versed in Time shenanigans."

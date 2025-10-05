@@ -205,17 +205,17 @@ Raiding from Alphys' stash of mismatched screwdrivers at her workbench, you foun
 
 The glowing blue spear that then blocked your view of the laptop's internals got you to shut up. The side pressed at your face, prodding you to look back up at its owner.
 
-A scowling redheaded fish woman in a black tank top.
+A scowling redheaded fish woman in a black tank top and denim jeans.
 
 You sighed, and rolled your eyes, nodding your head back toward the rear of the lab. "She's in one of the exam rooms with Mettaton."
 
 You made to return to your work, but she interrupted you, again moving your head up with the side of her spear. "It's you, isn't it?" She growled.
 
-"It's me?"
+"It's me?" You raised an eyebrow.
 
-"The human!" She spat with venom. "The one Asgore is coming to see?"
+"The human!" She spat with venom. "The one Asgore told me was hiding at the labs?!"
 
-"Huh? Already?" You raised an eyebrow, and straightened up, accepting that this monster wouldn't let you just return to your project. "I mean, I knew there were decisions he'd have to make, but--"
+"Huh? He-- whuh?" You raised an eyebrow, and straightened up, accepting that this monster wouldn't let you just return to your project. "I mean, I understand I shouldn't be here, knew there were decisions he'd have to make, but--"
 
 "Listen up, punk." She pressed into your personal space, trapping you against the bench. "I don't know how the hell you got down here, past the guards, and brainwashed Alphys with your human mind-control--"
 
@@ -228,3 +228,13 @@ Fucking hell, this woman was intimidating, but also fuck, couldn't she see you *
 "*Good.*" She grabbed you by the scruff of your shirt and shoved you in front of her. "Now. Take me to Alphys. No funny business."
 
 You sighed. "Lucky for you, I'm not funny," you quipped as you led her further into the labs.
+
+You both walked til you came to the second door on your right. You knocked twice, calling out, "Hey sorry to bother, we um... have someone here?"
+
+"DAMN RIGHT YA DO!" The monster behind you yelled, startling you as she pushed you aside and swung the door open. "I'M HERE TO SAVE YOU, ALPHY!"
+
+Alphys flinched back and fumbled the screwdriver she was using to reattach Mettaton's rear panel. "U-uhm... 'save me', Undyne?"
+
+"The mind control THEY," she pointed at you, "put you under! How else would they get you to hide them away?!"
+
+"Okay where the fuck is this mind control claim coming from," you grumbled as you appeared in the doorway, eyeing the fish monster - Undyne - warily. "If they can *actually* do that here, I'm sorry to hear that, but where I come from they absolutely fucking cannot."
