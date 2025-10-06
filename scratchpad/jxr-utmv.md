@@ -10,7 +10,7 @@ The sounds of demolition and explosions in the distance.
 
 And red strings *everywhere* you looked.
 
-Also, hang on... weren't you *taller* than your travel companion?
+Also, hang on... weren't you *taller* than your travel companion? Not... shorter, apparently?
 
 You mumbled into his shoulder, "s'mthin happening...?"
 
