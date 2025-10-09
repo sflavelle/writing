@@ -38,7 +38,7 @@ Her fingers slowed, and stopped. Sighing out again, the heaviness in her chest w
 
 Besides the piano, there was a bin holding a number of umbrellas inside. And... nothing else. Wait, there was a statue outside this room that was getting rained on. Was... this a puzzle?
 
-Probably. Well, that... fucking *temple* had a lot of puzzles, even, and that had been very recent, so part of her still felt wired to do such a thing. She approached the bin, picked up a umbrella-
+Probably. Well, that... fucking *temple* had a lot of puzzles, even, and that had been very recent, so part of her still felt wired to do such a thing. She approached the bin, picked up an umbrella-
 
 "*Seven.*"
 

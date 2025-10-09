@@ -133,7 +133,7 @@ She nodded, and smiled lightly.
 
 ----
 
-And so, you allowed yourself to be examined for the rest of the day. Alphys was thorough with her work - examining your soul's condition, noting its prominent Kindness trait, followed by gentle CHECKs and probes to determine your statistics.
+And so, you allowed yourself to be examined for the rest of the day. Alphys was thorough with her work - examining your soul's condition, noting its prominent Perseverance trait, followed by gentle CHECKs and probes to determine your statistics.
 
 Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic, but *darkness* - something close to, but not quite Void. You had to remind yourself that it was because it was Ralsei the Prince of Darkness that had created this vessel to hold your soul. It was veins *within* the dark vessel that carried the magic through the body and protected the soul. Your magical link with Jevil was also found in this examination - a pool of magical energy that ebbed and flowed gently *around* your soul as your body used it, replenished from some unseen source.
 
@@ -201,7 +201,7 @@ You were left alone for the better part of an hour to look at the device and tak
 
 Raiding from Alphys' stash of mismatched screwdrivers at her workbench, you found one that fit the laptop's small Philips screws and managed to get the underside off. You were in the process of spreading out the socketed and unscrewable components on the table...
 
-...when the door into the lab opened, and a gust of hot air from inside rushed past you. Even that brief breath of Hotland air was stifling. "Hiya," you called, glancing briefly at the guest who had just entered before returning to your work. "Alphys is busy at the minute, I think she'll be out shortly--"
+...when the door into the lab opened, and a gust of hot air from outside rushed past you. Even that brief breath of Hotland air was stifling. "Hiya," you called, glancing briefly at the guest who had just entered before returning to your work. "Alphys is busy at the minute, I think she'll be out shortly--"
 
 The glowing blue spear that then blocked your view of the laptop's internals got you to shut up. The side pressed at your face, prodding you to look back up at its owner.
 
@@ -217,7 +217,7 @@ You made to return to your work, but she interrupted you, again moving your head
 
 "Huh? He-- whuh?" You raised an eyebrow, and straightened up, accepting that this monster wouldn't let you just return to your project. "I mean, I understand I shouldn't be here, knew there were decisions he'd have to make, but--"
 
-"Listen up, punk." She pressed into your personal space, trapping you against the bench. "I don't know how the hell you got down here, past the guards, and brainwashed Alphys with your human mind-control--"
+"Listen up, punk." She pressed into your personal space, trapping you against the bench. "I don't know how the hell you got down here, past the guards, disguised yourself and brainwashed Alphys with your human mind-control--"
 
 "Mind control?! The fuck?"
 
