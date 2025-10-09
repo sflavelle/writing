@@ -98,6 +98,54 @@ He continued, "There are two dangerous entities that we know of that do not care
 
 "You're talking to me as if you still have a horse in this race," Snatcher told him, narrowing his eyes. "How are you even doing this?"
 
+Nightmare smirked. "Even before our demise, my brother and I were capable of traversing the dreamscape. Now, it would appear to be our only way of communication. I am here before you to provide the context you will require while you are here."
+
+----
+
+Sans dodged once more as Frisk attempted to slash at him. In what was quickly becoming routine, he stepped to the side and flung a few more jagged bones in the anomaly's direction.
+
+~~Frisk~~ charged him once more, and he blocked the knife swing with his own attack, their weapons clashing. He looked down into the face of the child, expecting some horrid grin, but--
+
+Frisk was fearful, *crying*. Tears already streaked down their face.
+
+They choked out something.
+
+"H-help me... Please..."
+
+"frisk?!" Sans' eyelights bulged and he blinked to the far end of the hall, opting to take a grander look at the scene.
+
+Frisk shambled around to face him. It again looked very... something about it disturbed the skeleton. And for just a moment...
+
+The light in the room seemed to reflect off strings, lines... that wrapped around Frisk's limbs, almost invisible.
+
+"heh." Okay, now Sans could see what was happening. Frisk was being puppeted by something... or someone.
+
+If he could aim a sharper attack without Frisk moving...
+
+But something beat him to it.
+
+From the darkness beyond the hall, a powerful beam of light, not unlike one of his own Blasters, struck something above Frisk.
+
+He caught a glimpse of - was that Chara? - disintegrating in the heat and power of the blast, and Frisk's strings were cut loose. They collapsed to the ground, and with a trembling hand tossed the blade away.
+
+The blast died out, and Sans wanted to see who had fired... but first he warped to Frisk, carefully checking them over. They were trembling, and when he carefully turned their head, they were still crying, but they gave him a soft, genuine smile. "T-thank you..."
+
+"Interesting," mused a voice from the dark, where the blaster had come from.
+
+Sans and Frisk both flinched. The skeleton helped the human to their feet, noting that they seemed... 'normal' now, for whatever definition of normal they had in their unique situation. They both turned to face the darkness. "and just what is so interesting?"
+
+A shape strode from the darkness into the light, and as it did the darkness engulfing the entrance to Asgore's throne room seemed to fade. It was a skeleton - another Sans. But the clothes and the *mass* that made up this one's tentacles, that matched those mixed throughout the dust in the study they had seen - was enough of an indicator of who they were talking with.
+
+"It would seem that both of you share the same nightmare," the new skeleton mused. "I had to expend no effort at all to get you both into the same shared dreamspace."
+
+"shared...? wait." He looked toward the human. "frisk, is that... *actually* you?"
+
+Frisk carefully nodded. "...You're real, Sans?"
+
+"yeah i am kid. you're okay now." He glanced back at the other entity in the room. "and you must be nightmare. right? do we have you to thank for all that?"
+
+"*That* display was all you, I'm afraid." Nightmare smirked toward them. "I may have pushed things slightly to allow myself to manifest here, but, well. You would be surprised... or perhaps not, to learn just how many of your doppelgangers have poor memories of this exact room."
+
 ----
 
 "It seems we've had the same idea," Nightmare mused as he appeared on the bridge of a spaceship. Evidently the child was dreaming of space.
@@ -120,8 +168,12 @@ Nightmare approached his brother, going to stand on the opposite side of the cap
 
 "Yes, and look what happened to them! They--"
 
-The sound of a door sliding open caused both skeletons to look behind them.
+The sound of a door sliding open caused Dream to pause, both skeletons turning from the window to look behind them.
 
 A child, the child they were here for, slid into the room, dressed in pajamas and holding a crow monster plush, and eyed the both of them. "What're..." She cut herself off with a yawn. "...What're you doing talking so loudly? 'm trying to sleep."
 
 Nightmare blinked. "You're... dreaming of sleeping, child?"
+
+"...Yeah?" Hat Kid yawned. "...sleeping's the best."
+
+Dream surprised himself by bursting into laughter. "Oh, I like this kid."
