@@ -1,112 +1,6 @@
-<!-- Note to self - The team would previously land on an Earth-like planet and gather clues, information -->
+"WE RETURN, FRIENDS!" Papyrus declared as he, Sans, Frisk, Sans, Toriel, and two human kids walked in to the common room as if nothing was unusual.
 
-The park area was peaceful, at least.
-
-This place in general, this planet, this universe, filled him with a sense of calm that he had not felt since... before Frisk had arrived into his life. Man, he really had it good until then, he thought.
-
-The calm was then promptly shattered by the sound of a voice, calling over the din.
-
-"WOWIE! LOOK! THEY SELL NICE CREAM UP HERE TOO!"
-
-The shouting voice, though not directed at them, made both Sans and Asgore freeze, Hattie confused and looking between the two.
-
-The goat monster watched as the skeletons face shifted from glee to disappointment. "nah... nah, it couldn't have been. there's no way. heh... sorry pops. thought paps was alive for a sec."
-
-Asgore nodded quietly, resting a hand on his friend's shoulder. 
-
-The voice spoke up again, and both monsters could hear that it was coming from around the corner. "YOU MUST BE MISTAKEN, SIR. THIS 'ICE CREAM' YOU ARE SELLING IS CLEARLY THE SAME AS THE POPULAR 'NICE CREAM' DESSERT. WE WILL GLADLY PAY FOR ONE EACH, REGARDLESS."
-
-Sans, despite himself, picked up the pace, unsure what he'd find around the corner. He reached the end of the block, and while waiting for the others, peered through the crowd. 
-
-He recognised the tall figure at the street vendor immediately, and he froze.
-
-It was another skeleton, lanky and young.
-
-It was-
-
-"bro..."
-
-He found himself pushing through the crowd toward him. 
-
-His brother was alive. 
-
-Papyrus was *alive*!
-
-"paps! over here!"
-
-Papyrus turned toward him... and so did the human next to him, wearing a familiar striped shirt and-
-
--in the dim golden light of the judgement hall was a haunting figure, staring him down as it approached, knife out, head to toe in dust and blood, the dust and blood of his friends, everyone he knew, of course they were back, they'd reset after all, they-
-
-His magical energy flared as his fight or flight response kicked in. He had to save Papyrus, he would be okay, he-
-
-"*get away from my brother, murderer!*" He growled as he charged toward them, a long bone weapon forming in his hands as he rushed toward the child and the skeleton both wearing the same expression of confusion and panic-
-
-Then he was enveloped in blue magic, a force crashing him roughly to the ground. He struggled to free himself, a few feet from the two. "nnngh, let me go bro! they'll hurt you!"
-
-"... I'M NOT HOLDING YOU DOWN, SANS." Papyrus' expression was now one of shock mixed with disbelief, as he held Frisk close to himself.
-
-"then-"
-
-"*i* am."
-
-Sans froze again.
-
-Slowly, he turned his head toward the source of the voice...
-
-...and was met with himself, palm out, a grave expression in his doppelganger's features.
-
-It took him a few seconds to process all this.
-
-And when he did, he simply let his skull knock against the ground. "god damnit, i'm an idiot."
-
-"Sans," came Hat Kid's voice from behind him, and both Sans the Skeletons looked toward her, still riding atop Asgore's frame as they approached. "I *told* you about parallel universes, 'bro'."
-
-"i know!" he replied from the ground, knocking his skull again. "i had a moment, okay?"
-
-"hey fluffybuns," Other Sans greeted Asgore, still keeping his target pinned. "this bonehead with you?"
-
-"GREETINGS, KING ASGORE!" Papyrus greeted loudly. Frisk had taken to hiding behind him, peeking their head out carefully. "YOU SHOULD HAVE LET US KNOW YOU WERE GOING TO JOIN US FOR NICE CREAM."
-
-Despite the situation, Asgore couldn't help but snort. Trust Papyrus to lighten the mood, no matter the universe. "Yes, I apologise for him. The two of us have been through rather a lot, but we don't mean harm."
-
-"We mean JUSTICE!" Mustache Girl declared beside the goat monster. "Justice for those that lost their lives!"
-
-"...for those that... what?" Other Sans furrowed his... eyes in confusion, glancing toward Frisk. The kid's reply was to hold their open palms out, shaking their head. He looked back toward the group. 
-
-"Mu, if I may?"
-
-"Sup, Asgore?"
-
-"Be quiet for a moment." He sighed, and Other Sans snorted. "Sans, Papyrus, Frisk, I deeply apologise. It is good to see you all well. It is simply unfortunate that, in our original universe, it was our Frisk that... slaughtered the monster race."
-
-Papyrus gasped dramatically. Sans' hard expression softened, as he started to realise what would have gone through the other's mind on seeing them. Frisk clapped a hand over their mouth, mortified.
-
-"i saw them and... was reminded of seeing them in the judgement hall, covered in my friends' dust," the Sans pinned to the ground explained. "i... i'm still dealing with living through that. ...forgot this wasn't our reality for a moment there."
-
-Asgore softly said in response, "I believe you may have had that coming then, my friend."
-
-"NOTHING TO FRET ABOUT HERE THEN, FRIENDS AND HUMANS!" Papyrus stood tall, lifting a surprised Frisk in front of him. "FOR OUR FRISK IS THE ONE WHO BROKE THE BARRIER AND GUIDED US ALL TO THE SURFACE!"
-
-"if you couldn't tell," Pacifist Sans chuckled.
-
-Asgore smiled warmly. Turning his head to the child on his shoulder, he inquired, gesturing to the two Sanses, "I don't suppose you have something to tell these two apart, do you?"
-
-Hat Kid thought briefly, then lifted her tophat, rummaged around inside of it, then pulled one of her Ice Hats from it - a beanie - and leapt from Asgore's shoulder to rush forward and, as Pacifist Sans released his hold on the other, rushed up to her Sans and swiftly slid the beanie onto his head. "Tada!"
-
-"heh, thanks kiddo," Tempus Sans said to her, ignoring the shiver she gave on hearing the word 'kiddo'. He glanced toward his twin. "...sorry, bud. despite all the crazy shit we've been dealing with with the multiverse 'n' all that, it hasn't *really* been that long ago. but... that frisk is long gone, and I shouldn't've... yeah." He turned to Frisk, whom Papyrus had put down now, the kid still nervous. "i'm sorry to scare ya, kid. that was no way to greet a new pal."
-
-As Tempus Sans and Frisk made up and slowly began to chat, Asgore looked toward Pacifist Sans and Papyrus. "Does that mean all our friends are...?"
-
-"yep," Pacifist Sans nodded. "the other monsters are slowly integrating, but our little gang is at least together. we bought out this apartment building nearby. i guess then you'd like to see everyone?"
-
-"If you would be so kind," Asgore nodded. "It would put my mind at ease to see that, at least in one reality, things turned out for the better."
-
-----
-
-"WE RETURN, FRIENDS!" Papyrus declared as he, Sans, Frisk, Sans, Asgore, and two human kids walked in to the common room as if nothing was unusual.
-
-The apartment complex's common room was furnished as little more than a big living area, with a connected kitchen, a table set aside for dining, and an ice hockey table in the corner. Sitting in various places on the extended lounge were Toriel, who was knitting; Alphys, currently in discussions with a young-looking humanoid creature next to her and... wait was that DJ Grooves and Mettaton?!
+The apartment complex's common room was furnished as little more than a big living area, with a connected kitchen, a table set aside for dining, and an ice hockey table in the corner. Sitting in various places on the extended lounge were Toriel, who was knitting; Alphys, currently in discussions with a young-looking humanoid creature next to her who looked like she had a squid on her head. There was also Flowey, situated in a pot next to... wait was that DJ Grooves and Mettaton?!
 
 "Darlings!" Grooves called at the sight of Hat Kid and Mu, and Hattie gasped in delight, eyes wide as she rushed over to give the moon penguin a hug, earning an amused 'How adorable~' from the robot. Toriel looked up from her knitting needles, partially-made woollen scarf dangling as she took in the two new humans. "I am *so* happy to see you all in good shape in the midst of this mess. Yes, even you, red darlin~," he nodded at Mu, stood in the doorway as the skeletons moved in, Papyrus and Frisk carrying their shopping haul while Sans floated his behind him. "Y'all'll have to fill me in on what's been happening."
 
@@ -130,7 +24,7 @@ She paused when he noticed the skeleton's deer-in-the-headlights expression. The
 
 "W...why are there two of you?"
 
-Toriel opened her eyes, glancing over.
+Toriel blinked her eyes, glancing over.
 
 There was Sans, standing before Alphys with a look of... relief and joy on his face. When had he put that peculiar beanie on?
 
