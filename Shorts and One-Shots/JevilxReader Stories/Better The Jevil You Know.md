@@ -308,7 +308,33 @@ Another breath. "Y/N... would you allow me to examine your soul?"
 
 Ah.
 
-Well, you hadn't seen your own soul yet...
+Well, you hadn't seen your own soul yet... and if it would help to understand things?
+
+You nodded. "Please, do what you must."
+
+Seam nodded in return, and stood back to allow you to bring out your soul. 
+
+... Which you didn't know how to do. Something that the magician himself seemed to realise after a moment. "Ah - my apologies, it appears I must teach you. I should not be surprised... most monsters or humans nowadays have forgotten about the nature of one's soul."
+
+He guided you through the process of manifesting your soul - apparently most easily accomplished (outside of battle) through physical gestures around the chest. Eventually you felt a tugging sensation as something pushed against the inside of your chest before seeming to just... slip through. 
+
+And then... there it was. 
+
+A purple cartoon heart gently pulsed before you, it's soft glow illuminating your open palms beneath it. 
+
+You shook. You were looking at the manifestation of everything that you were. 
+
+Seam hummed in approval. "Well done. I should not be surprised that you possess a soul of Perseverance."
+
+You blinked, and looked up at him. "You can... tell that?"
+
+He nodded, smiling warmly. "Soul magic is a complicated business, but the trait that determines a soul's colour is quite simple. You may be guided by one or more core principles, but you could say that the one that colours your soul is your 'primary' trait."
+
+"..." You couldn't help but feel a touch disappointed. "Sooo ... just the fact that I've put up with a lot of bullshit happening in my life, that's now the core aspect of what I am?"
+
+"I would not necessarily think about it in that light," was the magician's response. "You may have suffered many hardships in your journey through life... perhaps there is an ultimate goal you are pursuing, and though you may be beaten down, you are *persisting*, *not giving up*. I believe perseverance is best characterised as knowing that, no matter what life throws in your path, no matter how long it will take, ultimately you will reach your destination, because *you will never truly give up*."
+
+"Perhaps think about it this way," he continued. "You have been thrown into a situation where you inhabit the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him."
 
 ----
 
@@ -340,7 +366,7 @@ The foyer was silent. There were grim looks on the groups' faces, as they strugg
 
 "...Guys...?"
 
-They watched as you visibly processed what they told you. 
+They watched as you visibly processed what they had already told you. 
 
 Jevil was in your body. Now Jevil was gone, and your body was safe.
 
@@ -598,7 +624,7 @@ Jevil stopped, squinting down at you suspiciously.
 
 Then, with a poof and a popping noise, you found yourself at your full size, and both of you crashed to the floor. After a moment to get your bearings, you found that you were actually *taller* than the jester, his face level with your neck.
 
-"I want to be clear," you stressed as you both sat on the ground facing each other in this dream version of your living room. "I'm not the 'puppetmaster' or affiliated with him. But my understanding is that the thing that controls Kris is someone who *literally* sees the world as a game. Now, whether this puppermaster-- *puppetmaster*, god, English is hard sometimes- whether he's pulling their strings as well, I don't know. But... well, I saw what you saw. Y'know, when I was you." You leaned in, resting a hand on his shoulder. "People speaking to me, whose words I saw on the edge of my vision. The same words telling me I restored HP when I ate. The everpresent feeling of being watched from all angles, whenever Kris was around with those red eyes..."
+"I want to be clear," you stressed as you both sat on the ground facing each other in this dream version of your living room. "I'm not the 'puppetmaster' or affiliated with him. But my understanding is that the thing that controls Kris is someone who *literally* sees the world as a game, a program. Now, whether this puppermaster-- *puppetmaster*, god, English is hard sometimes- whether he's pulling their strings as well, I don't know. But... well, I saw what you saw. Y'know, when I was you." You leaned in, resting a hand on his shoulder. "People speaking to me, whose words I saw on the edge of my vision. The same words telling me I restored HP when I ate. The everpresent feeling of being watched from all angles, whenever Kris was around with those red eyes..."
 
 "I *understand* how you must have felt. The bastard was *right*, and nobody else saw it." You sighed, muttered "ah, fuck it", and embraced him. "And from the sounds of things, now we are rid of all that. So if we are sticking together, where does that leave us?"
 

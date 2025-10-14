@@ -10,7 +10,7 @@ The penguin only smiled warmly at her, and pulled her into a hug. "I'm so proud 
 
 "Is this the young child you've told me so much about?" Toriel looked upon the scene with warmth in her eyes and a fond smile on her muzzle. "It is a pleasure to meet you, my children. You may call me Toriel, and these are our friends. You will be safe here," she added, raising a paw to her chest, where her heart would be.
 
-"hey tori," Sans greeted casually from her right, and she turned to face the skeleton, with Frisk next to him. "the kid got a bit spooked earlier. i think they're doing better, but they could use some comfort this sack of bones just isn't equipped with." He let out a soft chuckle.
+"hey tori," Sans greeted casually from her right, and she turned in her seat to face the skeleton, with Frisk next to him. "the kid got a bit spooked earlier. i think they're doing better, but they could use some comfort this sack of bones just isn't equipped with." He let out a soft chuckle.
 
 "Aww, my poor child." Toriel patted her lap, and adjusted herself on the seat as Frisk made themselves comfortable with their adoptive mom. "You didn't leave them all *bonely* on the street, did you?"
 
@@ -50,7 +50,7 @@ After speaking to Alphys for a bit, Beanie Sans eyed the goat monster, seemed to
 
 Toriel glanced toward him, noticed him fidgeting slightly, keeping his hands clasped together. Did her Sans do that too? She couldn't remember. "Have... things been tough?"
 
-"heh. you could say that. it's been better since i ended up with the kids, but..." Sans sighed. "i do kinda miss the way things were, the old routine. not being in the underground, i mean. just how... domestic everything was in our lives." He looked up towards her. "...i missed hearing your voice, tori."
+"heh. you could say that. it's been better since i ended up with the kids, but..." Sans sighed. "i do kinda miss the way things were, the old routine. not being in the underground, i mean. just how... domestic, how routine everything was in our lives." He looked up towards her. "...i missed hearing your voice, tori."
 
 Toriel's knitting slowed, then stopped entirely. What had he been through? She noticed Alphys still watching him, even as the new children beckoned Frisk away to show them a strange device they had procured.
 

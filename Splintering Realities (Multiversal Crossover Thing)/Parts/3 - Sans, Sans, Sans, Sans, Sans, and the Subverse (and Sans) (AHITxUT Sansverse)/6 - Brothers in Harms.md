@@ -36,4 +36,6 @@ Nightmare paused. He leaned in over the booth. "Are you *falling down*, brother?
 
 Nightmare raised his eyes to meet his brother's, examining him. "...Heh," he finally said. "That's so like you. I'm not surprised - not even death can truly keep you down."
 
-"You should come with me," the gold skeleton blurted out. "I mean - we don't have to be guardians... not the same way we were. But they're going to need all the help they can get.
+"You should come with me," the gold skeleton blurted out. "I mean - we don't have to be guardians... not the same way we were. But they're going to need all the help they can get. This... arms race to prevent Moonjumper from erasing everything... maybe we can help, tip the scales in our favour."
+
+Nightmare thought on this. "...I suppose if anything, it would be nice to be the one to take down this threat."

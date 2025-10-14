@@ -12,6 +12,8 @@ It burst into energy, dissipating around her.
 
 And she was stuck here, in this... whereever this forest was.
 
+At least the sky is nice and clear.
+
 She unshifted from her swim form, her trajectory now setting her up for a rough awkward landing on the hill below.
 
 She hit the ground hard, crumpling and bouncing hard on the grass until she came to a stop at the base of the hill.
@@ -26,7 +28,11 @@ As the ringing in her ears from the impact subsided, she became aware of a quiet
 
 Slowly, Lily opened her eyes, turning her head to find the source of the voice...
 
-Her eyes eventually landing on what looked like a sheet ghost a few meters away, floating over from the treeline. It froze in place as she looked at it, breathing quickly, but it seemed to force itself to calm down and approach her. "this... this looks really bad... um... don't... don't try to move too much... i'll... go get some help, okay...?"
+Her eyes eventually landing on what looked like a sheet ghost a few meters away, floating over from the treeline.
+
+Any doubt she has that this was just a kid messing with her faded when she noted it *was* translucent.
+
+It froze in place as she looked at it, breathing quickly, but it seemed to force itself to calm down and approach her. "this... this looks really bad... um... don't... don't try to move too much... i'll... go get some help, okay...?"
 
 The ghost faded away.
 
@@ -88,13 +94,13 @@ Humans.
 
 Just... walking around. Like they weren't twelve thousand years dead. 
 
-Lily yanked her hand back from the other creature with a terrified squeak, suddenly in a fight-or-flight mode. The other whirled around with a 'what in the hell' as the inkling scrambled first behind the shark/piranha creature, then into a nearby alley, hiding behind a dumpster.
+Lily yanked her hand back from the other creature with a terrified squeak, suddenly in a fight-or-flight mode. The other whirled around with a 'what in the hell' as the inkling scrambled first behind the shark/piranha creature who was leading her, then into a nearby alley, hiding behind a dumpster.
 
 The taller quickly found them again, holding two small gun-lile weapons close to their chest. They quickly became concerned. "The hell's going on, punk?!"
 
 "What do you mean, 'the hell is going on'?!" Lily snapped. "Humans have been dead for 12,000 years, why in the fuck are they just walking around like nothing happened?!"
 
-"Wh--?? We haven't even been underground for a *thousand* years, what do you mean humans are--??" The taller's eyes went wide, then her whole expression scrunched up like she was thinking hard.
+"Wh--?? We hadn't even been underground for a *thousand* years, what do you mean humans are--??" The taller's eyes went wide, then her whole expression scrunched up like she was thinking hard.
 
 As Lily watched, her companion's eyes went wide again, and her face seemed to soften, and she seemed to take in the inkling anew.
 
@@ -102,7 +108,7 @@ As Lily watched, her companion's eyes went wide again, and her face seemed to so
  
  Lily blinked. "...What."
  
-"You know! The ones where the heroine is living a normal life and then she dies and appears in a fantasy world to find their TRUE PURPOSE!" She punched her fist into the air. "...Except... the way you look, with your hi-tech lookin' gear, I guess the opposite kinda happened, huh."
+"You know! The ones where the heroine is living a normal life and then she dies and appears in a fantasy world to find their TRUE PURPOSE!" She stood, and punched her fist into the air in exaggeration. "You look like one of those! What does she call 'em... eee... Isekai! Yeah! ...Except... the way you look, with your hi-tech lookin' gear, I guess maybe the opposite kinda happened, huh."
 
 Lily stared, blankly as she took this in. Slowly she blinked, and focused on her companion. "Then... if that's true, just... where am I? ... can I find a way back?"
 
@@ -110,9 +116,15 @@ The other sighed. "I dunno, punk, but we're not gonna leave you to just fend for
 
 Lily sighed, and used Undyne's hand to pull herself up. "Thanks. Lily Sunden, Agent 5 of the New Squidbeak Splatoon."
 
+"Nice. You look like a soldier of some kind."
+
+"...In a way I suppose I am. We protect our city, Inkopolis, from threats to the public wellbeing. More... behind the scenes though. If we do our job right, it's like nothing ever happened."
+
 ----
 
-Having calmed Lily down, Undyne quickly moved her through the city. Lily felt weird moving around humans again after so long, and yet in her new form nobody looked at her like an abomination. It wasn't just humans she saw on the streets though - there were many 'monsters' casually wandering through as well, of all kinds. Some were more 'humanoid' like herself and Undyne, and some were more animal, like a turtle walking around on four legs with a... rubber duck in a tub thing for a shell? They were all so vibrant and colourful and varied in such a way that the inkling felt they had, somewhere along the way, stepped into something more magical than the 'reality' they had lived for so long. 
+Having calmed Lily down, Undyne quickly moved her through the city.
+
+Lily felt weird moving around humans again after so long, and yet in her new form nobody looked at her like an abomination. It wasn't just humans she saw on the streets though - there were many 'monsters' casually wandering through as well, of all kinds. Some were more 'humanoid' like herself and Undyne, and some were more animal, like a turtle walking around on four legs with a... rubber duck in a tub thing for a shell? They were all so vibrant and colourful and varied in such a way that the inkling felt they had, somewhere along the way, stepped into something more magical than the 'reality' they had lived for so long. 
 
 As they passed a pub, Lily caught a sight of something on fire in the windows-- wait, when she focused she could see it was a *person* on fire behind the counter. In a sharp suit that somehow kept the flames at bay? "So uh... magic, huh?" she murmured. 
 
@@ -120,7 +132,7 @@ Undyne heard her, and grinned. "Yep! Monsters are all sorts, but the one thing w
 
 "That explains all the varied appearances," she told the guard. "Never seen anything like it."
 
-Eventually she was ushered into an apartment building, Undyne handling the keycard, and in the common space she guided the inkling to a massive corner couch, where she joined (paling slightly) a sentient skeleton in a hoodie laying across some of the opposite side, and a sunflower *thing* in a pot on a table closer to you. Both were focused on the television sitting against the opposing corner of the room, though they eyed Lily as Undyne guided her to sit. 
+Eventually she was ushered into an apartment building, Undyne handling the keycard, and in the common space she guided the inkling to a massive corner couch, where she joined (paling slightly) a sentient skeleton in a hoodie laying across some of the opposite side, and a sunflower *thing* in a pot on a table closer to the inkling. Both were focused on the television sitting against the opposing corner of the room, though they eyed Lily as Undyne guided her to sit. 
 
 "Alright Lily, you hold tight. Tori will have your shoulder fixed up good as new! Just gotta find her." She turned to the skeleton. "She's not left or anything, has she?"
 
@@ -128,7 +140,7 @@ Eventually she was ushered into an apartment building, Undyne handling the keyca
 
 "UUUUGH," was the flower's response on Lily's right. 
 
-"too easy. yeah, I think she's still reading, cap."
+"too easy. yeah, I think she's still reading with frisk, cap."
 
 "Great. Make sure this one stays put while I get her." Then Undyne walked off, and up some stairs leading into the apartments.
 
