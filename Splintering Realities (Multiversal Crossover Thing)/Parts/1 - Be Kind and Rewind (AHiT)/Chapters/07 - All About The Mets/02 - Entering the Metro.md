@@ -22,7 +22,7 @@ The Mafia Town Station was a small platform built under the town, with a window 
 To her left was a signpost, seemingly left by a Metro authority. Half of it was written in the cat language, but underneath was seemingly an English translation:
 
 ```
-Due to actions of the Mafia Town authorities,
+Due to actions of Mafia Town authorities,
 No trains stop automatically at this station.
 
 To board from this station, please use the
@@ -51,7 +51,7 @@ The two headed into the dark tunnels, a few minutes behind. In lieu of her umbre
 
 "Because fuck anyone who wants to visit, I guess. Uh-" Mu's eyes widened as she realised she had again sworn, but the Kid simply shrugged. Still... "Er, sorry. Guess you'll have to get used to me speaking my mind now and then."
 
-"I'd be more concerned if you didn't." She turned back toward the darkness. "Is there anything else down here that's interesting?"
+"I'd be more concerned if you didn't." She shrugged and turned back toward the darkness. "Is there anything else down here that's interesting?"
 
 "Besides the station? Uhh..." Mu rested a hand on her chin as she thought. "Well, I remember there used to be a market once a weekend down here, along one of these corridors. Specifically for the travellers, y'know? But obviously that died out when the Mafia invaded and blocked up any entrances."
 

@@ -112,7 +112,7 @@ They choked out something.
 
 "H-help me... Please..."
 
-"frisk?!" Sans' eyelights bulged and he blinked to the far end of the hall, opting to take a grander look at the scene.
+"frisk?!" Sans' eyelights bulged and he blinked away to the far end of the hall, opting to take a grander look at the scene.
 
 Frisk shambled around to face him. It again looked very... something about it disturbed the skeleton. And for just a moment...
 
@@ -126,13 +126,13 @@ But something beat him to it.
 
 From the darkness beyond the hall, a powerful beam of light, not unlike one of his own Blasters, struck something above Frisk.
 
-He caught a glimpse of - was that Chara? - disintegrating in the heat and power of the blast, and Frisk's strings were cut loose. They collapsed to the ground, and with a trembling hand tossed the blade away.
+He caught a glimpse of - was that Chara? - disintegrating in the heat and power of the blast, and Frisk's strings were burned away. They collapsed to the ground, and with a trembling hand tossed the blade away from themselves.
 
 The blast died out, and Sans wanted to see who had fired... but first he warped to Frisk, carefully checking them over. They were trembling, and when he carefully turned their head, they were still crying, but they gave him a soft, genuine smile. "T-thank you..."
 
 "Interesting," mused a voice from the dark, where the blaster had come from.
 
-Sans and Frisk both flinched. The skeleton helped the human to their feet, noting that they seemed... 'normal' now, for whatever definition of normal they had in their unique situation. They both turned to face the darkness. "and just what is so interesting?"
+Sans and Frisk both flinched. The skeleton helped the human to their feet, noting that they seemed... 'normal' now, for whatever definition of normal they had in their unique situation. They both turned to face the darkness. "and just what about that is so interesting?"
 
 A shape strode from the darkness into the light, and as it did the darkness engulfing the entrance to Asgore's throne room seemed to fade. It was a skeleton - another Sans. But the clothes and the *mass* that made up this one's tentacles, that matched those mixed throughout the dust in the study they had seen - was enough of an indicator of who they were talking with.
 
@@ -142,9 +142,9 @@ A shape strode from the darkness into the light, and as it did the darkness engu
 
 Frisk carefully nodded. "...You're real, Sans?"
 
-"yeah i am kid. you're okay now." He glanced back at the other entity in the room. "and you must be nightmare. right? do we have you to thank for all that?"
+"yeah. i'm the real deal kid. you're okay now." He glanced back at the other entity in the room. "and you must be nightmare. right? do we have you to thank for all that?"
 
-"*That* display was all you, I'm afraid." Nightmare smirked toward them. "I may have pushed things slightly to allow myself to manifest here, but, well. You would be surprised... or perhaps not, to learn just how many of your doppelgangers have poor memories of this exact room."
+"*That* display was all you, I'm afraid." Nightmare smirked. "All I have done is intervene to dispose of your nightmare, so we can have this little... chat. I may have pushed things slightly to allow myself to manifest here, but, well. You would be surprised... or perhaps not, to learn just how many of your doppelgangers have poor memories of this exact room."
 
 ----
 
