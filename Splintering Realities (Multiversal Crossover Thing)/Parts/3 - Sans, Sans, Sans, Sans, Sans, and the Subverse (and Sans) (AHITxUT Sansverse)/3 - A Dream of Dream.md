@@ -144,7 +144,7 @@ Frisk carefully nodded. "...You're real, Sans?"
 
 "yeah. i'm the real deal kid. you're okay now." He glanced back at the other entity in the room. "and you must be nightmare. right? do we have you to thank for all that?"
 
-"*That* display was all you, I'm afraid." Nightmare smirked. "All I have done is intervene to dispose of your nightmare, so we can have this little... chat. I may have pushed things slightly to allow myself to manifest here, but, well. You would be surprised... or perhaps not, to learn just how many of your doppelgangers have poor memories of this exact room."
+"*That* display was all you, I'm afraid." Nightmare smirked. "All I have done is intervene to dispose of your nightmare, so we can have this little... chat. I may have pushed things slightly to allow myself to manifest here, but, well. You would be surprised... or perhaps not, to learn just how many of your doppelgangers have bad memories of this exact room."
 
 ----
 

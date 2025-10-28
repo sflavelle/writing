@@ -125,7 +125,7 @@ Your expression sank.
 
 "Oh, shit." You bit your lip. "I... can understand why he wouldn't be happy with them then."
 
-She nodded. "But you're not from the surface, are you? Not our surface. ...If... you'd let me learn about you, and do some tests... I could make a case for an exception for you. You... seem nice enough. O-or at least, you haven't tried to kill me." She awkwardly chuckled, trying to lighten the mood.
+She nodded. "But... you're not *from* the surface, are you? Not our surface. ...If... you'd let me learn about you, and do some tests... I could make a case for an exception for you. Not being a surface human. You... seem nice enough. O-or at least, you haven't tried to kill me." She awkwardly chuckled, trying to lighten the mood.
 
 You responded to the latter remark with a raised eyebrow. "Well... let me know what I can do to help you, I suppose. Uh - short of giving my life, of course." You had to at least return Alphys' awkward light-making joke.
 
@@ -217,7 +217,7 @@ You made to return to your work, but she interrupted you, again moving your head
 
 "The human!" She spat with venom. "The one Asgore told me was hiding at the labs?!"
 
-"Huh? He-- whuh? He knows? Already? How did-- Alphys. Right." You raised an eyebrow, and straightened up, accepting that this monster wouldn't let you just return to your project. "I mean, I understand I shouldn't be here, knew there were decisions he'd have to make, but--"
+"Huh? He-- whuh? He knows? Already? How did-- Alphys. Right." It seemed that the scientist was probably still obligated to report your existence to Asgore, and he, in response, sent Undyne down. You'd *try* not to hold that against her. You straightened up, accepting that this monster wouldn't let you just return to your project. "I mean, I understand I shouldn't be here, knew there were decisions he'd have to make, but--"
 
 "Listen up, punk." She pressed into your personal space, trapping you against the bench. "I don't know how the hell you got down here, past the guards, disguised yourself and brainwashed Alphys with your human mind-control--"
 
@@ -241,10 +241,10 @@ Alphys flinched back and fumbled the screwdriver she was using to reattach Metta
 
 "Okay where the fuck is this mind control claim coming from," you grumbled as you appeared in the doorway, eyeing the fish monster - Undyne - warily. "If they can *actually* do that here, I'm sorry to hear that, but where I come from they absolutely fucking cannot."
 
-"Oh we *know*," Undyne grinned. "We've seen your human history books! The ones where you put other humans under a spell and make them do weird things for you!"
+"Oh we *know* you can," Undyne grinned. "We've seen your human history books! The ones where you put other humans under a spell and make them do weird things for you!"
 
 You *sputtered*, barely managing not to spit-take. Alphys, for her part, managed to look horrified at the information being volunteered. "What?!" you cried out once you had caught yourself. "Are... holy shit... are these the same as the 'history tapes' you were talking to me about earlier, Alphys?"
 
 "Umm..." The lizard slowly shaped her expression into a sheepish smile. "M-maybe...?"
 
-Your head went into your hands. The fish monster that wanted your soul is basing her knowledge on humans from adult graphic novels. "Perhaps," you choked out, embarrassed, "don't take your human knowledge from porn. Please."
+Your head went into your hands. The fish monster that wanted your soul is basing her knowledge on humans from adult graphic novels. "You..." you choked out, embarrassed, "you know doujins and hentai aren't real, right?"

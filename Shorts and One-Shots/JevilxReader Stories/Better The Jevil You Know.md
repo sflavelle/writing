@@ -198,7 +198,7 @@ He looks at you with a curious expression. "I wouldst normally need to asketh th
 
 "Ah. Theocracy, huh? Fair. Can't say I didn't try--"
 
-"Howevereth, the King of Spades is currently indisposed." With a sly smile, he steps aside, allowing you to exit. "Therefore, the decision is mineth to make. I will allow this of thee."
+"Howevereth, the King of Spades is currently indisposed." With a sly smile, he steps aside, allowing you to exit. "Therefore, the decision is mineth to make. I shalt allow this of thee."
 
 Your jaw opens, and you gape at him. "That's... putting a lot of trust in me." You carefully bow. "I'll remember this. Thank you."
 
@@ -256,7 +256,7 @@ Well, it was something.
 
 You admittedly appreciated the plain black cowl for warmth, though. 
 
-Despite discovering that you look like some kind of devil doll, and those in the Castle who had witnessed Jevil's downfall turning to run whenever they crossed paths with you, you found you didn't mind the body so much. 
+Despite discovering that you look like some kind of devil doll, and those in the Castle who had witnessed Jevil's downfall turning to run whenever they crossed paths with you, you found you didn't mind the body so much. You missed yours of course, but... this would do.
 
 No, your desire was to learn magic. Having grown up in a world without it, and the constant hum of energy coursing through your body left you wanting an outlet, wanting to experiment.
 
@@ -316,7 +316,7 @@ Seam nodded in return, and stood back to allow you to bring out your soul.
 
 ... Which you didn't know how to do. Something that the magician himself seemed to realise after a moment. "Ah - my apologies, it appears I must teach you. I should not be surprised... most monsters or humans nowadays have forgotten about the nature of one's soul."
 
-He guided you through the process of manifesting your soul - apparently most easily accomplished (outside of battle) through physical gestures around the chest. Eventually you felt a tugging sensation as something pushed against the inside of your chest before seeming to just... slip through. 
+He guided you through the process of manifesting your soul - apparently most easily accomplished (outside of battle) through physical gestures around the chest. Eventually you felt a strange tugging sensation as something pushed against the inside of your chest before seeming to just... slip through. 
 
 And then... there it was. 
 
@@ -334,7 +334,7 @@ He nodded, smiling warmly. "Soul magic is a complicated business, but the trait 
 
 "I would not necessarily think about it in that light," was the magician's response. "You may have suffered many hardships in your journey through life... perhaps there is an ultimate goal you are pursuing, and though you may be beaten down, you are *persisting*, *not giving up*. I believe perseverance is best characterised as knowing that, no matter what life throws in your path, no matter how long it will take, ultimately you will reach your destination, because *you will never truly give up*."
 
-"Perhaps think about it this way," he continued. "You have been thrown into a situation where you inhabit the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him."
+"Perhaps think about it in the context of your current situation," he continued. "You have been thrown into the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him."
 
 ----
 
@@ -516,6 +516,8 @@ Very faint shapes of something massive, something ominous, loomed over the three
 
 Was *this* the entity pulling the strings here? The one orchestrating this spread of darkness, bleeding realities together?
 
+**[THIS IS AN UNNECESSARY DISTRACTION, ANGEL.]**
+
 **[YOUR CONNECTION TO THIS WORLD IS TEMPORARY.]**
 
 **[PROLONGING IT BY INDULGING IN THESE FANTASIES WILL NOT BE TOLERATED.]**
@@ -532,7 +534,7 @@ In a flash, Jevil's scythe once again appeared in the Vessel's hand.
 
 Slowly, silently, Kris, the Vessel, turned toward you.
 
-"Kris."
+"Kris," you began.
 
 He took one step toward you.
 
@@ -543,6 +545,8 @@ And another.
 You tried to take a step back - but you couldn't move. 
 
 Something was controlling you, keeping you in place. 
+
+You felt the full weight of the puppetmaster's hold on you.
 
 You could only watch in growing terror as the Player approached.
 
