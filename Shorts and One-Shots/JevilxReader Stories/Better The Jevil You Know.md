@@ -298,7 +298,7 @@ Seam stared at the figure of his (not) old friend, noticing again how differentl
 
 "...Oh!" You looked over your guest. He was quite a bit taller than you, robes covering most of his body, and patches and repairs littering his form. Even one of his eyes had been replaced with an old clothes button at one point. You could see immediately that Seam had lived a long life so far, and was well looked after. "You must be the former court magician, then. Seam, right? It's a pleasure to meet you, thanks for seeing me." You stepped back from the door to allow him in.
 
-He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, and of course I read the message you had left for me, but it's... something else to see it with my own eyes... You truly are not my old friend in there, are you?"
+"You will find it is pronounced 'Shawm'," the plush magician corrected. *Like 'Shaun'*, you noted to yourself. He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, and of course I read the message you had left for me, but it's... something else to see it with my own eyes... You truly are not my old friend in there, are you?"
 
 Your eyes dropped, half-lidded, and you felt a strange sense of guilt as your eyes averted his. "I-I'm sorry."
 
@@ -308,7 +308,7 @@ Another breath. "Y/N... would you allow me to examine your soul?"
 
 Ah.
 
-Well, you hadn't seen your own soul yet... and if it would help to understand things?
+Well, you hadn't seen your own soul yet... and if it would help to understand things? Ralsei had seemed to understand you after checking your soul, way back when...
 
 You nodded. "Please, do what you must."
 
@@ -332,9 +332,13 @@ He nodded, smiling warmly. "Soul magic is a complicated business, but the trait 
 
 "..." You couldn't help but feel a touch disappointed. "Sooo ... just the fact that I've put up with a lot of bullshit happening in my life, that's now the core aspect of what I am?"
 
-"I would not necessarily think about it in that light," was the magician's response. "You may have suffered many hardships in your journey through life... perhaps there is an ultimate goal you are pursuing, and though you may be beaten down, you are *persisting*, *not giving up*. I believe perseverance is best characterised as knowing that, no matter what life throws in your path, no matter how long it will take, ultimately you will reach your destination, because *you will never truly give up*."
+"I would not necessarily think about it in that light," was the magician's response, resting a paw on your shoulder. "You may have suffered many hardships in your journey through life... perhaps there is an ultimate goal you are pursuing, and though you may be beaten down, you are *persisting*, *not giving up*. I believe perseverance is best characterised as knowing that, no matter what life throws in your path, no matter how long it will take, ultimately you will reach your destination, because *you will never truly give up*. You may pause, you may temporarily abandon the task, but you *will* get there in the end. *That* is perseverance."
 
-"Perhaps think about it in the context of your current situation," he continued. "You have been thrown into the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him."
+He guided you to the table to one side of your room, and you both took a seat. "Perhaps think about it in the context of your current situation," he continued. "You have been thrown into the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him. That you are someone capable of being trusted."
+
+You nodded, taking in his words. "I mean... I'm doing what I'm doing not out of any sense of duty to him. More out of a sense of wringing some normality and comfort out of the lot I've been given..."
+
+"And that is just fine," Seam emphasised. "We are allowed to do good things for reasons one might consider selfish, ha ha..."
 
 ----
 
@@ -608,6 +612,8 @@ You crossed your arms, frowning. "...Well, you got me, I'm a sucker. So why are 
 
 A gentle claw brushed over your head, but Jevil didn't answer immediately. His smile dimmed slightly as he decided how best to answer your query. "...The puppetmaster... He was the one to reveal the nature of our world to me, the nature of the game we were all pawns in. And while, yes yes, perhaps my sanity has been damaged by the revelation, in my cell I truly was free, free from the puppet master's strings!"
 
+Just who *was* The 'puppetmaster' he kept referring to? You began to ponder this as he continued
+
 He held you more gently, cradling you in his palm while continuing his idle petting. "But playing with Kris, struggling with his own control... And then seeing you, attempting to build a new life for me - I could see you were kind, and curious, and I knew *he* would take notice eventually."
 
 He sighed, and smiled wistfully. "I had hoped to save us both in a much less painful manner, but once he forced Kris's possessor to take action, I had to work quickly to get us both out of there... And now... we truly are both free from those strings that bound us!" He lit up once more, and Jevil pressed you against his chest with both hands.
@@ -615,6 +621,8 @@ He sighed, and smiled wistfully. "I had hoped to save us both in a much less pai
 He was soft, warm; the velvet of his outfit brushing lightly against your exposed skin. The lack of a heartbeat was strange and not something you had really noticed when you had been in his body, but this was also a dream, so you weren't sure if that was real or not. You relaxed into him, wondering whether monster souls had a heartbeat. Why would they?
 
 You shook your head to loosen the thought from your mind. It wasn't important right now. "That.. makes a bit of sense, but doesn't quite answer my question. You coulda left me for-- Oh my god, I died," you said, cutting yourself off as the memory finally resurfaced of Kris, possessed, standing before you with a scythe you yourself wielded briefly.
+
+And of the massive figure of the black Void that commanded the Player, and the Knight that represented them... *that* must have been the 'puppetmaster'. The Angel, the Player was his agent, and yet not quite under his control.
 
 "*You*, your soul, is quite safe with me!" Jevil chirped up.
 

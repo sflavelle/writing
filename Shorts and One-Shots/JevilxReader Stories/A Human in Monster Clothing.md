@@ -109,7 +109,11 @@ Alphys snorted, despite the tense moment. After calming herself down and taking 
 
 "And then there was one day, I went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? I think he may be looking for somewhere for you both to stay."
 
-You were silent for a minute, processing what she told you as you finished eating. She had known for... some amount of time, that you were definitely human, and in fact that for a time you had been just a soul. In a world where - you recall vaguely - these monsters needed human souls to break free from the Underground, you were surprised that you were still here. Your eyebrows raised as you thought. Was it because of a threat of Jevil's power? Did Alphys feel some obligation that succeeded her own duty to the crown?
+You were silent for a minute, processing what she told you as you finished eating. She had known for... some amount of time, that you were definitely human, and in fact that for a time you had been just a soul. In a world where - you recall vaguely - these monsters needed human souls to break free from the Underground, you were surprised that you were still here. Your eyebrows raised as you thought. Alphys - and apparently Mettaton - could have easily decided to just take your soul and put it towards the barrier. But here you were. Why? Was it because of a threat of Jevil's power? Did Alphys feel some obligation that succeeded her own duty to the crown?
+
+Come to think of it, there was a gap of time between your death at the hands of the Angel's Vessel and when you began to dream again. Could it be that gaining a body was what triggered your return to awareness, your return to the waking world?
+
+Something to ask Jevil when you next saw him.
 
 You finished off your noodle cup, and set it aside. "...Right," you finally said, fixing your gaze on her. "But I take it my presence isn't exactly... ideal." You spoke vaguely, since you were at least aware that you weren't *supposed* to be aware of certain things here yet.
 
