@@ -259,7 +259,7 @@ Your head went into your hands. The fish monster that wanted your soul is basing
 
 Undyne's fierce expression flickered for a moment. "Wait. Alphy, you said those books were real."
 
-"I thought they were at the time!!" Wow, you didn't know a lizard monster could blush as hard as Alphys was, but she was sure proving you wrong. Perhaps a fact of monsters being made of magic. "I mean, I thought maybe it was like secret human knowledge being passed around and that's why it looked so different??"
+"I thought they were at the time!!" Wow, you didn't know a lizard monster could blush as hard as Alphys was, but she was sure proving you wrong. Perhaps a fact of monsters being made of magic. "I mean, I thought maybe it was like secret human knowledge being passed around because it's not like they talk about magic in their other history books and that's why it looked so different??"
 
 "BUT," Alphys turned to you, "Mew Mew Kissy Cutie is *NOT* hentai! It's just not! I-It's a legitimate magical girl anime with a real story, and it's *WAY* better than Mew Mew 2!"
 
@@ -279,4 +279,4 @@ And then, to seal the sudden spike of horror that put your very soul on edge, a 
 
 "Howdy Alphys! Are you around?"
 
-"Over this way, Fluffybuns!" Undyne called out, grabbing your shoulder and holding firmly, keeping you from escaping. She pulled you to the side as Alphys squeaked, quickly made sure that Mettaton was functional before pushing past to exit the examination room, muttering something about making tea.
+"Over this way, Fluffybuns!" Undyne called out, grabbing your shoulder and holding firmly, keeping you from escaping. She pulled you to the side as Alphys squeaked, quickly making sure that Mettaton was fully functional before pushing past to exit the examination room, muttering something about making tea.
