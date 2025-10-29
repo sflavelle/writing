@@ -84,7 +84,7 @@ Your eyes widen. *You know these three.*
 
 Kris, Susie, and... Ralsei, was it? They're characters from that one game... Undergame. Or something. Undertale? No, the newer one. Uhhh... it'll come to you eventually.
 
-Okay, that explains Blue Guy.
+Okay, that explains Blue Guy. They're all, bar Kris, monsters. These three were Lightners (even if Ralsei was a Darkner, but the difference was escaping you at the moment).
 
 You take in their details, and note how Susie scowls at you, shifting her grip on the battle axe resting against her shoulder. How Kris seems to just examine you silently, his eyes hidden beneath his bangs. How Ralsei's eyes carefully scan your body.
 
@@ -198,7 +198,7 @@ He looks at you with a curious expression. "I wouldst normally need to asketh th
 
 "Ah. Theocracy, huh? Fair. Can't say I didn't try--"
 
-"Howevereth, the King of Spades is currently indisposed." With a sly smile, he steps aside, allowing you to exit. "Therefore, the decision is mineth to make. I shalt allow this of thee."
+"Howevereth, the King of Spades is currently indisposed, having been defeated in battle." With a sly smile, he steps aside, allowing you to exit. "Therefore, the decision is mineth to make. I shalt allow this of thee."
 
 Your jaw opens, and you gape at him. "That's... putting a lot of trust in me." You carefully bow. "I'll remember this. Thank you."
 
@@ -270,7 +270,7 @@ In speaking to Ralsei one day, you find out that there is one Darkner in the kin
 
 And so, that afternoon, you venture out into Castle Town, nodding toward the citizens you pass by. People are starting to adjust to your presence and your 'restored sanity', and some creatures actually wave back at you - something that delights you.
 
-It's a busy day today - it seems as if you are catching the tail end of a market day, as various darkners are running around catching the last deals of the day, as some stalls are already packing up.
+It's a busy day today - it seems as if you are catching the tail end of a market day, as various darkner monsters are running around catching the last deals of the day, as some stalls are already packing up.
 
 Your destination though is the shop tent which is setup all year round. It's owner, supposedly, knew the jester even before whatever led to his imprisonment, and Ralsei mentioned him being a magician as well, so perhaps he might be able to help you even now?
 
@@ -328,7 +328,7 @@ Seam hummed in approval. "Well done. I should not be surprised that you possess 
 
 You blinked, and looked up at him. "You can... tell that?"
 
-He nodded, smiling warmly. "Soul magic is a complicated business, but the trait that determines a soul's colour is quite simple. You may be guided by one or more core principles, but you could say that the one that colours your soul is your 'primary' trait."
+He nodded, smiling warmly. "Soul magic is a complicated business, after all, it is magic that forms our very vessels, ha ha... but the trait that determines a human soul's colour is quite simple. You may be guided by one or more core principles, but you could say that the one that colours your soul is your 'primary' trait."
 
 "..." You couldn't help but feel a touch disappointed. "Sooo ... just the fact that I've put up with a lot of bullshit happening in my life, that's now the core aspect of what I am?"
 

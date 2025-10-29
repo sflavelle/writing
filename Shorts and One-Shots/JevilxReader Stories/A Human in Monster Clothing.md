@@ -139,7 +139,7 @@ She nodded, and smiled lightly.
 
 And so, you allowed yourself to be examined for the rest of the day. Alphys was thorough with her work - examining your soul's condition, noting its prominent Perseverance trait, followed by gentle CHECKs and probes to determine your statistics.
 
-Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic, but *darkness* - something close to, but not quite Void. You had to remind yourself that it was because it was Ralsei the Prince of Darkness that had created this vessel to hold your soul.
+Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic like other monsters, but *darkness* - something close to, but not quite Void. You had to remind yourself that it was because it was Ralsei the Prince of Darkness that had created this vessel to hold your soul.
 
 It was veins *within* the dark vessel that carried the magic through the body and protected the soul. Your magical link with Jevil was also found in this examination - a pool of magical energy that ebbed and flowed gently *around* your soul as your body used it, replenished from some unseen source.
 
