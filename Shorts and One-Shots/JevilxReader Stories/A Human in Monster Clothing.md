@@ -247,8 +247,36 @@ Alphys flinched back and fumbled the screwdriver she was using to reattach Metta
 
 "Oh we *know* you can," Undyne grinned. "We've seen your human history books! The ones where you put other humans under a spell and make them do weird things for you!"
 
-You *sputtered*, barely managing not to spit-take. Alphys, for her part, managed to look horrified at the information being volunteered. "What?!" you cried out once you had caught yourself. "Are... holy shit... are these the same as the 'history tapes' you were talking to me about earlier, Alphys?"
+You *sputtered*, barely managing not to spit-take. Alphys, for her part, managed to look horrified at the information being volunteered. Mettaton raised a hand to his panel, muttering 'ooh, how scandalous~'.
+
+"What?!" you cried out once you had caught yourself. "Are... holy shit... are these the same as the anime 'history tapes' you were talking to me about earlier, Alphys?"
 
 "Umm..." The lizard slowly shaped her expression into a sheepish smile. "M-maybe...?"
 
 Your head went into your hands. The fish monster that wanted your soul is basing her knowledge on humans from adult graphic novels. "You..." you choked out, embarrassed, "you know doujins and hentai aren't real, right?"
+
+"I-I mean!" Alphys interrupted, scandalised. "It's not *only* t-that stuff down here! It's not *my* fault that that's what made its way down here! We have other books here too! A whole library!"
+
+Undyne's fierce expression flickered for a moment. "Wait. Alphy, you said those books were real."
+
+"I thought they were at the time!!" Wow, you didn't know a lizard monster could blush as hard as Alphys was, but she was sure proving you wrong. Perhaps a fact of monsters being made of magic. "I mean, I thought maybe it was like secret human knowledge being passed around and that's why it looked so different??"
+
+"BUT," Alphys turned to you, "Mew Mew Kissy Cutie is *NOT* hentai! It's just not! I-It's a legitimate magical girl anime with a real story, and it's *WAY* better than Mew Mew 2!"
+
+"Whoa, I uh, wasn't debating that..." It looked like you'd stepped on a hot-button topic for her. "But, uh, okay, is there any mind control in *that* series?"
+
+"...uhhh... no? ...Well there is this one moment where the day's villain... but they specifically show it to not do anything so... no."
+
+You couldn't help the smirk at Undyne, who pushed you away, then crossed her arms. "Watch it, punk. You're still under watch."
+
+Alphys coughed gently to get Undyne's attention. "Should I, uh, assume that your arrival means Asgore wants to do this sooner rather than later?"
+
+"Yeah, he's on the way," the warrior responded casually. "Wants to get this out of the way."
+
+"Uhh?!" Were they really about to decide on your life *today*?!
+
+And then, to seal the sudden spike of horror that put your very soul on edge, a new voice echoed through the halls of the lab.
+
+"Howdy Alphys! Are you around?"
+
+"Over this way, Fluffybuns!" Undyne called out, grabbing your shoulder and holding firmly, keeping you from escaping. She pulled you to the side as Alphys squeaked, quickly made sure that Mettaton was functional before pushing past to exit the examination room, muttering something about making tea.
