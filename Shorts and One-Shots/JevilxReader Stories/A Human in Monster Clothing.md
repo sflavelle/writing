@@ -145,7 +145,7 @@ It was veins *within* the dark vessel that carried the magic through the body an
 
 Between discussions around the tests that she was doing, she also talked to you about *you* - talking about behaviors, interests (she got excited when you told her you were into computers). She cocked an eyebrow as you mentioned that you had an intellectual disorder, then interrupted you while you were mentioning your difficulty understanding body language and your brain being wired up slightly differently to tell you that she had seen that in some monsters regularly. (Knowledge gained, monsters knew about autism.)
 
-While you and Alphys were in the midst of debating and debunking human behaviors from her 'history tapes' (more anime) you were interrupted by the doors into the lab slamming open dramatically, followed by a new voice.
+While you and Alphys were in the midst of debating and debunking human behaviors from her 'history tapes' (mostly more anime) you were interrupted by the doors into the lab slamming open dramatically, followed by a new voice.
 
 "ALPHYS, DARLING~! I'M HERE FOR MY SCHEDULED MAINTENANCE!"
 
@@ -280,3 +280,28 @@ And then, to seal the sudden spike of horror that put your very soul on edge, a 
 "Howdy Alphys! Are you around?"
 
 "Over this way, Fluffybuns!" Undyne called out, grabbing your shoulder and holding firmly, keeping you from escaping. She pulled you to the side as Alphys squeaked, quickly making sure that Mettaton was fully functional before pushing past to exit the examination room, muttering something about making tea.
+
+And you... were internally panicking. Maybe it was just starting to click that you were in the deep end here, with no real support. Perhaps it was the knowledge that your death was all but certain... again.
+
+You forced yourself to take deep breaths. *Just think of it as like... a job interview*, you told yourself. *Just be on your best behaviour, answer their questions, and don't think too hard about it, and you'll come out the other side unscathed.*
+
+*... you hoped.*
+
+The gentle but heavy padding of feet grew louder before what could only be King Asgore turned the corner, appearing down the hall from the rear of the lab.
+
+And wow, was he massive. This was the first time you could think of where a monster was quite this tall. (There was, what Jevil referred to as 'the puppetmaster', but that seemed like by far an exception.) He was a goat monster (he vaguely gave you Ralsei vibes, if he was much older), dressed in a royal purple garb, with armour plates over his shoulders and chest and more fabric (and a cape) hanging from *that*. Though his face was fuzzy, a blonde goatee, beard and a head of hair adorned him, his horns poking through.
+
+Asgore seemed the image of someone who had lived long, and helped their people through much. 
+
+You took a few deep breaths, attempting to shove your fears down for now. Though he was armoured to some extent and he was clearly here for you, he did not seem aggressive or displeased or even annoyed to have to deal with you. Maybe that would come later... For now you would be polite. 
+
+"Well howdy, Captain!" Asgore greeted Undyne as he reached you both. "I'm surprised to see you here already. How was the journey?"
+
+Undyne flashed her sharp teeth in a grin. "Pretty good! Headed down as soon as I got your call. Wanted to be sure there wasn't any shenanigans going on. Alphys is just fixing up some golden flower tea, I think."
+
+"Now that sounds delightful," Asgore smiled, and then glanced down toward you. "I don't believe we've met, young one. You would be...?"
+
+Undyne's claws dug into your shoulder, but you shrugged it off as you stepped forward and took his hand, giving him a firm handshake. "I'm Y/N, sir. It's a pleasure to meet you. My understanding is you're here to see me?"
+
+"Y/N...?" The king's eyebrows rose, and he looked you over more carefully. Out of the corner of your vision, you saw Undyne raise both eyebrows, relaxing slightly as it seemed you weren't going to flee. "Ah, I see. Yes, Alphys has told me some general information about who you are, and I must admit I am terribly curious about, well, a lot of things..." He smiled warmly. "But I believe a good cup of tea would be the best place to start. Let us move to the living space."
+
