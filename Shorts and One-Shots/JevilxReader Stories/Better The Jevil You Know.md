@@ -338,7 +338,11 @@ He guided you to the table to one side of your room, and you both took a seat. "
 
 You nodded, taking in his words. "I mean... I'm doing what I'm doing not out of any sense of duty to him. More out of a sense of wringing some normality and comfort out of the lot I've been given..."
 
-"And that is just fine," Seam emphasised. "We are allowed to do good things for reasons one might consider selfish, ha ha..."
+"And that is just fine," Seam emphasised. "We are allowed to do good things for reasons one might consider selfish, ha ha..." He glanced away. "Why, just yesterday I had hidden from someone who needed my help, because I had thought it was... ahem... an old friend, gone mad. ...I apologise, Y/N, for not having the courage to meet you then."
+
+You raised an eyebrow, but nodded. Could you have done anything differently? It was possible that even if you had called ahead, you would have had the same response (or worse, if Seam had thought the *actual* Jevil was coming for him). "I... guess that gets to the crux of why I wanted to meet. Sure, I'm not letting his history define my present, but, well..." 
+
+Your eyes lowered. "...I want to learn what I can about this monster whose life I've usurped. Those who live here in the castle are hesitant to tell me much, refuse to even mention him, as if I've always been the one in this body, as if mentioning whatever changed him will drive me mad, too. I'm an adult, damn it... Trying to understand Jevil's history won't turn me into him. Er... more than things already have, ha..."
 
 ----
 
@@ -425,6 +429,10 @@ Barely thinking, you stumbled to your feet and approached the portal, the others
 This was an awful sight to see. You reached out slowly, with your clawed hands, to carefully close the human body's eyelids.
 
 And then, surrounded by your new monster friends (and Kris), you began to sob uncontrollably, mourning the death of your old life.
+
+----
+
+(In here would be some sort of scene about the protagonist's depression after witnessing their corpse, maybe some progress on their magic training after the emotional outburst earlier started to unlock the general usage of magic for them)
 
 ----
 
