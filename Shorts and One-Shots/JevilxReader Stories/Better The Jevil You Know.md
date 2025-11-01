@@ -118,6 +118,14 @@ Kris raises an eyebrow. Then he turns to Ralsei, who is approaching him.
 
 Ralsei takes the key, unlocks the cell door that has suddenly appeared between you, and steps in. You can do nothing but watch, as the three filter into the room, Blue Motherfucker deciding to stay back.
 
+There's a slight pause, as your visitors seem to expect something to happen - glancing about awkwardly at the plain cell. "Hey, uhhh - where's your thing?" Susie asks very eloquently.
+
+"...my *thing*," you deadpanned.
+
+"You know! The, the... merry-go-round thing! You had a whole thing going here! Now it's all boring."
+
+"I'm sorry to disappoint." You rolled your eyes, noticing Ralsei stepping closer.
+
 The healer lifts a hand, and you feel a ticklish sensation in your chest. You let out a huff, trying not to let it get to you as Ralsei does... whatever he needs to do, the other two protecting him from you.
 
 A few uncomfortable moments later, Ralsei's hand falls, the magic in your chest dissipating, and his eyes widen. "That's not Jevil's SOUL in there, Mr. Rules Card. That's... a human SOUL."
@@ -128,7 +136,7 @@ You note that the dialogue box you've been seeing spells his name as 'Rouxls Kaa
 
 God, *please* stop.
 
-"If I had to guess..." Ralsei paused, thinking. "Jevil may have cast a bodyswap spell to escape, somehow."
+"If I had to guess..." Ralsei paused, thinking. "Jevil could have cast a bodyswap spell to escape, somehow."
 
 What. Your eyes open wide. "So the guy who y'all think *I* am, is running around somewhere in *my* body?!" You scowl.
 
@@ -150,7 +158,7 @@ You hear a deep **thud**, one that reverberates through your body and --
 
 Your chains snap, instantly cleaved in two.
 
-Your eyes snap back open as you fall the 3 feet to the stony floor, your legs immediately buckling, and your arms searing with pain now that they aren't numb from being pulled upward for so long. You choke back a few deep breaths amidst a stream of curses, seeing the now broken chains around your wrists. "F-fuh... fuckin' hell... Nearly pissed myself, give a guy a fuckin' warning next time."
+Your eyes snap back open as you fall the 3 feet to the stony floor, your legs immediately buckling, and your arms searing with pain now that they aren't numb from being pulled upward for so long. You crumple down onto your hands and knees, choking back a few deep breaths amidst a stream of curses, seeing the now broken chains around your wrists. "F-fuh... fuckin' hell... Nearly pissed myself, give a guy a fuckin' warning next time."
 
 Susie allows herself a snort at the profanity sprouting from the chaos jester's mouth. "Okay, fine, yeah, that's not him. So if you're in *his* body, where's *your* body?"
 
@@ -188,7 +196,7 @@ Either Rouxls was being kind in ignoring your winces at his speech, or this happ
 
 It took you a moment to process what he just said, and your eyes shot up to his, narrowing. "What? I have this 'Jevil's magic? ...Why did you not tell them?"
 
-"I couldst nay get a word in," was his response, a soft smile on his features.
+"I couldst nay get a word in," was his response, a sly smile on his features.
 
 "Hah." You chuckle, and sigh. Slowly, lifting your hands up, you approach the cell door. You watch as Rouxls gives you some distance. "Well, if it ah, 'pleaseth thee'," you allow yourself a smirk, "would you have any issue with me tagging along for a bit, so I can at least see whereever it is I've ended up?"
 
@@ -258,17 +266,17 @@ You admittedly appreciated the plain black cowl for warmth, though.
 
 Despite discovering that you look like some kind of devil doll, and those in the Castle who had witnessed Jevil's downfall turning to run whenever they crossed paths with you, you found you didn't mind the body so much. You missed yours of course, but... this would do.
 
-No, your desire was to learn magic. Having grown up in a world without it, and the constant hum of energy coursing through your body left you wanting an outlet, wanting to experiment.
+No, your desire was to learn magic. Having grown up in a world without it, and the constant hum of energy coursing through your body left you wanting an outlet, wanting to experiment... wanting to harness this energy.
 
 Which is how you would find yourself in the archives for most of your free time, sat at a table quietly, a stack of history and theory books about magic by your side, and occasionally trying to figure out some basic spells - casting light, or healing, or something. 
 
-It wasn't working out yet, but you wanted to be able to do it at least once, even if it wasn't going to follow you once you were reunited with your own body.
+It wasn't working out yet - as it turned out, trying to learn techniques that were simply innate ability for monsters was a *lot* of trial and error... or almost entirely error in your case. Just because the body you currently inhabited was capable did not mean you immediately knew how to tap into that energy. But you kept at it - you wanted to be able to cast magic at least once, even if it wasn't going to follow you once you were reunited with your own body.
 
 ----
 
 In speaking to Ralsei one day, you find out that there is one Darkner in the kingdom who knows Jevil better than most. This interests you, as you have a picture of what Jevil was like up to and *after* his imprisonment, but not before. You had only vague ideas about his personality, his character before that point.
 
-And so, that afternoon, you venture out into Castle Town, nodding toward the citizens you pass by. People are starting to adjust to your presence and your 'restored sanity', and some creatures actually wave back at you - something that delights you.
+And so, that afternoon, you venture out of Card Castle into Castle Town, nodding toward the citizens you pass by. People are starting to adjust to your presence and your 'restored sanity', and some creatures actually wave back at you - something that delights you.
 
 It's a busy day today - it seems as if you are catching the tail end of a market day, as various darkner monsters are running around catching the last deals of the day, as some stalls are already packing up.
 
@@ -298,11 +306,11 @@ Seam stared at the figure of his (not) old friend, noticing again how differentl
 
 "...Oh!" You looked over your guest. He was quite a bit taller than you, robes covering most of his body, and patches and repairs littering his form. Even one of his eyes had been replaced with an old clothes button at one point. You could see immediately that Seam had lived a long life so far, and was well looked after. "You must be the former court magician, then. Seam, right? It's a pleasure to meet you, thanks for seeing me." You stepped back from the door to allow him in.
 
-"You will find it is pronounced 'Shawm'," the plush magician corrected. *Like 'Shaun'*, you noted to yourself. He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, and of course I read the message you had left for me, but it's... something else to see it with my own eyes... You truly are not my old friend in there, are you?"
+"You will find it is pronounced 'Shawm'," the plush magician gently corrected. *Like 'Shaun'*, you noted to yourself. He stepped inside your room carefully, and you could see that he was nervous, perhaps about being around you/Jevil? You were about to ask whether there was anything you could do to make him feel more at ease, but then you saw him approach you and, quite close to you, gently cup your cheeks in his *wonderfully soft* plush paws, tilting your head up to his. "The Duke spoke with me about your situation, and of course I read the message you had left for me, but it's... something else to see it with my own eyes... You truly are not my old friend in there, are you?"
 
 Your eyes dropped, half-lidded, and you felt a strange sense of guilt as your eyes averted his. "I-I'm sorry."
 
-"Do not be," Seam replied easily, squeezing your cheeks gently. "This was his decision, not your own. I just... admittedly find it rather difficult to accept." He let go of you, and you looked back toward him, seeing that he seemed to be struggling internally. Finally he took a breath and spoke. "I have... no right to be asking this of you. But I... feel that I must see with my own eyes. And perhaps an examination would... help me understand how to help *you* with some of the concerns you had brought up to me."
+"Do not be," Seam replied easily, squeezing your cheeks gently. "Trapping you in this form was his decision, not your own. I just... admittedly find it rather difficult to accept." He let go of you, and you looked back toward him, seeing that he seemed to be struggling internally. Finally he took a breath and spoke. "I have... no right to be asking this of you. But I... feel that I must see with my own eyes. And perhaps an examination would... help me understand how to help *you* with some of the concerns you had brought up to me."
 
 Another breath. "Y/N... would you allow me to examine your soul?"
 
@@ -322,7 +330,7 @@ And then... there it was.
 
 A purple cartoon heart gently pulsed before you, it's soft glow illuminating your open palms beneath it. 
 
-You shook. You were looking at the manifestation of everything that you were. 
+You shook, in awe and wonder and yet also slightly fearful. You were looking at the manifestation of everything that you were - it was an amazing sight, and a little terrifying to think about.
 
 Seam hummed in approval. "Well done. I should not be surprised that you possess a soul of Perseverance."
 
@@ -406,7 +414,7 @@ The life you had lived before, as *yourself*, was over.
 
 Because some idiot jester had to keep fucking around, now you were stuck in *this* body forever.
 
-After what felt like minutes of silence, you seemed to unfreeze, and the words started to tumble out. "...I... Fuck, man. That's not- ...Why would he do that? Why- god, my friends- What about my roommate?! They're- Fucking Jevil- I had a whole life- Why does shit never want to work out for- FUCKING **JEVIL!**"
+After what felt like minutes of silence, you seemed to unfreeze, and the words started to tumble out, slow and quiet at first, but gradually increasing in volume and energy as thought after thought flashed in front of your mind. "...I... Fuck, man. That's not- ...Why would he do that? Why- god, my friends- What about my roommate?! They're- Fucking Jevil- I had a whole life- Why does shit never want to work out for- FUCKING **JEVIL!**"
 
 Somewhere in the midst of your rambling, subconsciously, a scythe had fizzled into existence in your hands, and your friends ducked out of the way as you swung it about in your raving. The buzz of Jevil's magic within you surged through your palms into the blade, and as you swung the blade down, punctuating your final exclamation, you felt it catch on *nothing*, then slice.
 
@@ -416,15 +424,17 @@ A window into *your* world.
 
 Interrupted by the sight, you blankly stared at the view on the other side.
 
-Then, you moved to wedge the scythe into the hole, such that it shouldn't close, then, the moment over, you trembled and slowly fell to your knees.
-
 There you were.
 
 What was left of your own body, that was.
 
 It seemed you had been shot to death, somewhere in the alleyway of a city. Blood had dried around your chest.
 
-Barely thinking, you stumbled to your feet and approached the portal, the others approaching behind. You climbed through, noting that Rouxls did as well, and you stared at your own glassy expression.
+Barely thinking, you stumbled to your feet and approached the portal, the others approaching behind. Then, you moved to wedge the scythe into the hole, such that it shouldn't close, then, the moment over, you trembled and slowly fell to your knees.
+
+Sorrow quickly overtook the anger, not replacing it completely, as you stared at the scene through the portal. 
+
+You climbed through, noting that Rouxls did as well, and you stared at your own glassy expression.
 
 This was an awful sight to see. You reached out slowly, with your clawed hands, to carefully close the human body's eyelids.
 
@@ -434,13 +444,25 @@ And then, surrounded by your new monster friends (and Kris), you began to sob un
 
 (In here would be some sort of scene about the protagonist's depression after witnessing their corpse, maybe some progress on their magic training after the emotional outburst earlier started to unlock the general usage of magic for them)
 
+One positive of the whole situation, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from really *grasping* the usage of magic had lifted. 
+
+Though you had moved your magic training and learning to a part of the Crimson Forest a reasonable ways off the beaten track (enough that you could rest easier about anyone unexpectedly becoming a victim of an emotionally-induced magical surge), you quickly mastered basic magical spells and began to tap into the magics that were closely tied to your soul... and those that powered the body you possessed. 
+
+Though Ralsei was unavailable to guide you, as he wished he were able - currently helping Kris and Susie to fulfill the prophecy and prevent what he called 'The Roaring' - Seam found time on occasion to nudge you toward discovering your latent soul magic. He was also able to show you how to summon 'bullets' - pure magic energy condensed into a shape befitting the caster, full of intent.
+
+The comment that most monsters learned this very basic magic and the power of intent at a young age did hang in your mind more than it perhaps should have, considering you were not a native monster, but alas, that was just how depression was. Always looking for a way to beat you down.
+
+The bullets that Jevil's magic summoned were, confusingly, seemingly themed after card suits. It took you one day much later to realise: you were in the Card Kingdom. You were somewhat friends with Rouxls Kaard ('Rules Card', as you kept hearing his name pronounced). The deposed king, in a prison cell in the dungeons, was the King of Spades.
+
+You, or rather Jevil - you were a Jester. Or rather - to complete the analogy that was hitting you with full clarity - the *Joker* of the Card Kingdom.
+
 ----
 
 The last day of your second life began with a request from Kris to meet you in a clearing in the Crimson Forest.
 
 At midnight.
 
-If you weren't certain, two months into your life as Jevil, that the wilderness was safe *enough* for liaisons like this, you would have thought that Kris had some ulterior motive. Sure, he was just slightly creepy in that odd teenager way, and he had those red eyes (but only sometimes, which still eluded you), but he was - y'know - the hero of this story you were living in. Plus, he and his friends from the Light World had been ever-so-helpful in figuring yourself out.
+If you weren't certain, three months into your life as Jevil, that the wilderness was safe *enough* for liaisons like this, you would have thought that Kris had some ulterior motive. Sure, he was just slightly creepy in that odd teenager way, and he had those red eyes (but only sometimes, which still eluded you), but he was - y'know - the hero of this story you were living in. Plus, he and his friends from the Light World had been ever-so-helpful in figuring yourself out.
 
 And that was why you traversed quietly through the forest paths, a cowl keeping you warm, the jester outfit underneath. A ball of light held in your left hand lit the path ahead.
 
@@ -472,7 +494,7 @@ Your eyes darted back and forth, taking in Kris's details. Your utter confusion 
 
 *Deltarune.*
 
-This wasn't *Kris* talking to you. This was the *Angel*, the *Player* behind Kris, currently controlling him.
+This wasn't *Kris* talking to you. This was the *Angel*, the *Player* behind Kris, currently controlling him from somewhere in your world.
 
 And they were asking you... how to get *into* the game's world?!
 
@@ -482,7 +504,17 @@ And they were asking you... how to get *into* the game's world?!
 
 "The fuck?" You were offended by how this person seemed to assume that you just wrote yourself into the story to be part of Deltarune's world. You jabbed a clawed finger into Kris's armour. "The fuck is your problem? I didn't ask for Jevil to do what he did. I didn't ask to *lose my body* to be here! Have I dreamed of being in a video game world, sure! I've never wanted to *die* to make that happen!"
 
-The Player was unperturbed. Through Kris they spoke quietly, "Well, I think it's unfair, you know? And this has been some nice 'additional content' or whatever, but I think if I'm not allowed to be part of this world--"
+"I don't know that."
+
+"You were *there*! You found my body in the first place!"
+
+"No, *that* was Kris." They tutted as they shook their head at you, and you huffed. "Seriously, it's like you don't even know."
+
+"Of *course* I don't! Know what?!" You were letting him get a rise out of you, despite yourself. "I never played through Deltarune, dude! I never played fuckin' *Undertale*! Never got around to it!"
+
+The death glare that the Player gave you in response to that was intense. You could vividly imagine the complaint going unspoken in their head. *How could you, having no prior connection to this universe and its people, blah blah blah **WHILE I, WHO HAS DONE SO MUCH FOR...*** Yawwwwwn. You were getting an idea of the kind of person that the Player was.
+
+Through Kris they spoke quietly, "Well, I think it's unfair, you know? And this has been some nice 'additional content' or whatever, but I think if I'm not allowed to be part of this world--"
 
 Suddenly, 'Kris' withdrew his sword from its scabbard, and you were too late to react - you found yourself shivering in fear, the point of the sword poised just beneath your chin. 
 
@@ -490,7 +522,7 @@ Suddenly, 'Kris' withdrew his sword from its scabbard, and you were too late to 
 
 Before he could act (and not ACT), you reached for the magic surging through you, warping a few steps away as the Player thrust the sword upward. *That would have gone through your head*, you realised in shock.
 
-*He actually wanted to kill you.*
+*They actually wanted to kill you.*
 
 Anger and adrenaline surged through you. "Let Kris go," you snarled, conjuring up a few spade bullets, letting them just hover in place in front of you. "They don't deserve to be part of this." For additional protection, you reached out your hand and summoned Jevil's blade to your side.
 
@@ -508,7 +540,7 @@ And then turned tail and fled through the dark forest, 'Kris' in hot pursuit.
 
 You had to reach Castle Town, at least. Would the Player still try to kill you if you had an audience? Could you wake anyone up? For perhaps the first time you bemoaned Jevil's form's lack of stamina--
 
-**[E N O U G H,]** boomed a new voice from what felt like all directions.
+**[ENOUGH,]** boomed a new voice from what felt like all directions.
 
 The world around you and 'Kris' went black, and both of you were forced to a stop. The echo of the booming voice that had suddenly spoke to you reverberated around you both.
 
@@ -526,11 +558,11 @@ The Vessel turned, and you followed to see that a dark, imposing knight figure h
 
 Very faint shapes of something massive, something ominous, loomed over the three of you. It felt like it should have been invisible, but its aura in this moment or... *something*... was so imposing at that moment. You got the impression that *this* was the booming voice speaking to you.
 
-Was *this* the entity pulling the strings here? The one orchestrating this spread of darkness, bleeding realities together?
+Was *this* the entity pulling the strings here? The one orchestrating this spread of darkness, bleeding the realities of Deltarune together?
 
 **[THIS IS AN UNNECESSARY DISTRACTION, ANGEL.]**
 
-**[YOUR CONNECTION TO THIS WORLD IS TEMPORARY.]**
+**[REMEMBER, YOUR CONNECTION TO THIS WORLD IS TEMPORARY.]**
 
 **[PROLONGING IT BY INDULGING IN THESE FANTASIES WILL NOT BE TOLERATED.]**
 
@@ -540,7 +572,7 @@ Was *this* the entity pulling the strings here? The one orchestrating this sprea
 
 In a flash, Jevil's scythe once again appeared in the Vessel's hand.
 
-**[E R A D I C A T E  H I M.]**
+***[ERADICATE  HIM.]***
 
 ...
 
@@ -648,7 +680,7 @@ Then, with a poof and a popping noise, you found yourself at your full size, and
 
 "I *understand* how you must have felt. The bastard was *right*, and nobody else saw it." You sighed, muttered "ah, fuck it", and embraced him. "And from the sounds of things, now we are rid of all that. So if we are sticking together, where does that leave us?"
 
-Jevil's cheeks flushed, his smile dropping in surprise - not at all expecting this soul he had rescued to be suddenly hugging him - realising that he had missed being touched, from all his time being 'free' in the cell he had called his own. The validation, the relief that this human had seen and understood what he had gone through, when no one else had any idea what he was talking about... except perhaps Kris, from what this soul had said.
+Jevil's cheeks flushed, his smile dropping in surprise - not at all expecting this soul he had rescued to be suddenly hugging him - realising that he had missed being touched, from all his time being 'free' alone in the cell he had called his own. The validation, the relief that this human had seen and understood what he had gone through, when no one else had any idea what he was talking about... except perhaps Kris, from what this soul had said.
 
 A small smile returned to his lips. "I have rescued us to a new world! Some time has passed since you have been among the living, and I enlisted the help of the dark Prince in secret to create a vessel for your soul! Being a monster vessel, it requires a source of magic, and well, well, I have plenty to spare! And now we can explore this new realm we have found once you fully reawaken! How does that sound?"
 
