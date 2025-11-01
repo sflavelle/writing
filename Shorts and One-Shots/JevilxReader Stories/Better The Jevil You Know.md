@@ -384,7 +384,7 @@ The foyer was silent. There were grim looks on the groups' faces, as they strugg
 
 They watched as you visibly processed what they had already told you. 
 
-Jevil was in your body. Now Jevil was gone, and your body was safe.
+Jevil was in your body. Now Jevil was gone, and your body was safe, uninhabited.
 
 That was how it worked! Right?
 
@@ -456,6 +456,8 @@ The bullets that Jevil's magic summoned were, confusingly, seemingly themed afte
 
 You, or rather Jevil - you were a Jester. Or rather - to complete the analogy that was hitting you with full clarity - the *Joker* of the Card Kingdom.
 
+You could see though that it would take you a long time to reach your full potential, but each step, each day was slowly but surely getting you there.
+
 ----
 
 The last day of your second life began with a request from Kris to meet you in a clearing in the Crimson Forest.
@@ -512,7 +514,7 @@ And they were asking you... how to get *into* the game's world?!
 
 "Of *course* I don't! Know what?!" You were letting him get a rise out of you, despite yourself. "I never played through Deltarune, dude! I never played fuckin' *Undertale*! Never got around to it!"
 
-The death glare that the Player gave you in response to that was intense. You could vividly imagine the complaint going unspoken in their head. *How could you, having no prior connection to this universe and its people, blah blah blah **WHILE I, WHO HAS DONE SO MUCH FOR...*** Yawwwwwn. You were getting an idea of the kind of person that the Player was.
+The death glare that the Player gave you in response to that was intense. You could vividly imagine the complaint going unspoken in their head. *How could you, having no prior connection to this universe and its people, blah blah blah **WHILE I, WHO HAS DONE SO MUCH FOR...*** Yawwwwwn. You were quickly getting an idea of the kind of person that the Player was.
 
 Through Kris they spoke quietly, "Well, I think it's unfair, you know? And this has been some nice 'additional content' or whatever, but I think if I'm not allowed to be part of this world--"
 
