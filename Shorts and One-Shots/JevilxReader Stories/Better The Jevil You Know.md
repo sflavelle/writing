@@ -106,9 +106,11 @@ You stare at it. You weren't wearing that before. You glance down at your body.
 
 And that's when things start to click. You're wearing an outfit that is very clearly not yours, tightly fitting a soft round body, and your skin appears to be dark, unnatural. Between your legs, a thin, long tail peeks out at you.
 
-This isn't your body. "W-wait. What happened to me? Who transformed me into this... clown devil?!" you demand of the group. Oh. Huh. 'Jester devil'. Jevil. That's... a decision that was made. That explains the getup.
+This isn't your body. "W-wait. What happened to me? Who transformed me into this... clown devil?!" you demand of the group.
 
-"You've always looked like that, dude," Susie remarked. Kris simply continued to stare at you, and Ralsei and Blue share a look.
+Oh. Huh. 'Jester devil'. Jevil. That's... how he got his name, you supposed. *That* was a decision that was made. That explains the getup.
+
+"You've always looked like that, dude," Susie remarked with a slightly confused look. Kris simply continued to stare at you, and Ralsei and Blue share a look.
 
 "Like hell I did!" You bark out. "I was human like, two days ago!"
 
@@ -136,7 +138,7 @@ You note that the dialogue box you've been seeing spells his name as 'Rouxls Kaa
 
 God, *please* stop.
 
-"If I had to guess..." Ralsei paused, thinking. "Jevil could have cast a bodyswap spell to escape, somehow."
+"If I had to guess..." Ralsei paused, thinking. "Jevil may have cast a bodyswap spell to escape, somehow. We saw what he was capable of before..."
 
 What. Your eyes open wide. "So the guy who y'all think *I* am, is running around somewhere in *my* body?!" You scowl.
 
@@ -154,13 +156,13 @@ Your stomach drops. "Wait, what the hell?" You cry out, beginning to panic. "Sto
 
 Your eyes slam shut as she lifts the battle axe and takes a swing.
 
-You hear a deep **thud**, one that reverberates through your body and --
+You hear a deep **thud**, one that reverberates through your body as the blade lodges into the wall and --
 
 Your chains snap, instantly cleaved in two.
 
 Your eyes snap back open as you fall the 3 feet to the stony floor, your legs immediately buckling, and your arms searing with pain now that they aren't numb from being pulled upward for so long. You crumple down onto your hands and knees, choking back a few deep breaths amidst a stream of curses, seeing the now broken chains around your wrists. "F-fuh... fuckin' hell... Nearly pissed myself, give a guy a fuckin' warning next time."
 
-Susie allows herself a snort at the profanity sprouting from the chaos jester's mouth. "Okay, fine, yeah, that's not him. So if you're in *his* body, where's *your* body?"
+Susie allows herself a snort at the profanity sprouting from the chaos jester's mouth. "Okay, fine, yeah, that's not him. So squirt, if you're in *his* body, where's *your* body?"
 
 You take a few deep breaths first, curling an aching arm around your - his - chest. "Well, he'll be--"
 
@@ -180,7 +182,7 @@ Kris frowned. "A conundrum."
 
 He turns to the group. "Well, looks like we've got a mystery to solve, hmm?" He grins.
 
-"Sounds like a plan, squirt!" Susie grins, exposing her sharp teeth and clenching a fist. "The lil idiot won't know what hit him!"
+"Sounds like a plan, squirt!" Susie grins, exposing her sharp teeth and clenching a fist. "The idiot won't know what hit him!"
 
 She rushed out of the cell, and quickly vanished out of sight. "Susie, wait!" Ralsei called after her, following.
 
@@ -194,7 +196,7 @@ He hesitated before answering. "I... don't knoweth." Though he stood in place, h
 
 Either Rouxls was being kind in ignoring your winces at his speech, or this happened all the time with him.
 
-It took you a moment to process what he just said, and your eyes shot up to his, narrowing. "What? I have this 'Jevil's magic? ...Why did you not tell them?"
+It took you a moment to process what he just said, and your eyes shot up to his, narrowing. "What? I have this 'Jevil' fellow's magic? ...Why did you not tell them?"
 
 "I couldst nay get a word in," was his response, a sly smile on his features.
 
@@ -342,7 +344,7 @@ He nodded, smiling warmly. "Soul magic is a complicated business, after all, it 
 
 "I would not necessarily think about it in that light," was the magician's response, resting a paw on your shoulder. "You may have suffered many hardships in your journey through life... perhaps there is an ultimate goal you are pursuing, and though you may be beaten down, you are *persisting*, *not giving up*. I believe perseverance is best characterised as knowing that, no matter what life throws in your path, no matter how long it will take, ultimately you will reach your destination, because *you will never truly give up*. You may pause, you may temporarily abandon the task, but you *will* get there in the end. *That* is perseverance."
 
-He guided you to the table to one side of your room, and you both took a seat. "Perhaps think about it in the context of your current situation," he continued. "You have been thrown into the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him. That you are someone capable of being trusted."
+He guided you to the table to one side of your room, and you both took a seat. After aiding you in guiding your soul back into place in your chest, he continued. "Perhaps think about it in the context of your current situation," he continued. "You have been thrown into the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him. That you are someone capable of being trusted."
 
 You nodded, taking in his words. "I mean... I'm doing what I'm doing not out of any sense of duty to him. More out of a sense of wringing some normality and comfort out of the lot I've been given..."
 
@@ -352,13 +354,51 @@ You raised an eyebrow, but nodded. Could you have done anything differently? It 
 
 Your eyes lowered. "...I want to learn what I can about this monster whose life I've usurped. Those who live here in the castle are hesitant to tell me much, refuse to even mention him, as if I've always been the one in this body, as if mentioning whatever changed him will drive me mad, too. I'm an adult, damn it... Trying to understand Jevil's history won't turn me into him. Er... more than things already have, ha..."
 
+Seam nodded, and sighed. He leaned back in his seat for a moment, eyes glancing at the ceiling. "...It is a long story," he began. "He... was always a bit of a troublemaker, but he was never quite as mad as he was before..."
+
+"Ahem. Allow me to start from the beginning. Once upon a time, before this world grew darker, there were four kings that jointly ruled the land. Together, the King of Clubs, the King of Hearts, the King of Diamonds, and the King of Spades represented their people. Back then... I was their Court Magician, and Jevil their Court Jester. We would entertain the Kings, and occasionally the Kingdom, and over time we would grow to be close friends."
+
+"Back in those brighter days, Jevil was allowed something called 'jester's privilege' - a concept long dead today. The idea was this: Though our kingdom was benevolent, it was known that one could not simply ridicule, question or humiliate the kings and his men directly. Such a thing was just not done! No, instead, as well as entertaining them, the court jester had the unique privilege of being able to be as honest as he wished, even to the point of mockery, without consequence."
+
+"After all," he allowed himself a sly grin, "the jester was already a fool by occupation. Why would anything a fool says truly matter?"
+
+"As such, he became the person the Card Kingdom's citizens went to to voice their concerns. And likewise, the person the Kingdom's monarchy went to for the occasional honest opinion, someone who wouldn't simply validate them like the castle's nobles."
+
+"But..." Seam paused in his retelling, and focused his gaze on you once more. You had been sat, leaning in, legs crossed, hanging on his every word - your eyes wide and your mouth open slightly as you took in the magician's history lesson. Seam took in the sight, unexpectedly reminding him of that old friendship with the jester, when they could talk, and play, and life seemed much simpler. He closed his eyes, and took a breath. "One day, many years ago now, someone came to him. He listened, as was his duty. And this stranger told him something that would ultimately break the man I once knew."
+
+"Jevil was one day told, Y/N, that this world was nothing more than a 'game', a 'show' for some unknown other to exert its control over. That all its people were inextricably bound by unknown rules."
+
+Your mouth clamped shut.
+
+Seam sighed deeply. "I remember that at first, we both had a good laugh about the mad man who told him this. I remember asking him, 'who could have fabricated such a story', only for Jevil to be unable to recall."
+
+"But then... my friend started to hallucinate. It started with him confiding in me that he had been beginning to see others' words written out before him. He believed he could see the HP of others as easily as looking at them. This drove him to try to understand why this was happening to him..."
+
+"The conclusion that Jevil finally arrived at, about... two weeks after the encounter with the strange someone, was that they were *correct*. He began to believe that the Card Kingdom *was* a game of some kind, and that everything that occurred had been predetermined by some higher being."
+
+"He began to believe that by being given this information, he was given the means to 'break free' of this predetermined world he now believed was the truth."
+
+"And he began to believe, Y/N, that if such a thing *were* truth, that anything he did no longer mattered; that if his actions no longer mattered, he could do whatever he pleased without consequences; that if he could do whatever he pleased without consequences, he was breaking free of this 'predetermined control' he saw as reality."
+
+"He quickly grew out of control, after that," Seam finished sadly. "He became violent, and dangerous, and he unleashed his full magical capability. In the end... as his friend, the Four Kings and I were forced to incapacitate him, and lock him away until the end of his days in a special cell, deep beneath Card Castle. Jevil, as I knew him, was... no more."
+
+Your mind boggled as you processed the words of the former Court Magician. And you weren't entirely sure how to respond either. After all, you already *knew* that Deltarune was a video game, at least where you came from. Plus, you had grown adjusted to the weird 'dialogue box' that was a regular vision at this point.
+
+But, you were already aware of the nature of 'video games' and video game mechanics before you were dropped into this world, which made your current lived experience much easier to swallow. Perhaps, to someone like Jevil who would have had no idea of this sort of thing, the revelation of a world that was pre-programmed might be like... a sort of cosmic horror, you realised. You remembered a social media post about an ant being given the intelligence, comprehension of a human, briefly, before having it stripped away. Jevil getting perhaps a glimpse of just how this world was made, built, powered... the revelation that 'before' he was simply a set of sprites, AI code and some written dialogue - a puppet in a play...
+
+Okay, maybe you could see how he had gone 'mad'. "Holy fuck..." you breathed.
+
+Where does that leave you, though? In a sense Jevil was *right*, and you had been seeing the same things he supposedly claimed to see. You couldn't just *say* that, though - one, you'd be locked up even *without* the Kings; two, you didn't want to be responsible for others losing their sanity.
+
+You would keep this knowledge to yourself.
+
 ----
 
 A few weeks later, there is a knock at the door to your quarters. You have been summoned to the front of the castle, told that the Lightners have returned with news for you.
 
 You wear Jevil's jester getup today, assuming it is time to get back to your old life, and to put the chaotic soul back in his cell. 
 
-When you arrive, Rouxls is being regaled by Ralsei with tales of the team's adventures while Kris and Susie stand behind him quietly (a little awkwardly, in Susie's case). They notice you immediately as you enter, and they examine you with some concern as you walk up to them. "Hello, hello!" you call, slightly absently - you miss how those present tense up at the repetition. "Great to see you all again. Travelling well?"
+When you arrive, Rouxls is being regaled by Ralsei with tales of the team's adventures while Kris and Susie stand behind him quietly (a little awkwardly, in Susie's case). They notice you immediately as you enter, and they examine you with some concern as you walk up to them. "Hello, hello!" you call, slightly absently - you miss how those present tense up at the repetition, unwittingly repeating Jevil's speech quirk. "Great to see you all again. Travelling well?"
 
 Ralsei nods, but there's an expression of concern and reluctance on his face. "Yes! Uh, the corruption from the Dark World's influence here has been stopped! We've... um, sealed the Fountain, and nothing should come through to torment this world again!"
 
@@ -562,6 +602,8 @@ Very faint shapes of something massive, something ominous, loomed over the three
 
 Was *this* the entity pulling the strings here? The one orchestrating this spread of darkness, bleeding the realities of Deltarune together?
 
+The entity continued to speak to the Player.
+
 **[THIS IS AN UNNECESSARY DISTRACTION, ANGEL.]**
 
 **[REMEMBER, YOUR CONNECTION TO THIS WORLD IS TEMPORARY.]**
@@ -596,7 +638,7 @@ You felt the full weight of the puppetmaster's hold on you.
 
 You could only watch in growing terror as the Player approached.
 
-**[YOU MISUNDERSTAND.]**
+**[YOU MISUNDERSTAND, JESTER.]**
 
 They raised the blade up, readying it for a swing.
 

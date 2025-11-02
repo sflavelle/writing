@@ -191,6 +191,8 @@ That didn't mean that he wasn't feeling *urges*, with your soul (and a path to s
 
 But he had already been denied by Doctor Alphys, and well, with her plan explained to him, he was at least sated. It would be the same result if King Asgore used your soul for the barrier, of course.
 
+Now if only he had not been sworn to secrecy... this would have the underground buzzing! Alas...
+
 Alphys re-entered the room after a few minutes of chatter, carrying a black piece of equipment under her arm. "Alright Mettaton, sorry to keep you waiting," she said sheepishly. "Um, Y/N, while you're waiting for us, I was wondering if you might take a look at something for me?"
 
 She walked over to the lounge nook where you were sat and placed the device on the table. Now that you could see it more clearly, you could see that it was an old laptop from the surface. As you reached to open it, she explained, "I uh, found this in the dump last time I was down there, it looks like a type of computer but even after drying it it appears... not to work. I've got some tools on the bench over there," she cocked her head toward her workbench, "so if there's anything you can figure out about how this is put together, or if you can even repair it... anything helps." She smiled.
@@ -289,7 +291,7 @@ You forced yourself to take deep breaths. *Just think of it as like... a job int
 
 The gentle but heavy padding of feet grew louder before what could only be King Asgore turned the corner, appearing down the hall from the rear of the lab.
 
-And wow, was he massive. This was the first time you could think of where a monster was quite this tall. (There was, what Jevil referred to as 'the puppetmaster', but that seemed like by far an exception.) He was a goat monster (he vaguely gave you Ralsei vibes, if he was much older), dressed in a royal purple garb, with armour plates over his shoulders and chest and more fabric (and a cape) hanging from *that*. Though his face was fuzzy, a blonde goatee, beard and a head of hair adorned him, his horns poking through.
+And wow, was he massive. This was the first time you could think of where a monster was quite this tall. (There was, what Jevil referred to as 'the puppetmaster', but that seemed like by far an exception.) He was a goat monster (he vaguely gave you Ralsei vibes, the way he exuded warmth and humility, even in this clearly 'official business' role), dressed in a royal purple garb, with armour plates over his shoulders and chest and more fabric (and a cape) hanging from *that*. Though his face was fuzzy, a blonde goatee, beard and a head of hair adorned him, his horns poking through.
 
 Asgore seemed the image of someone who had lived long, and helped their people through much. 
 
@@ -301,7 +303,7 @@ Undyne flashed her sharp teeth in a grin. "Pretty good! Headed down as soon as I
 
 "Now that sounds delightful," Asgore smiled, and then glanced down toward you. "I don't believe we've met, young one. You would be...?"
 
-Undyne's claws dug into your shoulder, but you shrugged it off as you stepped forward and took his hand, giving him a firm handshake. "I'm Y/N, sir. It's a pleasure to meet you. My understanding is you're here to see me?"
+Undyne's claws dug into your shoulder, but you shrugged it off as you swallowed your nerves, stepped forward and took his hand, giving him a firm handshake. "I'm... Y/N, sir. It's a pleasure to meet you. My understanding is you're here to see me?"
 
 "Y/N...?" The king's eyebrows rose, and he looked you over more carefully. Out of the corner of your vision, you saw Undyne raise both eyebrows, relaxing slightly as it seemed you weren't going to flee. "Ah, I see. Yes, Alphys has told me some general information about who you are, and I must admit I am terribly curious about, well, a lot of things..." He smiled warmly. "But I believe a good cup of tea would be the best place to start. Let us move to the living space."
 

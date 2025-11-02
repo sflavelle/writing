@@ -1,5 +1,5 @@
 {
-    "editor.fontSize": 15,
+    "editor.fontSize": 18,
     "files.autoSave": "onFocusChange",
-    "editor.fontFamily": "'SMW', 'monospace', monospace"
+    "editor.fontFamily": "'Red Hat Text', 'monospace', monospace"
 }
