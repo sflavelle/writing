@@ -690,17 +690,15 @@ You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I
 
 "...Okay, but how?" You leaned against the handle of a Dualsense controller. "Because I think I remember you died in *my* body... unless I finally *am* succumbing to the madness everyone thought you had."
 
-"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "*That* was a diversion! You see, young Kris and I had so much fun with our numbers game that I decided to join him! By placing my soul in the prize that I bestowed upon him, I could be as free as I desired, and the King and the Puppetmaster would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
+"Ueeheehee! You're funny, little lightner." A large hand descended toward you, and despite your attempt at brushing him away, he picked you up with ease, holding you in his palm. "*That* was a diversion! You see, young Kris and I had so much fun with our numbers game that I decided to join him! By placing my soul in the weapon that I bestowed upon him, I could be as free as I desired, and the King and the Puppetmaster would be none-the-wiser, none-the-wiser!" He grinned, fanged teeth visible. "I simply needed someone to take my place~!"
 
 You crossed your arms, frowning. "...Well, you got me, I'm a sucker. So why are you bringing me with you now...?"
 
 A gentle claw brushed over your head, but Jevil didn't answer immediately. His smile dimmed slightly as he decided how best to answer your query. "...The puppetmaster... He was the one to reveal the nature of our world to me, the nature of the game we were all pawns in. And while, yes yes, perhaps my sanity has been damaged by the revelation, in my cell I truly was free, free from the puppet master's strings!"
 
-Just who *was* The 'puppetmaster' he kept referring to? You began to ponder this as he continued
+He held you more gently, cradling you in his palm while continuing his idle petting. "But playing with Kris, struggling with their own control... And then seeing you, attempting to build a new life for me - I could see you were kind, and curious, and strong in your perseverance... and I knew *he* would take notice eventually."
 
-He held you more gently, cradling you in his palm while continuing his idle petting. "But playing with Kris, struggling with his own control... And then seeing you, attempting to build a new life for me - I could see you were kind, and curious, and I knew *he* would take notice eventually."
-
-He sighed, and smiled wistfully. "I had hoped to save us both in a much less painful manner, but once he forced Kris's possessor to take action, I had to work quickly to get us both out of there... And now... we truly are both free from those strings that bound us!" He lit up once more, and Jevil pressed you against his chest with both hands.
+He sighed, and smiled wistfully. "I had hoped to save us both in a much less painful manner... but once he forced Kris's possessor to take action, I had to work quickly to get us both out of there... And now... we truly are both free from those strings that bound us!" He lit up once more, and Jevil pressed you against his chest with both hands.
 
 He was soft, warm; the velvet of his outfit brushing lightly against your exposed skin. The lack of a heartbeat was strange and not something you had really noticed when you had been in his body, but this was also a dream, so you weren't sure if that was real or not. You relaxed into him, wondering whether monster souls had a heartbeat. Why would they?
 
@@ -730,11 +728,11 @@ A small smile returned to his lips. "I have rescued us to a new world! Some time
 
 The implication took a moment to sink in. "Wait, you and Ralsei made me a body again? You... risked being caught to help me? Why...?"
 
-"Why not!" He beamed and got to his feet, bouncing happily about the room. "I can do anything! That foolish man can't find me, not without poor Kris! And besides..."
+"Why not!" He beamed and got to his feet, bouncing happily about the room. "I can do anything! That foolish puppetmaster can't find me, not without poor Kris! And besides..."
 
 He turned to you once more, good smile turning impish.
 
-"What's wrong with a little chaos, chaos?" He giggled, and pranced over to you, petting you on the head. "For now, my friend, you should rest. Our new world won't go anywhere while you finish recovering. And if you should need accompaniment while you dream, Jevil is not far away~!"
+"What's wrong with a little chaos, chaos?" He giggled, and pranced over to you, petting you on the head. "For now, my new friend, you should rest. Our new world won't go anywhere while you finish recovering. And if you should need accompaniment while you dream, Jevil is not far away~!"
 
 He beamed, bouncing on his feet into the next room and out of sight.
 
