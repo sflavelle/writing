@@ -29,6 +29,8 @@ Welp guess you suddenly had to learn to walk with legs that didn't bend the way 
 
 And... you had hooves. So that was what you heard - hard... bone? Keratin? You weren't awake/alive enough for this shit - that made up your feet hitting the floor.
 
+So... it seemed you had woken up as some kind of deer monster.
+
 Well, this was going to be something.
 
 ----
@@ -55,11 +57,15 @@ It was not Jevil.
 
 This monster, however, you *did* know - if only through osmosis.
 
-She gave a little squeak as she noticed you already looking at her, adjusting the glasses over her yellow snout so her vision was clear. After a deep breath, she walked over to you, her claws clicking against the tiled floor. She looked quite tired, and you couldn't help but wonder whether it was dark here because it was late at night, or you (and evidently everyone else here) were underground... You wondered separately, whether she was overworked at the same time...
+She gave a little squeak as she noticed you already looking at her, adjusting the glasses over her yellow snout so her vision was clear. She looked up into your eyes... and flinched back. "Ah! Oh, I-I'm so sorry! Um, your eyes are... striking."
+
+"Are they...?" You furrowed a brow. "I... haven't seen them yet."
+
+"Ah..." After a deep breath, she walked over to you, her claws clicking against the tiled floor. She looked quite tired, and you couldn't help but wonder whether it was dark here because it was late at night, or you (and evidently everyone else here) were underground... You wondered separately, whether she was overworked at the same time...
 
 You prepared to listen carefully to what Alphys, the Underground's Royal Scientist, had to tell you.
 
-"G-good evening," the lizard greeted with a nervous smile. "It's good t-to see you finally awake. Welcome to the Lab, you can c-call me Dr. Alphys." She consulted the clipboard she had been holding to her side. "Um, a monster by the name of Jevil has deposited you in my care a few days ago after you both arrived from, he said another world...? Uh, b-but th-that's not important right now! I-it uhm, just means you'll need an introduction to the Underground! A-anyway, from my understanding you've been through a lot?"
+"W-well in any case, g-good evening," the lizard greeted with a nervous smile. "It's good t-to see you finally awake. Welcome to the Lab, you can c-call me Dr. Alphys." She consulted the clipboard she had been holding to her side. "Um, a monster by the name of Jevil has deposited you in my care a few days ago after you both arrived from, he said another world...? Uh, b-but th-that's not important right now! I-it uhm, just means you'll need an introduction to the Underground! A-anyway, from my understanding you've been through a lot?"
 
 ...Okay, so Jevil had just so happened to discover the Undertale universe (or *an* Undertale universe? Who knew what bullshit you were dealing with now), and had dropped you off here of all places where he went to do... something? You nodded. "Yeah... that's right. Considering the last memory i remember after such a long, erm sleep was..." You wracked your brain. "Uh... getting stabbed."
 
@@ -77,9 +83,11 @@ Alphys nervously giggled with you. "T-thats fine! You *have* been through a lot,
 
 You spent the next hour or so in an upstairs lab room that was repurposed as a living room space, eating from a cup of noodles while watching what was apparently season 2 of an anime the doctor was watching. You both sat on the small couch (though respectfully you gave her some room) as 'Mew Mew' vowed to 'light up the darkness' through magical girl transformations or something like that. 
 
-You fell asleep again sooner than you expected, and when you woke sometime that 'morning' you had had a blanket draped carefully over you. You were pleasantly surprised - you had no idea how long you were in Alphys' care before you woke, but you had perhaps expected for her to be less personal. Whatever the reason, though,  you were content - you weren't in immediate danger, and while Jevil had still not shown his face since you awoke, around Alphys you felt safe enough. 
+You fell asleep again sooner than you expected, and when you woke sometime that 'morning' you had had a blanket draped carefully over you, and a hand mirror placed nearby. You were pleasantly surprised - you had no idea how long you were in Alphys' care before you woke, but you had perhaps expected for her to be less personal. Whatever the reason, though,  you were content - you weren't in immediate danger, and while Jevil had still not shown his face since you awoke, around Alphys you felt safe enough. 
 
-Speaking of the scientist, she was fascinated with the world you had come from, and the adventure you had already endured - "That explains how you're so comfortable with all this," she said. She told you that she wanted especially to examine your 'shell' and your soul... "T-to see how it has adapted, o-of course!"
+One glance at your face in the mirror showed you why you had given the good doctor a shock - though the body was your own this time (by your knowledge, anyway), you had still retained Jevil's distinctive black eyes and gold irises, now even more shocking on this normal body. 
+
+Speaking of the scientist, she was fascinated with the world you had come from - "That explains how you're so comfortable with all this," she had said. She told you that she wanted especially to examine your 'shell' and your soul... "T-to see how it has adapted, o-of course!"
 
 And you weren't looking forward to having your soul exposed - because it would expose your humanity underneath all the fur and borrowed magic. You didn't know much about souls, even after your time in the Card Kingdom, but you *did* know that souls from humans looked noticeably different from monster souls.
 
@@ -105,9 +113,9 @@ Alphys sighed, and took a deep breath. "...Y/N, i-it's *okay*," she said careful
 
 You stared at her for a few long moments, but then you slurped up the noodles, then slumped back in your chair, staring up at the ceiling. You exhaled slowly, then took a deep breath to collect your thoughts. "...Fuck," you finally settled on.
 
-Alphys snorted, despite the tense moment. After calming herself down and taking a few breaths, having managed to breach the subject, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you have -- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
+Alphys snorted, despite the tense moment. After calming herself down and taking a few breaths, having managed to breach the subject, she finally managed to get the words out. "I-it was an accident. Um, J-Jevil - When... when you were just a soul, we kept him to a room like you were in, y'know to assess his threat level-- h-he must have carried you around with him, but he um, I don't think he knew I kept surveillance in the lab. He um... when he was alone in that room, I guess he just, had your soul out sometimes? T-to talk to you or something? M-Mettaton was the first to notice it, when um, when he would come by for maintenance."
 
-"And then there was one day, I went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? I think he may be looking for somewhere for you both to stay."
+"And then there was one day, I went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? In uhh... Snowdin I think? I think he may be looking for somewhere for you both to stay."
 
 You were silent for a minute, processing what she told you as you finished eating. She had known for... some amount of time, that you were definitely human, and in fact that for a time you had been just a soul. In a world where - you recall vaguely - these monsters needed human souls to break free from the Underground, you were surprised that you were still here. Your eyebrows raised as you thought. Alphys - and apparently Mettaton - could have easily decided to just take your soul and put it towards the barrier. But here you were. Why? Was it because of a threat of Jevil's power? Did Alphys feel some obligation that succeeded her own duty to the crown?
 
@@ -210,6 +218,14 @@ You were left alone for the better part of an hour to look at the device and tak
 Raiding from Alphys' stash of mismatched screwdrivers at her workbench, you found one that fit the laptop's small Philips screws and managed to get the underside off. You were in the process of spreading out the socketed and unscrewable components on the table...
 
 ...when the door into the lab opened, and a gust of hot air from outside rushed past you. Even that brief breath of Hotland air was stifling. "Hiya," you called, glancing briefly at the guest who had just entered before returning to your work. "Alphys is busy at the minute, I think she'll be out shortly--"
+
+You were promptly tackled to the floor, screwdriver clattering to the ground. 
+
+"MY DEAR FRIEND, FRIEND!" cheered a familiarly bitcrushed voice as they nuzzled into your cheek. "How wonderful to see you return to the waking world!"
+
+
+
+----
 
 The glowing blue spear that then blocked your view of the laptop's internals got you to shut up. The side pressed at your face, prodding you to look back up at its owner.
 

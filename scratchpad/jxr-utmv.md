@@ -4,7 +4,7 @@ When your glassy eyes vacantly stared at him, barely processing that you were aw
 
 Slowly, as you were hurriedly carried out of some civilian building out onto the streets, you started to become aware of what was happening around you.
 
-People running about around you.
+People running about in panic.
 
 The sounds of demolition and explosions in the distance.
 
@@ -14,7 +14,7 @@ Also, hang on... weren't you *taller* than your travel companion? Not... shorter
 
 You mumbled into his shoulder, "s'mthin happening...?"
 
-"Oh, oh!" Jevil immediately responded with growing delight, turning his head to nuzzle into the top of your head. "Welcome back, my dear friend! It's good to have you with me once more! Sadly this reality is under attack, attack! So we must away, away!"
+"Oh, oh!" Jevil immediately responded with growing delight, turning his head to nuzzle into the top of yours. "Welcome back, my dear friend! It's good to have you with me once more! Sadly this reality is under attack, attack! So we must away, away!"
 
 You took a few moments to process his words. "By... runnin'...?"
 
