@@ -482,15 +482,21 @@ And then, surrounded by your new monster friends (and Kris), you began to sob un
 
 ----
 
-(In here would be some sort of scene about the protagonist's depression after witnessing their corpse, maybe some progress on their magic training after the emotional outburst earlier started to unlock the general usage of magic for them)
+The next weeks were a blur of malaise and depression and mourning.
 
-One positive of the whole situation, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from really *grasping* the usage of magic had lifted. 
+You had said once that you were glad to not be working in your world, enraptured as you were with the casual whimsy of this world, and that still held true. But there were things that you were realising you would potentially never see again that really hit you during this time. 
 
-Though you had moved your magic training and learning to a part of the Crimson Forest a reasonable ways off the beaten track (enough that you could rest easier about anyone unexpectedly becoming a victim of an emotionally-induced magical surge), you quickly mastered basic magical spells and began to tap into the magics that were closely tied to your soul... and those that powered the body you possessed. 
+Computers, phones, technology. Talking to your friends over the internet. Music, especially the dance music and concerts of your time. The particular tingle of soft drinks.
+
+One positive of what had come to pass, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from really *grasping* the usage of magic had lifted. 
+
+Though you had moved your magic training and learning to a part of the Crimson Forest a reasonable ways off the beaten track (enough that you could rest easier about anyone unexpectedly becoming a victim of another emotionally-induced magical surge), you quickly mastered basic magical spells and began to tap into the magics that were closely tied to your soul... and those that powered the body you possessed. 
 
 Though Ralsei was unavailable to guide you, as he wished he were able - currently helping Kris and Susie to fulfill the prophecy and prevent what he called 'The Roaring' - Seam found time on occasion to nudge you toward discovering your latent soul magic. He was also able to show you how to summon 'bullets' - pure magic energy condensed into a shape befitting the caster, full of intent.
 
 The comment that most monsters learned this very basic magic and the power of intent at a young age did hang in your mind more than it perhaps should have, considering you were not a native monster, but alas, that was just how depression was. Always looking for a way to beat you down.
+
+It quickly became apparent when you moved on from basic spells to more personalised magic, following the whims of the energy inside you that 'your' magic was mostly Jevil's chaotic magic. But Seam commented at least once during this phase of exploration that it seemed slightly more refined, focused. There were hints, perhaps, of ways to filter that raw power through your Perseverance soul to accomplish... something. Neither of you were quite sure what that would look like yet, and it would likely take lots more training to accomplish anything quite as powerful as your speculations.
 
 The bullets that Jevil's magic summoned were, confusingly, seemingly themed after card suits. It took you one day much later to realise: you were in the Card Kingdom. You were somewhat friends with Rouxls Kaard ('Rules Card', as you kept hearing his name pronounced). The deposed king, in a prison cell in the dungeons, was the King of Spades.
 
@@ -500,13 +506,17 @@ You could see though that it would take you a long time to reach your full poten
 
 ----
 
+You woke up one morning, stumbling through the castle halls with a mug of coffee in hand, to find that a few new Darkners had moved into the Card Kingdom.
+
+----
+
 The last day of your second life began with a request from Kris to meet you in a clearing in the Crimson Forest.
 
 At midnight.
 
 If you weren't certain, three months into your life as Jevil, that the wilderness was safe *enough* for liaisons like this, you would have thought that Kris had some ulterior motive. Sure, he was just slightly creepy in that odd teenager way, and he had those red eyes (but only sometimes, which still eluded you), but he was - y'know - the hero of this story you were living in. Plus, he and his friends from the Light World had been ever-so-helpful in figuring yourself out.
 
-And that was why you traversed quietly through the forest paths, a cowl keeping you warm, the jester outfit underneath. A ball of light held in your left hand lit the path ahead.
+And that was why you traversed quietly through the forest paths, your cowl keeping you warm, the jester outfit underneath. A ball of light held in your left hand lit the path ahead.
 
 It was kind of peaceful, if you had to be honest with yourself.
 
@@ -716,7 +726,7 @@ You squirmed under his touch. Well... As if he didn't know. May as well say it. 
 
 Jevil stopped, squinting down at you suspiciously.
 
-Then, with a poof and a popping noise, you found yourself at your full size, and both of you crashed to the floor. After a moment to get your bearings, you found that you were actually *taller* than the jester, his face level with your neck.
+Then, with a poof and a popping noise, you found yourself at your full size, and both of you crashed to the floor. After a moment to get your bearings, you found that you were roughly the same size as the jester, his face level with yours.
 
 "I want to be clear," you stressed as you both sat on the ground facing each other in this dream version of your living room. "I'm not the 'puppetmaster' or affiliated with him. But my understanding is that the thing that controls Kris is someone who *literally* sees the world as a game, a program. Now, whether this puppermaster-- *puppetmaster*, god, English is hard sometimes- whether he's pulling their strings as well, I don't know. But... well, I saw what you saw. Y'know, when I was you." You leaned in, resting a hand on his shoulder. "People speaking to me, whose words I saw on the edge of my vision. The same words telling me I restored HP when I ate. The everpresent feeling of being watched from all angles, whenever Kris was around with those red eyes..."
 
