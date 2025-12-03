@@ -258,13 +258,13 @@ Pudgy cheeks and an impish mouth and fangs hung beneath pointed crosses painted 
 
 The purple-blue skin was ever so slightly fuzzy, very short fur growing. It felt... strangely pleasant to the touch, as did the chubbiness on your new frame, evidence of the jester's previous lavish life in the castle. You wondered if it was because of his curvature that his outfit, and indeed anything you could find to wear, was so... form-fitting.
 
-You had worn his outfit again briefly, trying to understand *him* through it. The vest that covered most of his frame had patterning around the middle that gave you the impression of royalty, or one of those weird hunting party guys on horses. It was a little tight around the belly, slightly straining the heart shaped buttons that held the vest together - was that normal or had he somehow managed to put *on* some pounds in captivity?
+You had worn his outfit again briefly, trying to understand *him* through it. The vest that covered most of his frame had patterning around the middle that gave you the impression of royalty, or one of those weird hunting party guys on horses. 
 
 His ruff and his shoes were the only things that broke from his black-and-purple scheme. They stood out completely from the rest of the outfit, with bright green and orange segments on the ruff, and the same green on his footwear. It was...
 
 Well, it was something. 
 
-You admittedly appreciated the plain black cowl for warmth, though. 
+You admittedly appreciated the plain black cowl worn as a cape for warmth, though. 
 
 Despite discovering that you look like some kind of devil doll, and those in the Castle who had witnessed Jevil's downfall turning to run whenever they crossed paths with you, you found you didn't mind the body so much. You missed yours of course, but... this would do.
 
@@ -380,15 +380,15 @@ Seam sighed deeply. "I remember that at first, we both had a good laugh about th
 
 "And he began to believe, Y/N, that if such a thing *were* truth, that anything he did no longer mattered; that if his actions no longer mattered, he could do whatever he pleased without consequences; that if he could do whatever he pleased without consequences, he was breaking free of this 'predetermined control' he saw as reality."
 
-"He quickly grew out of control, after that," Seam finished sadly. "He became violent, and dangerous, and he unleashed his full magical capability. In the end... as his friend, the Four Kings and I were forced to incapacitate him, and lock him away until the end of his days in a special cell, deep beneath Card Castle. Jevil, as I knew him, was... no more."
+"I tried my best to talk sense back into him, but... he quickly grew out of control, after that," Seam finished sadly. "He became violent, and dangerous, and he unleashed his full magical capability. In the end... as his friend, the Four Kings and I were forced to incapacitate him, and lock him away until the end of his days in a special cell, deep beneath Card Castle. Jevil, as I knew him, was... no more."
 
 Your mind boggled as you processed the words of the former Court Magician. And you weren't entirely sure how to respond either. After all, you already *knew* that Deltarune was a video game, at least where you came from. Plus, you had grown adjusted to the weird 'dialogue box' that was a regular vision at this point.
 
-But, you were already aware of the nature of 'video games' and video game mechanics before you were dropped into this world, which made your current lived experience much easier to swallow. Perhaps, to someone like Jevil who would have had no idea of this sort of thing, the revelation of a world that was pre-programmed might be like... a sort of cosmic horror, you realised. You remembered a social media post about an ant being given the intelligence, comprehension of a human, briefly, before having it stripped away. Jevil getting perhaps a glimpse of just how this world was made, built, powered... the revelation that 'before' he was simply a set of sprites, AI code and some written dialogue - a puppet in a play...
+But, you were already aware of the nature of 'video games' and video game mechanics before you were dropped into this world, which made your current lived experience much easier to swallow. Perhaps, to someone like Jevil who would have had no idea of this sort of thing, living in this pseudo-medieval realm, the revelation of a world that was pre-programmed might be like... a sort of cosmic horror, you realised. You remembered a social media post about an ant being given the intelligence, comprehension of a human, briefly, before having it stripped away, unable to communicate or understand what it just saw. Jevil getting perhaps a glimpse of just how this world was made, built, powered... the revelation that 'before' he was simply a set of sprites, AI code and some written dialogue - a puppet in a play...
 
 Okay, maybe you could see how he had gone 'mad'. "Holy fuck..." you breathed.
 
-Where does that leave you, though? In a sense Jevil was *right*, and you had been seeing the same things he supposedly claimed to see. You couldn't just *say* that, though - one, you'd be locked up even *without* the Kings; two, you didn't want to be responsible for others losing their sanity.
+Where does that leave you, though? In a sense Jevil was *right*, and you had been seeing the same things he supposedly claimed to see. (Was that because you already knew? Or because it was *his* body you were in?) You couldn't just *say* that, though - one, you'd be locked up even *without* the Kings; two, you didn't want to be responsible for others losing their sanity.
 
 You would keep this knowledge to yourself.
 
@@ -498,15 +498,11 @@ The comment that most monsters learned this very basic magic and the power of in
 
 It quickly became apparent when you moved on from basic spells to more personalised magic, following the whims of the energy inside you that 'your' magic was mostly Jevil's chaotic magic. But Seam commented at least once during this phase of exploration that it seemed slightly more refined, focused. There were hints, perhaps, of ways to filter that raw power through your Perseverance soul to accomplish... something. Neither of you were quite sure what that would look like yet, and it would likely take lots more training to accomplish anything quite as powerful as your speculations.
 
-The bullets that Jevil's magic summoned were, confusingly, seemingly themed after card suits. It took you one day much later to realise: you were in the Card Kingdom. You were somewhat friends with Rouxls Kaard ('Rules Card', as you kept hearing his name pronounced). The deposed king, in a prison cell in the dungeons, was the King of Spades.
+The bullets that Jevil's magic summoned were, confusingly, seemingly themed after card suits - hearts, diamonds, clubs and spades. At first you didn't understand why. It took you one day much later for the full realisation to hit: you were in the Card Kingdom. You were somewhat friends with Rouxls Kaard ('Rules Card', as you kept hearing his name pronounced). The deposed king, in a prison cell in the dungeons, was the King of Spades. 
 
-You, or rather Jevil - you were a Jester. Or rather - to complete the analogy that was hitting you with full clarity - the *Joker* of the Card Kingdom.
+You, or rather Jevil - you were a Jester. Or rather - to complete the analogy that was only now hitting you with full clarity - the *Joker* of the Card Kingdom.
 
-You could see though that it would take you a long time to reach your full potential, but each step, each day was slowly but surely getting you there.
 
-----
-
-You woke up one morning, stumbling through the castle halls with a mug of coffee in hand, to find that a few new Darkners had moved into the Card Kingdom.
 
 ----
 
