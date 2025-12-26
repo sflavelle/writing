@@ -132,7 +132,7 @@ The other skeletons around him flinched as they also took in the scarf, for what
 
 *Friend?* Sans's browbones raised. "well uh. moonjumper and chara, as it turns out."
 
-At the mention of the name Chara, several of the skeletons stiffened. The artist skeleton blinked in confusion, each blink changing his pupils into different colours and shapes. "Chara? But... your universe had a True Pacifist Ending, right?"
+At the mention of the name Chara, several of the skeletons stiffened. The artist skeleton blinked in confusion, each blink changing his pupils into different colours and shapes. "Chara? But... your universe had a True Pacifist Ending, didn't it?"
 
 Sans paused for a few moments. 
 
@@ -142,6 +142,6 @@ He turned to look at his group. Frisk shrugged while Flowey raised a brow.
 
 Immediately he felt several pings, several checks against his soul. Immediately *after*, a sharpened bone attack and a dusty hoodie were all he could see as Dust was suddenly on him, holding the attack close to his spine. 
 
-"alright, jig's up," rasped the attacker. "who are you *really*?"
+"jig's up," rasped the attacker. "who are you *really*?"
 
 "Now hang on!" shouted Hat Kid over the sudden commotion that erupted. "None of us are even from this universe! *You're* all the ones making assumptions!"

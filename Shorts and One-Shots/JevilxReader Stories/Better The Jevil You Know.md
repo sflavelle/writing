@@ -358,11 +358,11 @@ Seam nodded, and sighed. He leaned back in his seat for a moment, eyes glancing 
 
 "Ahem. Allow me to start from the beginning. Once upon a time, before this world grew darker, there were four kings that jointly ruled the land. Together, the King of Clubs, the King of Hearts, the King of Diamonds, and the King of Spades represented their people. Back then... I was their Court Magician, and Jevil their Court Jester. We would entertain the Kings, and occasionally the Kingdom, and over time we would grow to be close friends."
 
-"Back in those brighter days, Jevil was allowed something called 'jester's privilege' - a concept long dead today. The idea was this: Though our kingdom was benevolent, it was known that one could not simply ridicule, question or humiliate the kings and his men directly. Such a thing was just not done! No, instead, as well as entertaining them, the court jester had the unique privilege of being able to be as honest as he wished, even to the point of mockery, without consequence."
+"Back in those brighter days, Jevil was allowed something called 'jester's privilege' - a concept long dead in this age of darkness. The idea was this: Though our kingdom was benevolent, it was known that one could not simply ridicule, question or humiliate the kings and his men directly. Such a thing was just not done! No, instead, as well as entertaining them, the court jester had the unique privilege of being able to be as honest as he wished, even to the point of mockery, without consequence."
 
 "After all," he allowed himself a sly grin, "the jester was already a fool by occupation. Why would anything a fool says truly matter?"
 
-"As such, he became the person the Card Kingdom's citizens went to to voice their concerns. And likewise, the person the Kingdom's monarchy went to for the occasional honest opinion, someone who wouldn't simply validate them like the castle's nobles."
+"As such, he became the person the Card Kingdom's citizens went to to voice their concerns. And likewise, the person the Kingdom's monarchy went to for the occasional honest opinion, someone who wouldn't simply validate their decisions like the castle's nobles."
 
 "But..." Seam paused in his retelling, and focused his gaze on you once more. You had been sat, leaning in, legs crossed, hanging on his every word - your eyes wide and your mouth open slightly as you took in the magician's history lesson. Seam took in the sight, unexpectedly reminding him of that old friendship with the jester, when they could talk, and play, and life seemed much simpler. He closed his eyes, and took a breath. "One day, many years ago now, someone came to him. He listened, as was his duty. And this stranger told him something that would ultimately break the man I once knew."
 
@@ -372,7 +372,7 @@ Your mouth clamped shut.
 
 Seam sighed deeply. "I remember that at first, we both had a good laugh about the mad man who told him this. I remember asking him, 'who could have fabricated such a story', only for Jevil to be unable to recall."
 
-"But then... my friend started to hallucinate. It started with him confiding in me that he had been beginning to see others' words written out before him. He believed he could see the HP of others as easily as looking at them. This drove him to try to understand why this was happening to him..."
+"But then... my friend started to hallucinate. It started with him confiding in me that he had been beginning to see others' words written out before him. He believed he could see the HP of others as easily as looking at them. He believed the knowledge he had received was driving him mad. This drove him to try to understand why this was happening to him..."
 
 "The conclusion that Jevil finally arrived at, about... two weeks after the encounter with the strange someone, was that they were *correct*. He began to believe that the Card Kingdom *was* a game of some kind, and that everything that occurred had been predetermined by some higher being."
 
@@ -380,7 +380,7 @@ Seam sighed deeply. "I remember that at first, we both had a good laugh about th
 
 "And he began to believe, Y/N, that if such a thing *were* truth, that anything he did no longer mattered; that if his actions no longer mattered, he could do whatever he pleased without consequences; that if he could do whatever he pleased without consequences, he was breaking free of this 'predetermined control' he saw as reality."
 
-"I tried my best to talk sense back into him, but... he quickly grew out of control, after that," Seam finished sadly. "He became violent, and dangerous, and he unleashed his full magical capability. In the end... as his friend, the Four Kings and I were forced to incapacitate him, and lock him away until the end of his days in a special cell, deep beneath Card Castle. Jevil, as I knew him, was... no more."
+"I tried my best to talk sense back into him, but... he quickly grew out of control, after that," Seam finished sadly. "He became violent, and dangerous, and he unleashed his full magical capability. In the end... as his friend, the Four Kings and I were forced to incapacitate him, and lock him away until the end of his days in a special cell, deep beneath Card Castle. The key was thereafter broken into pieces, such that such a power could not be unleashed. Jevil, as I knew him, was... no more."
 
 Your mind boggled as you processed the words of the former Court Magician. And you weren't entirely sure how to respond either. After all, you already *knew* that Deltarune was a video game, at least where you came from. Plus, you had grown adjusted to the weird 'dialogue box' that was a regular vision at this point.
 
@@ -391,6 +391,10 @@ Okay, maybe you could see how he had gone 'mad'. "Holy fuck..." you breathed.
 Where does that leave you, though? In a sense Jevil was *right*, and you had been seeing the same things he supposedly claimed to see. (Was that because you already knew? Or because it was *his* body you were in?) You couldn't just *say* that, though - one, you'd be locked up even *without* the Kings; two, you didn't want to be responsible for others losing their sanity.
 
 You would keep this knowledge to yourself.
+
+"And that was how it was," Seam continued on eventually, unaware of your internal deliberations, "Until the Four Kings became the Spade King and three missing Kings, and this world was enveloped in Dark. Eventually the Heroes of Light arrived, and in their quest to stop the entropy of the Dark Fountain, they became aware of Jevil's existence. Their mission did not require it, and yet... They sought to tie up the loose end that he represented. They sought the pieces of the key, and when they met him in that cell, the Heroes matched his chaotic magic with great will and determination. His power was sedated..." 
+
+He paused, and his eyes met yours. "Until you came along, it seems, bringing us to the present."
 
 ----
 
@@ -456,7 +460,7 @@ Because some idiot jester had to keep fucking around, now you were stuck in *thi
 
 After what felt like minutes of silence, you seemed to unfreeze, and the words started to tumble out, slow and quiet at first, but gradually increasing in volume and energy as thought after thought flashed in front of your mind. "...I... Fuck, man. That's not- ...Why would he do that? Why- god, my friends- What about my roommate?! They're- Fucking Jevil- I had a whole life- Why does shit never want to work out for- FUCKING **JEVIL!**"
 
-Somewhere in the midst of your rambling, subconsciously, a scythe had fizzled into existence in your hands, and your friends ducked out of the way as you swung it about in your raving. The buzz of Jevil's magic within you surged through your palms into the blade, and as you swung the blade down, punctuating your final exclamation, you felt it catch on *nothing*, then slice.
+Somewhere in the midst of your gradually animated rambling, subconsciously, a scythe had fizzled into existence in your hands, and your friends ducked out of the way as you swung it about in your raving. The buzz of Jevil's magic within you surged through your palms into the blade, and as you swung the blade down, punctuating your final exclamation, you felt it catch on *nothing*, then slice.
 
 As the blade cut through the air, a *hole* in the space in front of you opened, a window into another world.
 
@@ -484,11 +488,11 @@ And then, surrounded by your new monster friends (and Kris), you began to sob un
 
 The next weeks were a blur of malaise and depression and mourning.
 
-You had said once that you were glad to not be working in your world, enraptured as you were with the casual whimsy of this world, and that still held true. But there were things that you were realising you would potentially never see again that really hit you during this time. 
+You had said once, at the beginning of this whole mess, that you were glad to not be working in your world, enraptured as you were with the casual whimsy of this world, and that still held true. But there were things that you were realising you would potentially never see again that really hit you during this time. 
 
 Computers, phones, technology. Talking to your friends over the internet. Music, especially the dance music and concerts of your time. The particular tingle of soft drinks.
 
-One positive of what had come to pass, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from really *grasping* the usage of magic had lifted. 
+One positive of what had come to pass, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from the usage of magic had lifted. 
 
 Though you had moved your magic training and learning to a part of the Crimson Forest a reasonable ways off the beaten track (enough that you could rest easier about anyone unexpectedly becoming a victim of another emotionally-induced magical surge), you quickly mastered basic magical spells and began to tap into the magics that were closely tied to your soul... and those that powered the body you possessed. 
 
@@ -502,7 +506,7 @@ The bullets that Jevil's magic summoned were, confusingly, seemingly themed afte
 
 You, or rather Jevil - you were a Jester. Or rather - to complete the analogy that was only now hitting you with full clarity - the *Joker* of the Card Kingdom.
 
-
+Wait, did that mean ...? What *did* that mean? That this world's rules and manner were based on a card deck? You hadn't really thought much about the difference between the Light and Dark worlds. You'd have to ask Ralsei or one of the Lightners about it next time you had the chance...
 
 ----
 
@@ -602,7 +606,7 @@ You eyed 'Kris', gesturing rudely at him. Speaking to whereever this voice was c
 
 **[ANGEL.]**
 
-The Vessel turned, and you followed to see that a dark, imposing knight figure had appeared in this void with you, staring impassively at you with it's weapon drawn, but not ready to strike. And behind them...
+The Vessel turned, responding to the voice's call, and you followed to see that a dark, imposing knight figure had appeared in this void with you, staring impassively at you with it's weapon drawn, but not ready to strike. And behind them...
 
 Very faint shapes of something massive, something ominous, loomed over the three of you. It felt like it should have been invisible, but its aura in this moment or... *something*... was so imposing at that moment. You got the impression that *this* was the booming voice speaking to you.
 
@@ -617,6 +621,10 @@ The entity continued to speak to the Player.
 **[PROLONGING IT BY INDULGING IN THESE FANTASIES WILL NOT BE TOLERATED.]**
 
 **[THIS DETOUR IS HEREBY OVER.]**
+
+**[YOU HAVE WORK TO DO.]**
+
+**[WORK THAT MANY WOULD REPLACE YOU TO DO.]**
 
 **[I WILL ALLOW YOU TO CONTINUE ON ONE CONDITION.]**
 
@@ -642,7 +650,7 @@ Something was controlling you, keeping you in place.
 
 You felt the full weight of the puppetmaster's hold on you.
 
-You could only watch in growing terror as the Player approached.
+You could only watch in growing terror as the Player approached, expression blank.
 
 **[YOU MISUNDERSTAND, JESTER.]**
 

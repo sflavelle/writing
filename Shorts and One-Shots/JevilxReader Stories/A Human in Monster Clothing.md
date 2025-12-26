@@ -29,7 +29,7 @@ Welp guess you suddenly had to learn to walk with legs that didn't bend the way 
 
 And... you had hooves. So that was what you heard - hard... bone? Keratin? You weren't awake/alive enough for this shit - that made up your feet hitting the floor.
 
-So... it seemed you had woken up as some kind of deer monster.
+So... it seemed you had woken up as some kind of anthropomorphic deer monster.
 
 Well, this was going to be something.
 
@@ -85,7 +85,7 @@ You spent the next hour or so in an upstairs lab room that was repurposed as a l
 
 You fell asleep again sooner than you expected, and when you woke sometime that 'morning' you had had a blanket draped carefully over you, and a hand mirror placed nearby. You were pleasantly surprised - you had no idea how long you were in Alphys' care before you woke, but you had perhaps expected for her to be less personal. Whatever the reason, though,  you were content - you weren't in immediate danger, and while Jevil had still not shown his face since you awoke, around Alphys you felt safe enough. 
 
-One glance at your face in the mirror showed you why you had given the good doctor a shock - though the body was your own this time (by your knowledge, anyway), you had still retained Jevil's distinctive black eyes and gold irises, now even more shocking on this normal body. 
+One glance at your face in the mirror showed you why you had given the good doctor a shock - though the body was your own this time (by your knowledge, anyway - in fact it looked like a fursona you had had), you had still retained Jevil's distinctive black eyes and gold irises, now even more shocking on this normal body. 
 
 Speaking of the scientist, she was fascinated with the world you had come from - "That explains how you're so comfortable with all this," she had said. She told you that she wanted especially to examine your 'shell' and your soul... "T-to see how it has adapted, o-of course!"
 
@@ -117,7 +117,7 @@ Alphys snorted, despite the tense moment. After calming herself down and taking 
 
 "And then there was one day, I went to visit him and there was just? A hole? In the wall? Not that he broke the wall, no-- it was like... a window to somewhere else entirely... And he came out of it carrying your body as it is now. And he asked me to look after you like we d-did for him. I um, I think he's a couple towns away at the moment? In uhh... Snowdin I think? I think he may be looking for somewhere for you both to stay."
 
-You were silent for a minute, processing what she told you as you finished eating. She had known for... some amount of time, that you were definitely human, and in fact that for a time you had been just a soul. In a world where - you recall vaguely - these monsters needed human souls to break free from the Underground, you were surprised that you were still here. Your eyebrows raised as you thought. Alphys - and apparently Mettaton - could have easily decided to just take your soul and put it towards the barrier. But here you were. Why? Was it because of a threat of Jevil's power? Did Alphys feel some obligation that succeeded her own duty to the crown?
+You were silent for a minute, processing what she told you as you finished eating. She had known for... some amount of time, that you were definitely human, and in fact that for a time you had been just a soul. In a world where - you recall vaguely - these monsters needed human souls to break free from the Underground, you were surprised that you were still here. Your eyebrows raised as you thought. Alphys - and apparently Mettaton - could have easily decided to just take your soul while you were unconscious and put it towards the barrier. But here you were. Why? Was it because of a threat of Jevil's power? Did Alphys feel some obligation that succeeded her own duty to the crown?
 
 Come to think of it, there was a gap of time between your death at the hands of the Angel's Vessel and when you began to dream again. Could it be that gaining a body was what triggered your return to awareness, your return to the waking world?
 
@@ -137,7 +137,7 @@ Your expression sank.
 
 "Oh, shit." You bit your lip. "I... can understand why he wouldn't be happy with them then."
 
-She nodded. "But... you're not *from* the surface, are you? Not our surface. ...If... you'd let me learn about you, and do some tests... I could make a case for an exception for you. Not being a surface human. You... seem nice enough. O-or at least, you haven't tried to kill me." She awkwardly chuckled, trying to lighten the mood.
+She nodded. "But... you're not *from* the surface, are you? Not our surface. Assuming that you from the same place Jevil came from ...If... you'd let me learn about you, and do some tests... I could make a case for an exception for you. Not being a surface human. You... seem nice enough. O-or at least, you haven't tried to kill me." She awkwardly chuckled, trying to lighten the mood.
 
 You responded to the latter remark with a raised eyebrow. "Well... let me know what I can do to help you, I suppose. Uh - short of giving my life, of course." You had to at least return Alphys' awkward light-making joke.
 
@@ -147,7 +147,7 @@ She nodded, and smiled lightly.
 
 And so, you allowed yourself to be examined for the rest of the day. Alphys was thorough with her work - examining your soul's condition, noting its prominent Perseverance trait, followed by gentle CHECKs and probes to determine your statistics.
 
-Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic like other monsters, but *darkness* - still magical in nature, but tinged with something close to, but not quite Void. You had to remind yourself that it was because it was Ralsei the Prince of Darkness that had created this Darkner vessel to hold your soul.
+Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic like other monsters, but *darkness*-infused magic - tinged with something close to, but not quite Void. You had to remind yourself that it was because it was Ralsei the Prince of Darkness that had created this Darkner vessel to hold your soul.
 
 It was veins *within* the dark vessel that carried the magic through the body and protected the soul. Your magical link with Jevil was also found in this examination - a pool of magical energy that ebbed and flowed gently *around* your soul as your body used it, replenished from some unseen source.
 
@@ -183,13 +183,13 @@ It rang four times before the monster on the other end responded. "Howdy, Doctor
 
 "Y-yes sir, I'm perfectly fine. I rang to inform... uh... t-the *subject* has awoken, Asgore."
 
-There was a pause, followed by a heavy sigh on the other end... The sigh of a person that had hoped that he might not have to take action. "I see. Please, tell me everything you can."
+There was a pause, followed by a heavy sigh on the other end... The sigh of a person that had hoped that he might not see this day, inevitable though it was. "I see. Please, tell me everything you can."
 
 ----
 
 Although at first Mettaton the robot monster was skeptical of your intentions underground - though he had to admit, being unconscious for several weeks and in fact being *revived* by a monster somehow had helped your case...
 
-As he talked with you, sitting across the couch from each other in the main room...
+As he interviewed you, sitting across the couch from each other in the main room...
 
 The way you answered his questions the best as you were able, offering information about yourself and what you knew about why you were in the Underground (Jevil probably just ended up here and liked it?) and how you and Jevil met up (he soulswapped with you to escape imprisonment, then only jumped in to save your soul when an extradimensional entity threatened your soul/his body (yes you were upset about being manipulated))...
 
@@ -227,6 +227,20 @@ You were promptly tackled to the floor, screwdriver clattering to the ground.
 
 "You remember me!" He cried cheerfully. 
 
+"...Uh, yeah, I *was* you for a few months." Suddenly it felt way too early to be dealing with this much energy. 
+
+He grinned. "Uee hee hee! Was it fun, walking a mile in someone else's skin~?"
+
+Your mouth opened to respond, but then you shut it again. "I uh, when you put it like that it was frankly terrifying."
+
+"Splendid! You received the true Jevil experience, after all, after all~" He giggled as you finally pushed him off of you, sitting up. 
+
+"Oh god *please* don't call it that." You mock-gagged as his giggle became a full laugh.
+
+Once he had let you get up, you reintroduced yourself to him (after all, you were pretty sure you two hadn't properly met before he reached into your dreamscape via the magical bond you two now shared), and then as you resumed partially disassembling and cleaning the laptop, he told you his story. 
+
+
+
 ----
 
-"Y/N? Are you still up here?" Alphys' voice called from downstairs. "Someone has arrived to escort you to your meeting with A-Asgore."
+l

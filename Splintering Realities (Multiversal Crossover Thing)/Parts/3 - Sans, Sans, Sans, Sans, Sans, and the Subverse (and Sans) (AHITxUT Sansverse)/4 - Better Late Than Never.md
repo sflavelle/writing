@@ -18,7 +18,7 @@ Sans' eyelights immediately sputtered out, Frisk gasped in awe, and Flowey's eye
 
 He had immediately seen how Cross's eyelights had shifted from their normal white to a familiar, *determined* blood red.
 
-Even as Sans had to mentally remind himself '*not our chara, not our chara*', he spoke after a moment of silence, "i thought *chara* was your first name."
+Even as Sans had to mentally remind himself '*not our chara, not our chara*', he spoke after a moment of silence, "i... thought *chara* was your first name."
 
 "I--" 'Chara' blinked, confused. "Yes it is...?"
 
@@ -48,7 +48,7 @@ They drew a line from that circle, and began to draw a new circle below it. "Now
 
 "... How am I anything like those annoying mutts?" Flowey scoffed.
 
-"Blame the code," Chara shrugged. "Now, what if we swapped them around...? Gave one monster the other's role, the other's personality?"
+"Blame the code," Chara shrugged. "The universe loves to work in pairs. Now, what if we swapped them around...? Gave one monster the other's role, the other's personality?"
 
 "huhhhh," Sans said, realising. "that's how you get blue."
 
