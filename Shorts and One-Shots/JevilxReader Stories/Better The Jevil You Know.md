@@ -126,7 +126,7 @@ There's a slight pause, as your visitors seem to expect something to happen - gl
 
 "You know! The, the... merry-go-round thing! You had a whole thing going here! Now it's all boring."
 
-"I'm sorry to disappoint." You rolled your eyes, noticing Ralsei stepping closer.
+You blinked. "I'm... not sure what to tell you. Sorry to disappoint?" You rolled your eyes, noticing Ralsei stepping closer.
 
 The healer lifts a hand, and you feel a ticklish sensation in your chest. You let out a huff, trying not to let it get to you as Ralsei does... whatever he needs to do, the other two protecting him from you.
 
@@ -172,11 +172,11 @@ Your eyes widen. Wait. "He's... in another universe."
 
 You shake your head, and slowly clamber to your feet, trembling from weakness. "World's a world, dude. No, I'm... separate, from all this. Living an entirely different life. None of this... magic, monsters. Not a thing. I'm from a different universe completely."
 
-There was silence as you finally stood, and you looked at the jester hat on the ground. You reached out with a blue-grey, clawed hand to pick it up, looking it over. "Guess that means either my world's fucked, or... or he is, heh. Depending on where the magic went."
+There was silence, awkwardness as you finally stood, and you looked at the jester hat on the ground. You reached out with a blue-grey, clawed hand to pick it up, looking it over. "Guess that means either my world's fucked, or... or he is, heh. Depending on where the magic went."
 
 Kris frowned. "A conundrum."
 
-"I wish I could help you more on finding him." You shook your head. 
+"I wish I could help you more on finding him." You shook your head. "But I've been stuck here the past... I dunno. Day, I think." 
 
 "We'll find a way," you heard Ralsei say, and you are surprised when you suddenly feel his paw on your shoulder. You look up at them and smile. 
 
@@ -344,7 +344,7 @@ He nodded, smiling warmly. "Soul magic is a complicated business, after all, it 
 
 "I would not necessarily think about it in that light," was the magician's response, resting a paw on your shoulder. "You may have suffered many hardships in your journey through life... perhaps there is an ultimate goal you are pursuing, and though you may be beaten down, you are *persisting*, *not giving up*. I believe perseverance is best characterised as knowing that, no matter what life throws in your path, no matter how long it will take, ultimately you will reach your destination, because *you will never truly give up*. You may pause, you may temporarily abandon the task, but you *will* get there in the end. *That* is perseverance."
 
-He guided you to the table to one side of your room, and you both took a seat. After aiding you in guiding your soul back into place in your chest, he continued. "Perhaps think about it in the context of your current situation," he continued. "You have been thrown into the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him. That you are someone capable of being trusted."
+He guided you to the table to one side of your room, and you both took a seat. After aiding you in guiding your soul back into place in your chest, he continued as you poured him a cup of tea. "Perhaps think about it in the context of your current situation," he continued. "You have been thrown into the form of someone who had, unfortunately made themselves quite infamous by the time of their imprisonment. Someone else may have simply learned to accept that fate, but you have pushed to try and repair the damage he had done to himself, not taking his reputation as set in stone. And as a result, you are convincing the staff in this castle, as well as the general public, that though you inhabit his body, you are a different person to him. That you are someone capable of being trusted."
 
 You nodded, taking in his words. "I mean... I'm doing what I'm doing not out of any sense of duty to him. More out of a sense of wringing some normality and comfort out of the lot I've been given..."
 
@@ -374,7 +374,7 @@ Seam sighed deeply. "I remember that at first, we both had a good laugh about th
 
 "But then... my friend started to hallucinate. It started with him confiding in me that he had been beginning to see others' words written out before him. He believed he could see the HP of others as easily as looking at them. He believed the knowledge he had received was driving him mad. This drove him to try to understand why this was happening to him..."
 
-"The conclusion that Jevil finally arrived at, about... two weeks after the encounter with the strange someone, was that they were *correct*. He began to believe that the Card Kingdom *was* a game of some kind, and that everything that occurred had been predetermined by some higher being."
+"The conclusion that Jevil finally arrived at, about... two weeks after the encounter with the strange someone, was that they were *correct*. He began to believe that the Card Kingdom *was* a game of some kind, and that everything that occurred had been predetermined by some higher being. That everything he had done up to that point had been planned, part of a script made just for him."
 
 "He began to believe that by being given this information, he was given the means to 'break free' of this predetermined world he now believed was the truth."
 
@@ -394,7 +394,7 @@ Where does that leave you, though? In a sense Jevil was *right*, and you had bee
 
 You would keep this knowledge to yourself.
 
-"And that was how it was," Seam continued on eventually, unaware of your internal deliberations, "Until the Four Kings became the Spade King and three missing Kings, and this world was enveloped in Dark. Eventually the Heroes of Light arrived, and in their quest to stop the entropy of the Dark Fountain, they became aware of Jevil's existence. Their mission did not require it, and yet... They sought to tie up the loose end that he represented. They sought the pieces of the key, and when they met him in that cell, the Heroes matched his chaotic magic with great will and determination. His power was sedated..." 
+"And that was how it was," Seam continued on eventually, unaware of your internal deliberations, "Until the Four Kings became the Spade King and three missing Kings, and this world was enveloped in Dark." He took a sip of his tea. "Eventually the Heroes of Light arrived, and in their quest to stop the entropy of the Dark Fountain, they became aware of Jevil's existence. Their mission did not require it, and yet... They sought to tie up the loose end that he represented. They sought the pieces of the key, and when they met him in that cell, the Heroes matched his chaotic magic with great will and determination. His power was sedated..." 
 
 He paused, and his eyes met yours. "Until you came along, it seems, bringing us to the present."
 
@@ -496,7 +496,7 @@ Computers, phones, technology. Talking to your friends over the internet. Music,
 
 One positive of what had come to pass, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from the usage of magic had lifted. 
 
-Though you had moved your magic training and learning to a part of the Crimson Forest a reasonable ways off the beaten track (enough that you could rest easier about anyone unexpectedly becoming a victim of another emotionally-induced magical surge), you quickly mastered basic magical spells and began to tap into the magics that were closely tied to your soul... and those that powered the body you possessed. 
+You had moved your magic training and learning to a part of the Crimson Forest a reasonable ways off the beaten track - Having seen what the magic you possessed was capable of, you were wary of causing accidental harm to someone because you were still learning to control the amount of energy you put into your magic. You quickly mastered basic magical spells and began to tap into the magics that were closely tied to your soul... and those that powered the body you possessed. 
 
 Though Ralsei was unavailable to guide you, as he wished he were able - currently helping Kris and Susie to fulfill the prophecy and prevent what he called 'The Roaring' - Seam found time on occasion to nudge you toward discovering your latent soul magic. He was also able to show you how to summon 'bullets' - pure magic energy condensed into a shape befitting the caster, full of intent.
 

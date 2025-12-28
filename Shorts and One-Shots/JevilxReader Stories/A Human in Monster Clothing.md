@@ -219,29 +219,15 @@ Raiding from Alphys' stash of mismatched screwdrivers at her workbench, you foun
 
 ...when the door into the lab opened, and a gust of hot air from outside rushed past you. Even that brief breath of Hotland air was stifling. "Hiya," you called, glancing briefly at the guest who had just entered before returning to your work. "Alphys is busy at the minute, I think she'll be out shortly--"
 
-You were promptly tackled to the floor, screwdriver clattering to the ground. 
+The glowing blue spear that then blocked your view of the laptop's internals got you to shut up. The side pressed at your face, prodding you to look back up at its owner.
 
-"MY DEAR FRIEND, FRIEND!" cheered a familiarly bitcrushed voice as they lay atop you, nuzzling into your cheek. "How wonderful to see my companion return to the waking world!"
+A scowling redheaded fish woman in a black tank top and denim jeans.
 
-"...*Jevil*?" You blinked, dazed as you stared up at the fuzzy purple face.
+You sighed, and rolled your eyes, nodding your head back toward the rear of the lab. "She's in one of the exam rooms with Mettaton."
 
-"You remember me!" He cried cheerfully. 
+You made to return to your work, but she interrupted you, again moving your head up with the side of her spear. "It's you, isn't it?" She growled.
 
-"...Uh, yeah, I *was* you for a few months." Suddenly it felt way too early to be dealing with this much energy. 
-
-He grinned. "Uee hee hee! Was it fun, walking a mile in someone else's skin~?"
-
-Your mouth opened to respond, but then you shut it again. "I uh, when you put it like that it was frankly terrifying."
-
-"Splendid! You received the true Jevil experience, after all, after all~" He giggled as you finally pushed him off of you, sitting up. 
-
-"Oh god *please* don't call it that." You mock-gagged as his giggle became a full laugh.
-
-Once he had let you get up, you reintroduced yourself to him (after all, you were pretty sure you two hadn't properly met before he reached into your dreamscape via the magical bond you two now shared), and then as you resumed partially disassembling and cleaning the laptop, he told you his story. 
-
-
-
-----
+---
 
 "NO!" You screamed out, as the last spear buried itself in your SOUL and dissipated.
 
