@@ -24,7 +24,7 @@ They were stuck in this room.
 
 "Wh- No, seriously!" Ralsei ran over to pull Jevil's hands away from the machines. "Something about this gives me a really bad-"
 
-The metal door jolted to life, slowly sliding across.
+The large metal door jolted to life, slowly sliding across.
 
 The three turned...
 

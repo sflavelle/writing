@@ -136,12 +136,26 @@ Eventually she was ushered into an apartment building, Undyne handling the keyca
 
 "Alright Lily, you hold tight. Tori will have your shoulder fixed up good as new! Just gotta find her." She turned to the skeleton. "She's not left or anything, has she?"
 
-"pretty sure she's up, not left." the skeleton *winked*.
+"pretty sure she's up, not left." the skeleton *winked*, his skull apparently malleable.
 
 "UUUUGH," was the flower's response on Lily's right. 
 
 "too easy. yeah, I think she's still reading with frisk, cap."
 
 "Great. Make sure this one stays put while I get her." Then Undyne walked off, and up some stairs leading into the apartments.
+
+Lily could feel the gaze of both monsters upon her, making her nervous. She pointedly kept her focus on the television. 
+
+Theyv allowed the silence for a minute or so, but inevitably...
+
+"hey, uh, you alright kiddo?" came the first question, from her left. The skeleton leaned in your direction, his voice and expression relaxed, but something in his... 'eyes'... betrayed some hint of concern. "that's uhhh... quite an injury you got there. can't tell if it's bleeding either."
+
+"You idiot," called the flower to her right. "Just look at her! She's clearly not human! Course she won't bleed!"
+
+"well she's clearly not a monster either. you from around here, kid?"
+
+Lily took a breath, and shook her head, staying silent. 
+
+
 
 *(A note to myself - Lily is a Perseverance soul)*

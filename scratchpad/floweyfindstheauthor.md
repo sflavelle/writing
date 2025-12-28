@@ -20,4 +20,7 @@ You cracked an eye open when you were sprayed with dirt once more.
 
 Yep, there he was. 
 
-You stared up at the grinning flower that had sprouted up next to you.
+You stared up at the grinning flower that had sprouted up next to you. "It took us a long time to find you, after all! The least you could do is hear us out!"
+
+You groaned, closing your eyes again. "And... who is 'us'...?"
+

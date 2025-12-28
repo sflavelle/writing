@@ -384,7 +384,9 @@ Seam sighed deeply. "I remember that at first, we both had a good laugh about th
 
 Your mind boggled as you processed the words of the former Court Magician. And you weren't entirely sure how to respond either. After all, you already *knew* that Deltarune was a video game, at least where you came from. Plus, you had grown adjusted to the weird 'dialogue box' that was a regular vision at this point.
 
-But, you were already aware of the nature of 'video games' and video game mechanics before you were dropped into this world, which made your current lived experience much easier to swallow. Perhaps, to someone like Jevil who would have had no idea of this sort of thing, living in this pseudo-medieval realm, the revelation of a world that was pre-programmed might be like... a sort of cosmic horror, you realised. You remembered a social media post about an ant being given the intelligence, comprehension of a human, briefly, before having it stripped away, unable to communicate or understand what it just saw. Jevil getting perhaps a glimpse of just how this world was made, built, powered... the revelation that 'before' he was simply a set of sprites, AI code and some written dialogue - a puppet in a play...
+But, you were already aware of the nature of 'video games' and video game mechanics before you were dropped into this world, which made your current lived experience much easier to swallow - even if it was still weird and strange. Perhaps, to someone like Jevil who would have had no idea of this sort of thing, living in this pseudo-medieval realm, the revelation of a world that was pre-programmed might be like... a sort of cosmic horror, you realised.
+
+You remembered a social media post about an ant being given the intelligence, comprehension of a human, briefly, before having it stripped away, unable to communicate or understand what it just saw. Jevil getting perhaps a glimpse of just how this world was made, built, powered... the revelation that 'before' he was simply a set of sprites, behaviour code and some written dialogue - a puppet in a play...
 
 Okay, maybe you could see how he had gone 'mad'. "Holy fuck..." you breathed.
 

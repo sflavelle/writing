@@ -1,6 +1,6 @@
 "They called themselves Chara Dreemurr," said a small voice at the edge of the gathering. 
 
-Flowey had borrowed their way in through a gap in the tiled floor, bit did not seem his cheery/creepy self. In fact the golden flower looked quite glum, his eyes dim and shadowed. 
+Flowey had borrowed their way in through a gap in the tiled floor, but did not seem his cheery/creepy self. In fact the golden flower looked quite glum, his eyes dim and shadowed. 
 
 "Chara Dreemurr is dead," Asgore stated bluntly. 
 
