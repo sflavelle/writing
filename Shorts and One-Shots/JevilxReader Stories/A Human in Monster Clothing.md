@@ -243,4 +243,72 @@ Once he had let you get up, you reintroduced yourself to him (after all, you wer
 
 ----
 
-l
+"NO!" You screamed out, as the last spear buried itself in your SOUL and dissipated.
+
+The next moments seemed to happen in slow motion.
+
+There was a sharp *crack* that rang out like a gunshot in the enclosed space as your eyes went wide.
+
+A bright glow diverted your attention to your chest, where you, Undyne *and* Alphys could see your SOUL lit up *through your body*, cracked to pieces.
+
+[ 0 / 20 HP. ]
+
+You felt your SOUL split apart...
+
+...before the pieces slammed *back together* with force, your body pulsing and shimmering with the same purple light, time speeding back up as you staggered backward. Your body surged with magical energy, a roar in your ears as your SOUL, your *perseverence*, fought to keep you from falling apart.
+
+A gasp had your eyes snap back up to Undyne. She was staring at you in a mix of astonishment and horror. "H-How are you still standing?! Your HP is literally zero!"
+
+You gathered your breath to respond--
+
+Before Jevil suddenly appeared between you and the captain, snarling at her. Several spade bullets hovered in the air already, ready to strike. "You *fiend*! You would *dare* to lay your hands on an innocent?!"
+
+"Wh- Humans aren't innocent!" The captain spat back at him. "They're the ones that put us down--"
+
+You could feel the intent before the action. "Jevil, don't-!" you called out, your hand shooting out even as you clutched your chest.
+
+But Jevil was already launching his barrage of spade bullets--
+
+A purple magical barrier phased in between the two monsters, and as it absorbed Jevil's attack against Undyne, you felt each blow, tanking each hit even as your SOUL was trying to break itself apart. Your purple sheen flickered with each hit your shield absorbed.
+
+[ 0 / 20 HP. ]
+
+You grunted, pushing through the pain as best you could. You had to resolve this, *now*. While you were still standing. "Jevil, we can't!" You told him. "We don't... ugh... we don't need to fight anymore. We're free here... you told me yourself. But to keep that freedom we need to coexist with these people. ...Undyne..." Your eyes flickered back to her, slightly dulled. "I know my soul means a lot right now. ...But give me a chance, please. There'll always be more humans. More deserving humans. We... can at least help make life down here more bearable."
+
+You were beginning to feel weak, dropping to your knees even as your perseverence fought to keep you alive. This prompted Alphys to finally kick into action, running to find you some sort of food.
+
+"...You just..." Undyne began, swallowing. "...You just stopped him from attacking me."
+
+A moment of quiet, punctuated by the heavy breathing of the three of you.
+
+"...You're for real, aren't you?" She finally said, lowering her spear.
+
+"Ha HA!" Jevil suddenly called, summoning more spades. "Never let your guard--"
+
+[ 0 / 20 HP. ]
+
+He stopped, the spade bullets flickering away as you slumped against his back. Your hand was still out, trying to keep the barrier blocking his and Undyne's attacks summoned. He could tell - whatever powerful fusion magic you had cast to prolong your survival wouldn't last if your physical form deteriorated through trying to both hold yourself together and preventing him from attacking your to-be killer. "...My friend's life is worth more than my vengeance," he finally decided.
+
+Then there was a scythe in his hand, and as he opened a portal to the lab's living space and kitchen, scooping you up into his arms and stepping through, the portal closing up after him.
+
+The shield barrier dissipated.
+
+And Undyne was left alone in the main lab.
+
+The spear fizzled away as she dispelled it, letting out a deep sigh.
+
+The tense encounter was over.
+
+Not in the way she had initially wanted, with the human soul escaping (and staying intact, she found herself hoping).
+
+But the human had refused to harm her. Had refused to let *another monster* harm her, even though it hurt them to do so.
+
+...Maybe this outcome was for the best.
+
+She unrooted herself from the ground and went to retrieve Alphys.
+
+-----
+
+The two found you laid down on the couch in the living area, whole and intact and asleep. The shimmer and glow of magic was gone, and a quick CHECK showed you had at least managed to eat a couple monster candies, your HP no longer at zero.
+
+Jevil sat next to your head, caring for you while you recovered from your exhaustion.
