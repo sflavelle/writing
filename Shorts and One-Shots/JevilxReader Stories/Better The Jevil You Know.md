@@ -274,7 +274,7 @@ Which is how you would find yourself in the archives for most of your free time,
 
 It wasn't working out yet - as it turned out, trying to learn techniques that were simply innate ability for monsters was a *lot* of trial and error... Just because the body you currently inhabited was capable, did not mean you immediately knew how to tap into that energy. But you kept at it - you wanted to be able to cast magic at least once, even if it wasn't going to follow you once you were reunited with your own body.
 
-One day while deep in this fervor of study, sipping on a cup of coffee provided for you by one of the kitchen staff (sadly still acting strangely around you, but whom *seemed* to be beginning to let their guard down), you heard the doors into the archive burst open, and you snap your head to the side to avoid the subsequent spittake from damaging any of the many you still had surrounding you.
+One day while deep in this fervor of study, sipping on a cup of coffee provided for you by one of the kitchen staff (sadly still acting strangely around you, but whom *seemed* to be beginning to let their guard down), you heard the doors into the archive burst open loudly, and you snap your head to the side to avoid the subsequent spittake from damaging any of the many books you still had surrounding you.
 
 While calming your thumping heart (worriedly feeling for it when you don't actually feel anything under your hands) you hear the hurried footsteps of someone approaching. You turn in your seat and...
 
@@ -304,11 +304,21 @@ You raised an eyebrow toward the Duke at the nickname 'Lesser Dad'.
 
 "A pleasure," you smiled toward the boy. "Forgive me, I've been among many young ones who have played at being princesses or kings or queens in my time. I thought this was another such case."
 
-Lancer shrugged. "Hey, wanna listen to some music with me?!" He began to dig in his pockets.
+Lancer shrugged. "You look like someone Dad told me about once. D'you wanna listen to some MP3s with me?!" He began to dig in his pockets.
 
-Whatever you were *going* to say died on your lips as the kid straight up pulled an *MP3 player* out, presenting it proudly.
+"...I- hold on a second, what do you mean by MP3-- oh *that*." You cut yourself off as he casually pulled a late-2000s MP3 player from his pockets.
 
-...Evidently the technology in this world was much more modern than you had thought.
+...Evidently the technology in this world was much more modern than you had thought. You voiced as such.
+
+He quickly powered it on and thrust one earbud into your hands, putting the other in his-- ah the white part of his head was a mask or hoodie or something, you thought as he slid the earbud beneath it. You did the same and...
+
+Cartoon sound effects. Rather, wet splat noises. You unconsciously mimicked one of the sounds with your mouth, which had the kid grinning up at you. "I'm not sure what I expected, but it wasn't this." You glanced at Rouxls with a confused expression, to which he responded with a silent shrug. "You got any music on that?" you asked Lancer.
+
+"Nah! Lo-fi splats to relax and study to is where it's at!" He grinned.
+
+"...fair enough." You shrugged. "Now you've got me wishing I had my own music to listen to."
+
+You began to properly introduce yourself to the boy king, you and Rouxls filling him in on your story, and why you now inhabited this body.
 
 ----
 
