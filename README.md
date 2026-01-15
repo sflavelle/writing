@@ -1,6 +1,6 @@
 # My Writing Repo
 
-This git repo contains all my writing in my new system so far, from several fanfictions and one-shots. **ALL** of my writing can be found at [my site](https://neurario.com/writing), and some can be found on *[Archive of our Own](https://archiveofourown.org/users/N448)*.
+This git repo contains all my writing in my new system so far, from several fanfictions and one-shots. **MOST** of my writing can be found on *[Archive of our Own](https://archiveofourown.org/users/N448)*.
 
 ## Folder Structure
 
