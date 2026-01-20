@@ -4,7 +4,7 @@ Frozen in place, Sans could only watch as Frisk, the *murderer* that took his fr
 
 Was this how it ended for him? 
 
-But then, there was a sound that sounded like a click, like someone had pressed play on a cassette player and -
+But then, there was a sound that sounded like a click and whirring, like someone had pressed rewind on a cassette player and -
 
 The world RESET.
 
@@ -72,7 +72,7 @@ The world which contained this 'time rift' felt very... abstract. As opposed to 
 
 This wasn't always here, hidden behind the pillars of the Judgement Hall, was it?
 
-Turning back to the human kid, he found that she had, again, moved ahead. He caught a glimpse of her near the top, floating back down to him with an open umbrella in one hand, and a glowing hourglass clutched to her chest with the other.
+Turning back to the human kid, he found that she had, again, moved ahead. He caught a glimpse of her near the top of the structure, floating back down to him with an open umbrella in one hand, and a glowing hourglass clutched to her chest with the other.
 
 ...heh. time rifts. hourglasses. 'tempus' traveller.
 

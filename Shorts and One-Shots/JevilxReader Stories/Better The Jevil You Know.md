@@ -310,7 +310,7 @@ Lancer shrugged. "You look like someone Dad told me about once. D'you wanna list
 
 ...Evidently the technology in this world was much more modern than you had thought. You voiced as such.
 
-He quickly powered it on and thrust one earbud into your hands, putting the other in his-- ah the white part of his head was a mask or hoodie or something, you thought as he slid the earbud beneath it. You did the same and...
+He quickly powered it on and thrust one earbud into your hands, putting the other in his-- ah, the white part of his head was a mask or hoodie or something, you realised as he slid the earbud beneath it. You did the same and...
 
 Cartoon sound effects. Rather, wet splat noises. You unconsciously mimicked one of the sounds with your mouth, which had the kid grinning up at you. "I'm not sure what I expected, but it wasn't this." You glanced at Rouxls with a confused expression, to which he responded with a silent shrug. "You got any music on that?" you asked Lancer.
 
@@ -536,9 +536,9 @@ And then, surrounded by your new monster friends (and Kris), you began to sob un
 
 The next weeks were a blur of malaise and depression and mourning.
 
-You had said once, at the beginning of this whole mess, that you were glad to not be working in your world, enraptured as you were with the casual whimsy of this world, and that still held true. But there were things that you were realising you would potentially never see again that really hit you during this time. 
+You had said once, at the beginning of this whole mess, that you were glad to not be working in your world, enraptured as you were with the casual whimsy of this world, and that still held true. But there were things that you were realising you would potentially never experience again that really hit you during this time. 
 
-Computers, phones, technology. Talking to your friends over the internet. Music, especially the dance music and concerts of your time. The particular tingle of soft drinks.
+Talking to your friends over the internet. Music, especially the dance music and concerts of your time. The particular tingle of soft drinks.
 
 One positive of what had come to pass, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from the usage of magic had lifted. 
 

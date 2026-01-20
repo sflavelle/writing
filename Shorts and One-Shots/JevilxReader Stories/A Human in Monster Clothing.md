@@ -241,7 +241,7 @@ A bright glow diverted your attention to your chest, where you, Undyne *and* Alp
 
 You felt your SOUL split apart...
 
-...before the pieces slammed *back together* with force, your body pulsing and shimmering with the same purple light, time speeding back up as you staggered backward. Your body surged with magical energy, a roar in your ears as your SOUL, your *perseverence*, fought to keep you from falling apart.
+...before the pieces slammed *back together* with force, your body lighting up at the same time, shimmering with the same purple light, time speeding back up as you staggered backward. Your body surged with magical energy, a roar in your ears as your SOUL, your *perseverence*, fought to keep you from falling apart.
 
 A gasp had your eyes snap back up to Undyne. She was staring at you in a mix of astonishment and horror. "H-How are you still standing?! Your HP is literally zero!"
 
@@ -259,7 +259,7 @@ A purple magical barrier phased in between the two monsters, and as it absorbed 
 
 [ 0 / 20 HP. ]
 
-You grunted, pushing through the pain as best you could. You had to resolve this, *now*. While you were still standing. "Jevil, we can't!" You told him. "We don't... ugh... we don't need to fight anymore. We're free here... you told me yourself. But to keep that freedom we need to coexist with these people. ...Undyne..." Your eyes flickered back to her, slightly dulled. "I know my soul means a lot right now. ...But give me a chance, please. There'll always be more humans. More deserving humans. We... can at least help make life down here more bearable."
+You grunted, pushing through the pain as best you could. You had to resolve this, *now*. While you were still standing, while your soul was fighting itself to stay together. "Jevil, we can't!" You told him. "We don't... ugh... we don't need to fight anymore. We're free here... you told me yourself. But to keep that freedom we need to coexist with these people. ...Undyne..." Your eyes flickered back to her, slightly dulled. "I know my soul means a lot right now. ...But give me a chance, please. There'll always be more humans. More deserving humans. We... can at least help make life down here more bearable."
 
 You were beginning to feel weak, dropping to your knees even as your perseverence fought to keep you alive. This prompted Alphys to finally kick into action, running to find you some sort of food.
 
@@ -273,7 +273,9 @@ A moment of quiet, punctuated by the heavy breathing of the three of you.
 
 [ 0 / 20 HP. ]
 
-He stopped, the spade bullets flickering away as you slumped against his back. Your hand was still out, trying to keep the barrier blocking his and Undyne's attacks summoned. He could tell - whatever powerful fusion magic you had cast to prolong your survival wouldn't last if your physical form deteriorated through trying to both hold yourself together and preventing him from attacking your to-be killer. "...My friend's life is worth more than my vengeance," he finally decided.
+He stopped, the spade bullets flickering away as you slumped against his back. Your hand was still out, trying to keep the barrier blocking his and Undyne's attacks summoned. He could tell - whatever powerful fusion magic you had cast to prolong your survival wouldn't last if your physical form deteriorated through trying to both hold yourself together and preventing him from attacking your to-be killer.
+
+"...My friend's life is worth more than my vengeance," he finally decided.
 
 Then there was a scythe in his hand, and as he opened a portal to the lab's living space and kitchen, scooping you up into his arms and stepping through, the portal closing up after him.
 
@@ -297,4 +299,10 @@ She unrooted herself from the ground and went to retrieve Alphys.
 
 The two found you laid down on the couch in the living area, whole and intact and asleep. The shimmer and glow of magic was gone, and a quick CHECK showed you had at least managed to eat a couple monster candies, your HP no longer at zero.
 
-Jevil sat next to your head, caring for you while you recovered from your exhaustion.
+Jevil sat next to your head, caring for you while you recovered from your exhaustion, an odd look on his face as he considered your situation. He glanced up briefly at the two monsters as they approached, taking their own seats, but quickly resumed his vigil.
+
+"I-is... she okay?" Alphys quietly asked.
+
+"She has eaten," the jester said, equally as quiet. "She will recover."
+
+Alphys nodded, relieved.
