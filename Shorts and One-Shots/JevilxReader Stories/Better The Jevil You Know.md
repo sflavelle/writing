@@ -538,7 +538,7 @@ The next weeks were a blur of malaise and depression and mourning.
 
 You had said once, at the beginning of this whole mess, that you were glad to not be working in your world, enraptured as you were with the casual whimsy of this world, and that still held true. But there were things that you were realising you would potentially never experience again that really hit you during this time. 
 
-Talking to your friends over the internet. Music, especially the dance music and concerts of your time. The particular tingle of soft drinks.
+Computers, phones, technology. Talking to your friends over the internet. Music, especially the dance music and concerts of your time. The particular tingle of soft drinks.
 
 One positive of what had come to pass, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from the usage of magic had lifted. 
 
