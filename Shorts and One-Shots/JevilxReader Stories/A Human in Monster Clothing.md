@@ -261,7 +261,7 @@ A purple magical barrier phased in between the two monsters, and as it absorbed 
 
 You grunted, pushing through the pain as best you could. You had to resolve this, *now*. While you were still standing, while your soul was fighting itself to stay together. "Jevil, we can't!" You told him. "We don't... ugh... we don't need to fight anymore. We're free here... you told me yourself. But to keep that freedom we need to coexist with these people. ...Undyne..." Your eyes flickered back to her, slightly dulled. "I know my soul means a lot right now. ...But give me a chance, please. There'll always be more humans. More deserving humans. We... can at least help make life down here more bearable."
 
-You were beginning to feel weak, dropping to your knees even as your perseverence fought to keep you alive. This prompted Alphys to finally kick into action, running to find you some sort of food.
+You were beginning to feel weak, dropping to your knees even as your perseverence fought to keep you alive, burning through your magical supply. This prompted Alphys to finally kick into action, running to find you some sort of food.
 
 "...You just..." Undyne began, swallowing. "...You just stopped him from attacking me."
 
@@ -297,12 +297,25 @@ She unrooted herself from the ground and went to retrieve Alphys.
 
 -----
 
-The two found you laid down on the couch in the living area, whole and intact and asleep. The shimmer and glow of magic was gone, and a quick CHECK showed you had at least managed to eat a couple monster candies, your HP no longer at zero.
+The two found you laid down on the couch in the living area, whole and intact and asleep. The shimmer and glow of magic was gone, and a quick CHECK showed you had at least managed to eat a couple monster candies, your HP no longer at zero, and your SOUL had stitched itself back together.
 
-Jevil sat next to your head, caring for you while you recovered from your exhaustion, an odd look on his face as he considered your situation. He glanced up briefly at the two monsters as they approached, taking their own seats, but quickly resumed his vigil.
+Jevil sat next to your head, caring for you while you recovered from your exhaustion, an odd look on his face as he considered your situation. He glanced up briefly at the two monsters as they approached, Alphys setting down a cup of noodles nearby your resting place before she and Undyne took their own seats, but quickly resumed his vigil.
 
-"I-is... she okay?" Alphys quietly asked.
+The room was silent for a minute as they took in your condition. "I-is... she okay?" Alphys quietly asked.
 
 "She has eaten," the jester said, equally as quiet. "She will recover."
 
-Alphys nodded, relieved.
+Alphys nodded, relieved. "Good. That was... tense."
+
+Jevil nodded, caressing a glove through your head fur. "That was... a lot of magic she went through holding herself together like that."
+
+"How... did she even learn to do something like that?" Undyne asked with a raised eyebrow. "That was... pretty hardcore."
+
+At first he seemed to simply be ignoring her, not answering for a moment, but eventually..."...I don't believe she did it intentionally," he admitted, half-talking to himself. He glanced toward the warrior. "Her perseverance is strong, but to cheat death in such a way... ...Her vessel is powered by my own vast magical reserves. I know she has learned, in some way, to channel her perseverance into the magic she has learned. That was... Chaotic instinct, perhaps, perhaps. A curious blend of our two magicks."
+
+"A-and you yourself just, w-waltzed into the Underground from a whole other reality, so... i-if she carries the same capability as yourself then... oh gosh..." 
+
+Undyne glanced at her with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. I have... my own issues with humans, Jevil. And... under law, their souls are forfeited to Asgore. Simply put, seven human souls put us down here, so seven human souls will break us out. Okay? But..." 
+
+Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her, and maybe Asgore does too, who knows. I'm here to assess any immediate threat to the Underground from her. And, well... even before you arrived, she preferred to use her words more than action, defence and evasion more than offense. So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
+

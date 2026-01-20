@@ -188,9 +188,9 @@ Sans stood silently for a few moments. He glanced at Hat Kid's face, saw that sh
 * Judge, jury, executioner in one timeline, space/time adventurer in the next.
 ```
 
-...well, he wasn't expecting that. An aggressive child who's seemingly killed but had it undone somehow, and a child who's seemingly innocent, but *definitely* has a body count. Sans watched Hat Kid shiver as his gaze pierced right through her soul. "...i dunno, kid. sounds like a fun time, but... do you really want a sad old bag of bones like me?" He eyed the two carefully.
+...well, he wasn't expecting that. An aggressive child who's seemingly killed but had it undone by a reset, and a child who's seemingly innocent, but *definitely* has a body count. Sans watched Hat Kid shiver as his gaze pierced right through her soul. "...i dunno, kid. sounds like a fun time, but... do you really want a sad old bag of bones like me?" He eyed the two carefully.
 
-"She's befriended the Mafia, a robot vacuum, an evil lawyer spirit and his puppets, and a knife-wielding maniac," Mu rattled off. "Buddy? You're child's play for her."
+"She's befriended the Mafia, a robot vacuum, an evil lawyer spirit and his puppets, and a knife-wielding movie director," Mu rattled off. "Buddy? You're child's play for her."
 
 "heh. look, i'll consider it, okay? just give me some time to mourn-"
 
