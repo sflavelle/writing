@@ -299,7 +299,7 @@ She unrooted herself from the ground and went to retrieve Alphys.
 
 The two found you laid down on the couch in the living area, whole and intact and asleep. The shimmer and glow of magic was gone, and a quick CHECK showed you had at least managed to eat a couple monster candies, your HP no longer at zero, and your SOUL had stitched itself back together.
 
-Jevil sat next to your head, caring for you while you recovered from your exhaustion, an odd look on his face as he considered your situation. He glanced up briefly at the two monsters as they approached, Alphys setting down a cup of noodles nearby your resting place before she and Undyne took their own seats, but quickly resumed his vigil.
+Jevil sat next to your head, caring for you while you recovered from your exhaustion, an odd look on his face as he considered your situation. He glanced up briefly at the two monsters as they approached (glaring at Undyne as she passed by), Alphys setting down a cup of noodles nearby your resting place before she and Undyne took their own seats, but quickly resumed his vigil.
 
 The room was silent for a minute as they took in your condition. "I-is... she okay?" Alphys quietly asked.
 
@@ -309,13 +309,18 @@ Alphys nodded, relieved. "Good. That was... tense."
 
 Jevil nodded, caressing a glove through your head fur. "That was... a lot of magic she went through holding herself together like that."
 
-"How... did she even learn to do something like that?" Undyne asked with a raised eyebrow. "That was... pretty hardcore."
+Another moment of silence.
 
-At first he seemed to simply be ignoring her, not answering for a moment, but eventually..."...I don't believe she did it intentionally," he admitted, half-talking to himself. He glanced toward the warrior. "Her perseverance is strong, but to cheat death in such a way... ...Her vessel is powered by my own vast magical reserves. I know she has learned, in some way, to channel her perseverance into the magic she has learned. That was... Chaotic instinct, perhaps, perhaps. A curious blend of our two magicks."
+"Are... we cool?" Undyne prodded. "That was... there's no need for combat between monsters. Besides, I've been hearing you're giving the Snowdin Unit a real workout."
 
-"A-and you yourself just, w-waltzed into the Underground from a whole other reality, so... i-if she carries the same capability as yourself then... oh gosh..." 
+His face when the jester looked toward her was full of distrust. Eventually he sighed, and nodded. "We're... 'cool'. For now, for now. *But*," he suddenly snapped, "there is *no need* for combat with *her* either." He gestured towrad your sleeping form.
 
-Undyne glanced at her with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. I have... my own issues with humans, Jevil. And... under law, their souls are forfeited to Asgore. Simply put, seven human souls put us down here, so seven human souls will break us out. Okay? But..." 
+Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. I have... my own issues with humans, Jevil. And... under law, their souls are forfeited to Asgore. Simply put, seven human souls put us down here, so seven human souls will break us out. Okay? But..." 
 
-Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her, and maybe Asgore does too, who knows. I'm here to assess any immediate threat to the Underground from her. And, well... even before you arrived, she preferred to use her words more than action, defence and evasion more than offense. So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
+Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too, who knows. I'm here to assess any immediate threat to the Underground from her, especially before Asgore sees her and makes his own decision. And, well... even before you arrived, she preferred to use her words more than action, defence and evasion more than offense. So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
 
+Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up for this revelation! Told I was mad, mad!"
+
+"In my wish to break free of the game I was trapped in, I reached out and used my new knowledge, my new mastery of reality to switch places with a Lightner, one from the 'real' world of our universe. How was I to know that I would instead reach out to a whole other reality!" He gestured toward you, pausing upon realising your head had nestled into his hip. After a pause in which the jester felt his cheeks heat up in a blush, he continued on, subconsciously curling his tail around you. "Ahem! I of course soon found my own way back and chose to hide myself within my signature weapon, the Devilsknife! And witnessed how the human I trapped in my place did their best to make a new life, to persevere in the new life she had been forced into! One unaware of magic entirely, bonding with monsters and humans alike!"
+
+"..." He paused then, having been about to mention the hero who was possessed and the entity controlling things. He had to remind himself that he was arguing for freedom here in this new world. Freedom for both him and his companion. How best to word this...
