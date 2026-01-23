@@ -225,7 +225,11 @@ A scowling redheaded fish woman in a black tank top and denim jeans.
 
 You sighed, and rolled your eyes, nodding your head back toward the rear of the lab. "She's in one of the exam rooms with Mettaton."
 
-You made to return to your work, but she interrupted you, again moving your head up with the side of her spear. "It's you, isn't it?" She growled.
+You made to return to your work, and missed how she rised an eyebrow at you. "...good on Alphys for finally hiring an assistant. Stars knows she needs one with everything she does for us. Hey, make sure she doesn't push herself too hard, alright?"
+
+"Yes ma'am," you replied simply, resuming your disassembly.
+
+You heard her walk past, and a door slide open and shut.
 
 ---
 
@@ -240,6 +244,8 @@ A bright glow diverted your attention to your chest, where you, Undyne *and* Alp
 [ 0 / 20 HP. ]
 
 You felt your SOUL split apart...
+
+[ * Y/N refuses to yield. ]
 
 ...before the pieces slammed *back together* with force, your body lighting up at the same time, shimmering with the same purple light, time speeding back up as you staggered backward. Your body surged with magical energy, a roar in your ears as your SOUL, your *perseverence*, fought to keep you from falling apart.
 
@@ -258,6 +264,7 @@ But Jevil was already launching his barrage of spade bullets--
 A purple magical barrier phased in between the two monsters, and as it absorbed Jevil's attack against Undyne, you felt each blow, tanking each hit even as your SOUL was trying to break itself apart. Your purple sheen flickered with each hit your shield absorbed.
 
 [ 0 / 20 HP. ]
+[ * Y/N's resolve holds. ]
 
 You grunted, pushing through the pain as best you could. You had to resolve this, *now*. While you were still standing, while your soul was fighting itself to stay together. "Jevil, we can't!" You told him. "We don't... ugh... we don't need to fight anymore. We're free here... you told me yourself. But to keep that freedom we need to coexist with these people. ...Undyne..." Your eyes flickered back to her, slightly dulled. "I know my soul means a lot right now. ...But give me a chance, please. There'll always be more humans. More deserving humans. We... can at least help make life down here more bearable."
 
@@ -272,6 +279,7 @@ A moment of quiet, punctuated by the heavy breathing of the three of you.
 "Ha HA!" Jevil suddenly called, summoning more spades. "Never let your guard--"
 
 [ 0 / 20 HP. ]
+[ * Y/N's resolve is failing. Healing would be appropriate right now. ]
 
 He stopped, the spade bullets flickering away as you slumped against his back. Your hand was still out, trying to keep the barrier blocking his and Undyne's attacks summoned. He could tell - whatever powerful fusion magic you had cast to prolong your survival wouldn't last if your physical form deteriorated through trying to both hold yourself together and preventing him from attacking your to-be killer.
 
@@ -311,16 +319,16 @@ Jevil nodded, caressing a glove through your head fur. "That was... a lot of mag
 
 Another moment of silence.
 
-"Are... we cool?" Undyne prodded. "That was... there's no need for combat between monsters. Besides, I've been hearing you're giving the Snowdin Unit a real workout."
+"Are... we cool?" Undyne prodded. "That was... there's no need for combat between monsters. Besides, I've been hearing you're giving the Snowdin Unit a real workout with your antics."
 
 His face when the jester looked toward her was full of distrust. Eventually he sighed, and nodded. "We're... 'cool'. For now, for now. *But*," he suddenly snapped, "there is *no need* for combat with *her* either." He gestured towrad your sleeping form.
 
-Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. I have... my own issues with humans, Jevil. And... under law, their souls are forfeited to Asgore. Simply put, seven human souls put us down here, so seven human souls will break us out. Okay? But..." 
+Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. I have... my own issues with humans, Jevil. And... under law, their souls are forfeited to Asgore. Simply put, seven human souls put us down here, so seven human souls will break us out. Okay? That's just how it is. But..." 
 
-Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too, who knows. I'm here to assess any immediate threat to the Underground from her, especially before Asgore sees her and makes his own decision. And, well... even before you arrived, she preferred to use her words more than action, defence and evasion more than offense. So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
+Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too, who knows. Asgore sent me here to assess any immediate threat to the Underground from her, especially before he sees her and makes his own decision. And, well... even before you intervened in our encounter, she preferred to use her words more than action, defence and evasion more than offense. Refused to lay a hand on me... So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is she the same? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
 
-Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up for this revelation! Told I was mad, mad!"
+Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Monsters yes, born from the Dark. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up for this revelation! Told I was mad, mad!"
 
-"In my wish to break free of the game I was trapped in, I reached out and used my new knowledge, my new mastery of reality to switch places with a Lightner, one from the 'real' world of our universe. How was I to know that I would instead reach out to a whole other reality!" He gestured toward you, pausing upon realising your head had nestled into his hip. After a pause in which the jester felt his cheeks heat up in a blush, he continued on, subconsciously curling his tail around you. "Ahem! I of course soon found my own way back and chose to hide myself within my signature weapon, the Devilsknife! And witnessed how the human I trapped in my place did their best to make a new life, to persevere in the new life she had been forced into! One unaware of magic entirely, bonding with monsters and humans alike!"
+"In my wish to break free of the game I was trapped in, I reached out and used my new knowledge, my new understanding of reality to switch places with a Lightner, one from the 'real' world of our universe. How was I to know that I would instead reach out to a whole other reality!" He gestured toward you, pausing upon realising your head had nestled into his hip. After a pause in which the jester felt his cheeks heat up in a blush, he continued on, subconsciously curling his tail around you. "Ahem! I of course soon found my own way back and chose to hide myself within my signature weapon, the Devilsknife! And witnessed how the human I trapped in my place did their best to make a new life, to persevere in the new life she had been forced into! One unaware of magic entirely, bonding with monsters and humans alike!"
 
 "..." He paused then, having been about to mention the hero who was possessed and the entity controlling things. He had to remind himself that he was arguing for freedom here in this new world. Freedom for both him and his companion. How best to word this...
