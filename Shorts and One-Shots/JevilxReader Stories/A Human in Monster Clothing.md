@@ -245,7 +245,8 @@ A bright glow diverted your attention to your chest, where you, Undyne *and* Alp
 
 You felt your SOUL split apart...
 
-[ * Y/N refuses to yield. ]
+[ * But... ]
+[ * Y/N's SOUL refuses to yield. ]
 
 ...before the pieces slammed *back together* with force, your body lighting up at the same time, shimmering with the same purple light, time speeding back up as you staggered backward. Your body surged with magical energy, a roar in your ears as your SOUL, your *perseverence*, fought to keep you from falling apart.
 
