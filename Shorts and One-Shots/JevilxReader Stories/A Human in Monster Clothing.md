@@ -225,11 +225,51 @@ A scowling redheaded fish woman in a black tank top and denim jeans.
 
 You sighed, and rolled your eyes, nodding your head back toward the rear of the lab. "She's in one of the exam rooms with Mettaton."
 
-You made to return to your work, and missed how she rised an eyebrow at you. "...good on Alphys for finally hiring an assistant. Stars knows she needs one with everything she does for us. Hey, make sure she doesn't push herself too hard, alright?"
+You made to return to your work, and missed how she rised an eyebrow at you, dispelling her spear. "...good on Alphys for finally hiring an assistant. Stars knows she needs one with everything she does for us. Hey, make sure she doesn't push herself too hard, alright?"
 
 "Yes ma'am," you replied simply, resuming your disassembly.
 
 You heard her walk past, and a door slide open and shut.
+
+You quietly tinkered away for a few minutes, trying to ignore the occasional muffled shouting from the exam room. Amazingly, despite the water damage to the frame, and minor surface rusting of the laptop's main board, none of the traces on the board seemed corroded. Perhaps this computer could be restored after all!
+
+You turned from the workbench to start checking through Alphys' cabinets, hoping you might find some isopropyl alcohol to start cleaning the individual components...
+
+Before the bang of the exam door slamming open had you jump and slam your head on the ceiling of the cabinet, causing you to swear. As you straightened, rubbing your head, you turned around to see what (likely who) made the noise.
+
+And paused when you saw the visitor, approaching you with purpose, their gaze laser-focused.
+
+She raised a hand, and another magic spear phased into existence within it.
+
+Her grin took on a shark-like quality. And the few words she spoke made you tremble.
+
+"*I know what you are.*"
+
+Your eyes went wide. You vaguely noticed Mettaton and Alphys rush out into the main room to try and call her to stop. But she continued to approach.
+
+And you stayed pressed against the bench, feet feeling glued to the ground as she reached you, fist grabbing into your shirt harshly and lifting you up, poised to attack.
+
+Trying to control your hyperventilating, you finally spoke. "...H-hi? Can I help you?"
+
+Her grin thinned down to a smirk. "Yes. You can. I am Captain Undyne of the Underground Royal Guard..."
+
+"...and *you* are human soul number six. I'll be taking that off your hands now."
+
+You felt the intent before the spear moved.
+
+And like instinct, a movement born of memory, you did the first thing you could think of.
+
+You pulled at the mana in your synthetic veins and *willed* yourself out of the way.
+
+The world blinked out and-
+
+You hit the ground on the opposite end of the main room, clutching your chest. For a moment you thought you saw purple hands and sharp claws, but another blink and you were looking at your own light brown/white hands.
+
+...Right, you had done this before. Before, in another life, as another person.
+
+...A person whose magic still surged through you.
+
+"How the--?!" Undyne whirled around, spotting you behind the other two monsters. Her spear was buried in the wood of the cabinet, causing it to splinter. "Get BACK here and DIE!"
 
 ---
 
@@ -280,13 +320,13 @@ A moment of quiet, punctuated by the heavy breathing of the three of you.
 "Ha HA!" Jevil suddenly called, summoning more spades. "Never let your guard--"
 
 [ 0 / 20 HP. ]
-[ * Y/N's resolve is failing. Healing would be appropriate right now. ]
+[ * Y/N's resolve is failing. Heal now to prevent SOUL loss. ]
 
-He stopped, the spade bullets flickering away as you slumped against his back. Your hand was still out, trying to keep the barrier blocking his and Undyne's attacks summoned. He could tell - whatever powerful fusion magic you had cast to prolong your survival wouldn't last if your physical form deteriorated through trying to both hold yourself together and preventing him from attacking your to-be killer.
+He stopped, the spade bullets flickering away as you slumped against his back. Your hand was still out, trying to keep the barrier blocking his and Undyne's attacks summoned. He could tell - whatever powerful fusion magic you had cast to prolong your survival wouldn't last if your physical form deteriorated through trying to both hold yourself together and preventing him from attacking your would-be killer.
 
-"...My friend's life is worth more than my vengeance," he finally decided.
+Jevil sighed deeply, glaring at the fish monster. "...My friend's life is worth more than my vengeance," he said finally.
 
-Then there was a scythe in his hand, and as he opened a portal to the lab's living space and kitchen, scooping you up into his arms and stepping through, the portal closing up after him.
+Then there was a scythe in his hand, and as he opened a portal to the lab's living space and kitchen, he scooped you up into his arms and stepping through, the portal closing up after him.
 
 The shield barrier dissipated.
 
@@ -322,9 +362,9 @@ Another moment of silence.
 
 "Are... we cool?" Undyne prodded. "That was... there's no need for combat between monsters. Besides, I've been hearing you're giving the Snowdin Unit a real workout with your antics."
 
-His face when the jester looked toward her was full of distrust. Eventually he sighed, and nodded. "We're... 'cool'. For now, for now. *But*," he suddenly snapped, "there is *no need* for combat with *her* either." He gestured towrad your sleeping form.
+His face when the jester looked toward her was full of distrust. Eventually he sighed, and nodded. "We're... 'cool'. For now, for now. *But*," he suddenly snapped, "there is *no need* for combat with *her* either." He gestured toward your sleeping form.
 
-Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. I have... my own issues with humans, Jevil. And... under law, their souls are forfeited to Asgore. Simply put, seven human souls put us down here, so seven human souls will break us out. Okay? That's just how it is. But..." 
+Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. That's not my decision. I have... my own issues with humans, Jevil. But... under law, their souls are forfeited to Asgore. Simply put, seven human souls created the barrier that put us down here, so seven human souls will break us out. Okay? That's just how it is. But..." 
 
 Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too, who knows. Asgore sent me here to assess any immediate threat to the Underground from her, especially before he sees her and makes his own decision. And, well... even before you intervened in our encounter, she preferred to use her words more than action, defence and evasion more than offense. Refused to lay a hand on me... So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is she the same? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
 
