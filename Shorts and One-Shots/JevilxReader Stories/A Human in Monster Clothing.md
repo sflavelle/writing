@@ -249,13 +249,13 @@ Your eyes went wide. You vaguely noticed Mettaton and Alphys rush out into the m
 
 And you stayed pressed against the bench, feet feeling glued to the ground as she reached you, fist grabbing into your shirt harshly and lifting you up, poised to attack.
 
-Trying to control your hyperventilating, you finally spoke. "...H-hi? Can I help you?"
+Trying to control your hyperventilating, you finally spoke. "...H-hi? Can I help you...?"
 
 Her grin thinned down to a smirk. "Yes. You can. I am Captain Undyne of the Underground Royal Guard..."
 
 "...and *you* are human soul number six. I'll be taking that off your hands now."
 
-You felt the intent before the spear moved.
+You felt the intent before she thrust the spear forward.
 
 And like instinct, a movement born of memory, you did the first thing you could think of.
 
@@ -366,7 +366,9 @@ His face when the jester looked toward her was full of distrust. Eventually he s
 
 Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. That's not my decision. I have... my own issues with humans, Jevil. But... under law, their souls are forfeited to Asgore. Simply put, seven human souls created the barrier that put us down here, so seven human souls will break us out. Okay? That's just how it is. But..." 
 
-Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too to want to go along with this, who knows. Asgore sent me here to assess any immediate threat to the Underground from her, especially before he sees her and makes his own decision. And, well... even before you intervened in our encounter, she preferred to use her words more than action, defence and evasion more than offense. Refused to lay a hand on me... So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is she the same? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
+Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too, to want to go along with this, who knows. Asgore sent me here to assess any immediate threat to the Underground from her, especially before he sees her and makes his own decision. And, well..."
+
+She sighed, conflicted. "She preferred to use her words more than action, defence and evasion more than offense. Refused to lay a hand on me... So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is she the same? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
 
 Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Monsters yes, born from the Dark. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up for this revelation! Told I was mad, mad!"
 
