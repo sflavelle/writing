@@ -390,8 +390,32 @@ She blinked. "....ooooookay. And... why are they in this 'darkner' body now? The
 
 Alphys suddenly gasped. "W-which is why you bonded with her!" she realised. "Her construct was formed in such a way that you shared your magic with her!"
 
-"What?" Undyne shot a glance at the scientist. "But that *can't* be possible, it's unheard of. Surely the magic required to sustain an entirely separate body, casting its own magic would be..." Her good eye widened, and she focused again on you and Jevil, as you began to stir.
+"What?" Undyne shot a glance at the scientist. "But that *can't* be possible, it's unheard of. Surely the magic required to sustain an entirely separate body, casting its own magic would be..." Her good eye widened, and she focused again on you and Jevil, as you shifted in your sleep.
 
 Jevil's only response was a sly, "I can do anything."
 
 "Let's n-not forget that we don't know what that other reality is like," Alphys pointed out. "If magic expenditure is the same there as it is here, ambient magic saturation, how mana reserves function there... We already know monsters themselves are different there, so it's possible that... hm..."
+
+"Focus, Alphys." Undyne took a breath. "Okay, so they... spent time in your body, and then you got them a new monster body when you brought them here. Were you aware when you brought them here that humans were to be harvested for their souls?".
+
+Alphys winced at the wording. "'Harvested' is a bit much..."
+
+The jester simply shook his head. "We were only focused on escaping our prison, prison!"
+
+"Well, you've only landed in a different kind of prison," Undyne grumbled. "Did Alphys give you a rundown on *why* we're underground?"
+
+"I-I told him when we discovered her SOUL," Alphys responded. "When we went to talk with him, he was bringing her body out of this... portal he'd made."
+
+Undyne blinked, surprised. She turned to the scientist. "Wait, you... followed protocol, right? Because... right now it sounds like you... harboured a human in secret."
+
+"O-Of course I followed protocol, I'm not stupid!" Alphys snapped, and then immediately shrank back. "S-sorry. I-I got Jevil's testimony and then reported straight to King Asgore."
+
+"Doctor, doctor!" Jevil cried, scandalised.
+
+"I *know*, alright! It's not as simple as pretending I don't have the thing everyone wants hiding in a back room!" She buried her face in her hands, taking deep breaths. "It... it was Asgore that told me to simply monitor the situation. If the vessel failed, w-we get one soul closer to freedom. I-if you had lied to us and the soul was hostile, we'd have no qualms just taking it and dealing with you if *you* turned hostile. But, if she could coexist with monsters like you said... Asgore and I determined that it *could* be a boon to the Underground community, the whole... B-barrier issue notwithstanding."
+
+Undyne stared at her for a short moment, then huffed and looked away. "Damnit King Fluffybuns, you sentimental old goat... He only gave me the order to investigate *today*."
+
+"Because t-they awoke early this morning. W-which I also reported once I did some initial tests."
+
+"Okay. ...okay." Undyne slouched back in her chair. "So despite the fact that we are *keeping a human soul we need for the barrier alive*, this is all... above board, I *guess*. Nngaaaaaah." She stared up at the ceiling for a long moment.
