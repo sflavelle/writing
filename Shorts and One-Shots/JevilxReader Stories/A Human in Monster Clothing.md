@@ -322,9 +322,9 @@ A moment of quiet, punctuated by the heavy breathing of the three of you.
 [ 0 / 20 HP. ]
 [ * Y/N's resolve is failing. Heal now to prevent SOUL loss. ]
 
-He stopped, the spade bullets flickering away as you slumped against his back. Your hand was still out, trying to keep the barrier blocking his and Undyne's attacks summoned. He could tell - whatever powerful fusion magic you had cast to prolong your survival wouldn't last if your physical form deteriorated through trying to both hold yourself together and preventing him from attacking your would-be killer.
+He stopped, the spade bullets flickering away as you slumped against his back. Your hand was still out, trying to keep the barrier blocking his and Undyne's attacks summoned. He could tell - whatever powerful fusion magic you had cast to prolong your survival by burning through mana wouldn't last. In fact you would expire faster if your physical form deteriorated through trying to both hold yourself together and preventing him from attacking your would-be killer.
 
-Jevil sighed deeply, glaring at the fish monster. "...My friend's life is worth more than my vengeance," he said finally.
+Jevil sighed deeply, glaring at the fish monster. "...My friend's life is worth more than my vengeance," he said finally. "This is *not* over, over."
 
 Then there was a scythe in his hand, and as he opened a portal to the lab's living space and kitchen, he scooped you up into his arms and stepping through, the portal closing up after him.
 
@@ -366,10 +366,32 @@ His face when the jester looked toward her was full of distrust. Eventually he s
 
 Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. That's not my decision. I have... my own issues with humans, Jevil. But... under law, their souls are forfeited to Asgore. Simply put, seven human souls created the barrier that put us down here, so seven human souls will break us out. Okay? That's just how it is. But..." 
 
-Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too, who knows. Asgore sent me here to assess any immediate threat to the Underground from her, especially before he sees her and makes his own decision. And, well... even before you intervened in our encounter, she preferred to use her words more than action, defence and evasion more than offense. Refused to lay a hand on me... So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is she the same? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
+Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too to want to go along with this, who knows. Asgore sent me here to assess any immediate threat to the Underground from her, especially before he sees her and makes his own decision. And, well... even before you intervened in our encounter, she preferred to use her words more than action, defence and evasion more than offense. Refused to lay a hand on me... So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is she the same? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
 
 Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Monsters yes, born from the Dark. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up for this revelation! Told I was mad, mad!"
 
-"In my wish to break free of the game I was trapped in, I reached out and used my new knowledge, my new understanding of reality to switch places with a Lightner, one from the 'real' world of our universe. How was I to know that I would instead reach out to a whole other reality!" He gestured toward you, pausing upon realising your head had nestled into his hip. After a pause in which the jester felt his cheeks heat up in a blush, he continued on, subconsciously curling his tail around you. "Ahem! I of course soon found my own way back and chose to hide myself within my signature weapon, the Devilsknife! And witnessed how the human I trapped in my place did their best to make a new life, to persevere in the new life she had been forced into! One unaware of magic entirely, bonding with monsters and humans alike!"
+"In my wish to break free of the game I was trapped in, I reached out and used my new knowledge, my new understanding of reality to switch places with a Lightner, one from the 'real' world of our universe. How was I to know that I would instead reach out to a whole other reality!" He gestured toward you, pausing upon realising your head had nestled into his hip. After a pause in which the jester felt his cheeks heat up in a blush, he continued on, subconsciously curling his tail around you. "Ahem! I of course soon found my own way back and chose to hide myself within my signature weapon, the Devilsknife! And witnessed how the human I trapped in my place did their best to make a new life, to persevere in the world they had been forced into! One priorly unaware of magic entirely, bonding with monsters and humans alike!"
 
-"..." He paused then, having been about to mention the hero who was possessed and the entity controlling things. He had to remind himself that he was arguing for freedom here in this new world. Freedom for both him and his companion. How best to word this...
+"..." He paused then, having been about to mention the hero who was possessed and the entity controlling things. But this wasn't the game anymore, was it? As his bonded friend had said, they were free of the game now. 
+
+He decided to reword the encounter. "But there was one who grew jealous, participating through their puppet, but not truly experiencing the world they saw! They attempted to slay the wayward human soul, and I chose to rescue them and execute a plan, a plan to free ourselves of the game we were trapped in! Through which we found out way here, to this underground society!" He grinned and sat back, waiting for the monsters' reaction.
+
+Alphys had heard parts of this before, but hearing the whole story (as Jevil told it, anyway) put your experience in a new light. Undyne's brows were furrowed as she processed the idea of a separate monster kingdom, based on a literal deck of cards.
+
+Eventually, though, the captain did ask something. "Wait, so, why didn't you send the human back into their body, then?"
+
+"Oh, it died," he replied casually with a wave of his hand.
+
+She blinked. "....ooooookay. And... why are they in this 'darkner' body now? They don't really fit the theme of a card deck or whatever..."
+
+"Correct, correct! But every Darkner has a counterpart in the Light World! 'Objects come to life', remember? The Prince of Dark fabricated a vessel for the loose SOUL, finding an appropriate counterpart to bind her to, so she could continue to live, a gracious gift for all she has done for me and them!"
+
+"Okay, but SOUL vessels are magic based. And she clearly has magic, but there's no way a human soul can power something like that."
+
+Alphys suddenly gasped. "W-which is why you bonded with her!" she realised. "Her construct was formed in such a way that you shared your magic with her!"
+
+"What?" Undyne shot a glance at the scientist. "But that *can't* be possible, it's unheard of. Surely the magic required to sustain an entirely separate body, casting its own magic would be..." Her good eye widened, and she focused again on you and Jevil, as you began to stir.
+
+Jevil's only response was a sly, "I can do anything."
+
+"Let's n-not forget that we don't know what that other reality is like," Alphys pointed out. "If magic expenditure is the same there as it is here, ambient magic saturation, how mana reserves function there... We already know monsters themselves are different there, so it's possible that... hm..."
