@@ -269,7 +269,7 @@ You hit the ground on the opposite end of the main room, clutching your chest. F
 
 ...A person whose magic still surged through you.
 
-"How the--?!" Undyne whirled around, spotting you behind the other two monsters. Her spear was buried in the wood of the cabinet, causing it to splinter. "Get BACK here and DIE!"
+"How the--?!" Undyne whirled around, spotting you behind the other two monsters who also turned to stare at you, shocked. Her spear was buried in the wood of the cabinet, causing it to splinter. "Get BACK here and DIE!"
 
 ---
 
@@ -364,7 +364,7 @@ Another moment of silence.
 
 His face when the jester looked toward her was full of distrust. Eventually he sighed, and nodded. "We're... 'cool'. For now, for now. *But*," he suddenly snapped, "there is *no need* for combat with *her* either." He gestured toward your sleeping form.
 
-Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. That's not my decision. I have... my own issues with humans, Jevil. But... under law, their souls are forfeited to Asgore. Simply put, seven human souls created the barrier that put us down here, so seven human souls will break us out. Okay? That's just how it is. But..." 
+Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. That's not my decision. I have... my own issues with humans, Jevil. But... under law, their souls are forfeited to Asgore. Simply put, seven human souls created the barrier that put us down here, so seven human souls will break us out. Humans killed the royal children, so they must pay in *some* fashion. Okay? That's just how it is. But..." 
 
 Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too, to want to go along with this, who knows. Asgore sent me here to assess any immediate threat to the Underground from her, especially before he sees her and makes his own decision. And, well..."
 
@@ -376,7 +376,7 @@ Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects 
 
 "..." He paused then, having been about to mention the hero who was possessed and the entity controlling things. But this wasn't the game anymore, was it? As his bonded friend had said, they were free of the game now. 
 
-He decided to reword the encounter. "But there was one who grew jealous, participating through their puppet, but not truly experiencing the world they saw! They attempted to slay the wayward human soul, and I chose to rescue them and execute a plan, a plan to free ourselves of the game we were trapped in! Through which we found out way here, to this underground society!" He grinned and sat back, waiting for the monsters' reaction.
+He decided to reword the encounter. "But there was one who grew jealous, participating through their puppet, but not truly experiencing the world they saw! They attempted to slay the wayward human soul, and I chose to rescue them and execute a plan, a plan to free ourselves of the game we were trapped in! Through which we found our way here, to this underground society!" He grinned and sat back, waiting for the monsters' reaction.
 
 Alphys had heard parts of this before, but hearing the whole story (as Jevil told it, anyway) put your experience in a new light. Undyne's brows were furrowed as she processed the idea of a separate monster kingdom, based on a literal deck of cards.
 
@@ -414,10 +414,38 @@ Undyne blinked, surprised. She turned to the scientist. "Wait, you... followed p
 
 "Doctor, doctor!" Jevil cried, scandalised.
 
-"I *know*, alright! It's not as simple as pretending I don't have the thing everyone wants hiding in a back room!" She buried her face in her hands, taking deep breaths. "It... it was Asgore that told me to simply monitor the situation. If the vessel failed, w-we get one soul closer to freedom. I-if you had lied to us and the soul was hostile, we'd have no qualms just taking it and dealing with you if *you* turned hostile. But, if she could coexist with monsters like you said... Asgore and I determined that it *could* be a boon to the Underground community, the whole... B-barrier issue notwithstanding."
+"I *know*, alright! It's not as simple as pretending I don't have the thing everyone wants hiding in a back room!" She buried her face in her hands, taking deep breaths. "It... it was Asgore that told me to simply monitor the situation. If the vessel failed to contain the soul, w-we get one soul closer to freedom. I-if you had lied to us and the soul was hostile, we'd have no qualms just taking it and dealing with you if *you* turned hostile. But, if she could coexist with monsters like you said... Asgore and I determined that it *could* be a boon to the Underground community, the whole... B-barrier issue notwithstanding."
 
 Undyne stared at her for a short moment, then huffed and looked away. "Damnit King Fluffybuns, you sentimental old goat... He only gave me the order to investigate *today*."
 
 "Because t-they awoke early this morning. W-which I also reported once I did some initial tests."
 
-"Okay. ...okay." Undyne slouched back in her chair. "So despite the fact that we are *keeping a human soul we need for the barrier alive*, this is all... above board, I *guess*. Nngaaaaaah." She stared up at the ceiling for a long moment.
+"Okay. ...okay." Undyne slouched back in her chair. "So despite the fact that we are *keeping a human soul we need for the barrier alive* and the Guard should have known sooner, this is all... above board, I *guess*. Nngaaaaaah." She stared up at the ceiling for a long moment.
+
+"F-for what it's worth, Undyne... I do understand your frustration. A l-lot of things about this are unprecedented."
+
+"You do know that if the kingdom decides to spare her, it's going to be that much harder to get *other* human souls for the barrier, right?" Undyne was still looking at the ceiling. 
+
+"Humans look like humans," Jevil waved off. "My friend here already blends in."
+
+"...I suppose I didn't realise she was human until Alphys pointed me in her direction for assessment and I uh... Hey, sorry for flipping out at you and Mettaton earlier, Alphys."
+
+"I-it's okay," the doctor replied easily. "Again, I get it..."
+
+Undyne nodded, sighed. "Well, I'd still like to get a statement from her, but after all *that*, I guess she'll be a while, huh."
+
+"W-well, how do you suppose we pass the time?" Alphys raised an eyebrow. 
+
+----
+
+Your eyes blinked open about three hours deep into an impromptu anime marathon happening around you. 
+
+Next to your head was Jevil, faced away, thoroughly engaged in whatever battle was occurring on the screen he was blocking. 
+
+You could hear but not see Alphys, somewhere past where your head lay against/under the arm of the couch.
+
+Who you *could* see, though, past your feet in another lounge chair, was Undyne the fish warrior.
+
+Whom, mid-cheer for whatever was on the screen, caught your slow movements in her limited vision, her head turning toward you. "Huh. The sprat's awake."
+
+You couldn't help the little jolt of fear through your limbs as she locked onto you.
