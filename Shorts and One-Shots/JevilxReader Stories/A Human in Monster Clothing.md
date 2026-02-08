@@ -438,14 +438,20 @@ Undyne nodded, sighed. "Well, I'd still like to get a statement from her, but af
 
 ----
 
-Your eyes blinked open about three hours deep into an impromptu anime marathon happening around you. 
+Your eyes blinked open, startled by raised voices about three hours deep into an impromptu anime marathon happening around you. 
 
-Next to your head was Jevil, faced away, thoroughly engaged in whatever battle was occurring on the screen he was blocking. 
+"YES, YES! TEAR DOWN THE SYSTEM!" Jevil's loud voice from right beside you had you jolt. He was clearly enjoying whatever he was engaged with.
 
-You could hear but not see Alphys, somewhere past where your head lay against/under the arm of the couch.
+"YEAAAAAAH!" came a female bellow from below/to your left. "TAKE THAT THING DOWN!"
 
-Who you *could* see, though, past your feet in another lounge chair, was Undyne the fish warrior.
+"W-with everyone's hopes and dreams behind you!" another female voice called from out of sight.
 
-Whom, mid-cheer for whatever was on the screen, caught your slow movements in her limited vision, her head turning toward you. "Huh. The sprat's awake."
+It took you a moment to settle down and calm your... wait right, your heart *would* be pounding, if you had one. You slowly turned your head, glancing around the area around you.
 
-You couldn't help the little jolt of fear through your limbs as she locked onto you.
+You seemed to still be in the lounge area, but the lights were dimmed and now the light being cast came from where the TV was. Jevil had not left his spot from beside you, and belatedly you realised you had nestled your head into the side of his flank in your exhausted rest, and as soon as you moved he had turned his head, glancing down at you with a warm fanged smile as he attempted to casually uncurl his tail from behind your head.
+
+As soon as you realised, your sleep haze slowly clearing, your cheeks burned crimson and you turned your head away to try to hide it. Because apparently only *now* that you're awake do you find that the fact you've been nuzzling against the imp's ass embarrassing.
+
+The exaggerated movement caught the attention of the person beyond the opposite end of the couch. "Oh hey. Alphy, the punk's awake."
+
+You shot a tired glance at the speaker... and your stomach dropped. Undyne was watching, *had been* watching, waiting.
