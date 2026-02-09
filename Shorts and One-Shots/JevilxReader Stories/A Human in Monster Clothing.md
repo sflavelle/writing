@@ -454,4 +454,4 @@ As soon as you realised, your sleep haze slowly clearing, your cheeks burned cri
 
 The exaggerated movement caught the attention of the person beyond the opposite end of the couch. "Oh hey. Alphy, the punk's awake."
 
-You shot a tired glance at the speaker... and your stomach dropped. Undyne was watching, *had been* watching, waiting.
+You shot a tired glance at the speaker... and your stomach dropped. Undyne was watching, *had been* watching, waiting. You couldn't help the little jolt of fear through your nerves. She of course noticed that too, and immediately raised her open palms. "Hey, chill. I know we uh, got off to a bad start. I swear I just want to chat. You uh... you made your case."
