@@ -54,7 +54,7 @@ Theo took a seat next to Maddy. His expression seemed slightly vacant as well, h
 
 "They're *kids*," Part of Maddy sighed out, annoyed. "They're making it up."
 
-"I don't know that they are. Okay, fine, I don't know all the complicated science terms, but they seemed to know what they're talking about." He leaned in. "They reckon worlds are blending together or something. I'm inclined to believe 'em. I think us three," he gestured between himself, Maddy and her doppleganger, "*started* on Mount Celeste, and then somewhere along the way, we ended up on, or *in* this Mount Ebott. I mean, c'mon, magical beings? Monsters? Time travelling kids? That wouldn't exist on *our* Earth."
+"I don't know that they are. Okay, fine, I don't know all their complicated sciency terms, but they seemed to know what they're talking about." He leaned in. "They reckon worlds are blending together or something. I'm inclined to believe 'em. I think us three," he gestured between himself, Maddy and her doppleganger, "*started* on Mount Celeste, and then somewhere along the way, we ended up on, or *in* this Mount Ebott. I mean, c'mon, magical beings? Monsters? Time travelling kids? That wouldn't exist on *our* Earth."
 
 Part of Maddy, in response, simply gestured at her floating self. Undyne raised an eyebrow again.
 

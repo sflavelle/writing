@@ -414,7 +414,7 @@ Undyne blinked, surprised. She turned to the scientist. "Wait, you... followed p
 
 "Doctor, doctor!" Jevil cried, scandalised.
 
-"I *know*, alright! It's not as simple as pretending I don't have the thing everyone wants hiding in a back room!" She buried her face in her hands, taking deep breaths. "It... it was Asgore that told me to simply monitor the situation. If the vessel failed to contain the soul, w-we get one soul closer to freedom. I-if you had lied to us and the soul was hostile, we'd have no qualms just taking it and dealing with you if *you* turned hostile. But, if she could coexist with monsters like you said... Asgore and I determined that it *could* be a boon to the Underground community, the whole... B-barrier issue notwithstanding."
+"I *know*, alright! It's not as simple as pretending I don't have the thing everyone wants hiding in a back room!" She buried her face in her hands, taking deep breaths. "It... it was Asgore that told me to simply monitor the situation. If the vessel failed to contain the soul, w-we get one soul closer to freedom anyway. I-if you had lied to us and the soul was hostile, we'd have no qualms just taking it and dealing with you if *you* turned hostile. But, if she could coexist with monsters like you said... Asgore and I determined that it *could* be a boon to the Underground community, the whole... B-barrier issue notwithstanding."
 
 Undyne stared at her for a short moment, then huffed and looked away. "Damnit King Fluffybuns, you sentimental old goat... He only gave me the order to investigate *today*."
 
@@ -448,10 +448,55 @@ Your eyes blinked open, startled by raised voices about three hours deep into an
 
 It took you a moment to settle down and calm your... wait right, your heart *would* be pounding, if you had one. You slowly turned your head, glancing around the area around you.
 
-You seemed to still be in the lounge area, but the lights were dimmed and now the light being cast came from where the TV was. Jevil had not left his spot from beside you, and belatedly you realised you had nestled your head into the side of his flank in your exhausted rest, and as soon as you moved he had turned his head, glancing down at you with a warm fanged smile as he attempted to casually uncurl his tail from behind your head.
+You seemed to still be in the lounge area, but the lights were dimmed and now the light being cast came from where the TV was. Jevil had not left his spot from beside you, and belatedly you realised you had nestled your head into the side of his flank in your exhausted rest, and as soon as you moved he had turned his head, glancing down at you with a warm fanged smile as he attempted to casually, inconspicuously uncurl his tail from behind your head.
 
 As soon as you realised, your sleep haze slowly clearing, your cheeks burned crimson and you turned your head away to try to hide it. Because apparently only *now* that you're awake do you find that the fact you've been nuzzling against the imp's ass embarrassing.
 
 The exaggerated movement caught the attention of the person beyond the opposite end of the couch. "Oh hey. Alphy, the punk's awake."
 
-You shot a tired glance at the speaker... and your stomach dropped. Undyne was watching, *had been* watching, waiting. You couldn't help the little jolt of fear through your nerves. She of course noticed that too, and immediately raised her open palms. "Hey, chill. I know we uh, got off to a bad start. I swear I just want to chat. You uh... you made your case."
+You shot a tired glance at the speaker... and your stomach dropped. Undyne was watching, *had been* watching, waiting. You couldn't help the little jolt of fear through your nerves. She of course noticed that too, and immediately raised her open palms. "Hey, chill. I know we uh, got off to a bad start. I swear I just want to chat. We got a fair bit to get through."
+
+Your brows furrowed in confusion, not entirely convinced, but pulled yourself up into a sitting position as Alphys paused the anime. A noodle cup was quickly pressed into your hands, and you began to dig in, the food swiftly disappearing down your throat and restoring your HP further. 
+
+It was a quiet few minutes as you ate, though Undyne assisted in adjusting the lounge chairs she and Alphys were sitting on so they were opposite the sofa, facing you and Jevil.
+
+When you put down the noodle cup, you sighed and leaned back into the couch. You took a few deep breaths to relax yourself. "... ask away."
+
+Undyne nodded. "Right. You are aware that Dr Alphys has applied for an exemption from the King's Decree for your soul?"
+
+You nod. "I was informed this morning. This morning?" You asked questioning at Alphys.
+
+"Y-yes, it's the same day still."
+
+"Have you been made aware of the intent of the Decree?"
+
+"My understanding is that all human souls that enter the Underground are to be surrendered to the King, to be used to break a Barrier that is keeping you all down here."
+
+Undyne nodded. "I want something to be made very clear, human. We are currently in possession of five souls, accumulated over the course of over 150 years. We are getting ever closer to being able to see the sun after so long in this human-enforced captivity. So for the Royal Scientist to request that *one* be left alone, when we only require two more, is asking a lot of the Underground. Do you understand?"
+
+You nod silently. 
+
+She turned to Alphys. "Under what grounds are you applying for this exemption?"
+
+The reptile took a deep nervous breath, but while her speech started slowly, she began to pick up in energy and excitement. "W-while the fact that this human does not originate from the surface o-or in fact from our reality, and therefore has no relation to the humans that started the war, or that killed the royal children is a big reason, the major point is that this human, their vessel, and their bonded monster Jevil represent discoveries of the nature of the SOUL, magical vessel composition, a whole new category of monster, and new types of monster bonding that need research. With the research subject being willing and passive, we can build a more complete picture of monster biology and SOUL magic!"
+
+Undyne raised an eyebrow. 
+
+"T-the fact the human has been nothing but kind has also been a contributing factor," the doctor finished sheepishly.
+
+"Be that as it may." Undyne fixed her piercing gaze on you. "As Captain of the Royal Guard, my duty here is threat assessment and information gathering. You'll be answering questions from myself and the doctor. I *suggest*," she grinned toothily, "that you answer honestly. And don't try to hide behind your monster friend there. Do you understand?"
+
+You took a deep breath, and shuffled away from Jevil slightly to give yourself some room. "I understand. I'll try to answer to the best of my ability."
+
+"Good kid. Question one: Why didn't you fight back? Even with... whatever the hell that resolve thing was. I made it fairly clear that I would *kill* you. So... why?"
+
+You figured you would have been asked about that. "So....about the 'resolve' thing. I actually have no clue what that was. ...Like okay, I didn't want to die, but--"
+
+"I believe," chimed in Jevil, "that may be a side effect of my magic."
+
+----
+
+You were barely awake, several days later, when you got the news. 
+
+King Asgore would be arriving to converse with you in regards to Alphys' exemption application later that morning. 
+
