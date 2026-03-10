@@ -488,11 +488,35 @@ Undyne raised an eyebrow.
 
 You took a deep breath, and shuffled away from Jevil slightly to give yourself some room. "I understand. I'll try to answer to the best of my ability."
 
-"Good kid. Question one: Why didn't you fight back? Even with... whatever the hell that resolve thing was. I made it fairly clear that I would *kill* you. So... why?"
+"Good kid." Her gaze turned to the imp next to you. "Jevil. I'll need to ask you to leave the room for a while." 
 
-You figured you would have been asked about that. "So....about the 'resolve' thing. I actually have no clue what that was. ...Like okay, I didn't want to die, but--"
+"What?! No way, no way!" Jevil stood, glaring. "You'll only attack her again!"
 
-"I believe," chimed in Jevil, "that may be a side effect of my magic."
+"*Jevil*. I give my word that I won't harm her. This just needs to be a private conversation. For *her* safety."
+
+"You would accuse me of--?!"
+
+"**Jevil.**" You called out to him. "I'm okay. I don't think they *actually* think you're abusing me or whatever. I think they want to be sure that I can speak my truth without worrying that I'll filter myself for the sake of keeping you happy." You reached over and squeezed his hand. "If it would make you better, whatever you did to keep track of my health, do that while you're out three. I promise I'll be fine."
+
+Jevil, for his part did seem conflicted, but eventually relented. He stood slowly. "I... will be but a call away, away."
+
+You shared a nod with him, and he filtered out of the room.
+
+The other girls in the room released a tense breath. Undyne stared at the exit where Jevil had left. "...I wasn't sure he was gonna listen to you for a moment there. Okay. You good? I got a bit to get through."
+
+You nodded, turning to face her again. "I'm ready."
+
+"Okay! Question one: Why didn't you fight back? Even with... whatever the hell that resolve thing was. I made it fairly clear that I would *kill* you. So... why?"
+
+You figured you would have been asked about that. "So....about the 'resolve' thing. I need to get out there and tell you that I actually have no clue what that was. ...Like okay, I didn't want to die, but, more than that..."
+
+You thought on it for a moment, though, and a thought came to mind. "I have... a theory though. Before we arrived here, before the events that made us have to leave, I was... trapped, in his body.' You jerked a thumb over at where Jevil had exited. "His magic is... raw, powerful, reality-bending. I never got the chance to really learn how to harness it outside of like, basic spells."
+
+"And the teleporting," prompted Undyne.
+
+"Mmm. The only other time I was able to do something quite as powerful was... when I found out he got my human body killed. I don't *think* it's actually like, strong emotions or trauma triggers this stuff, but... I guess if Jevil is powering my body, that same chaos magic still sorta... resides in me, even when filtered through my soul."
+
+"And how much control does he have over you, like this?" Undyne leaned back, crossing her arms. "I mean, you experienced the same stuff he did, right? What's to say you're not just as mad as he is?" 
 
 ----
 
