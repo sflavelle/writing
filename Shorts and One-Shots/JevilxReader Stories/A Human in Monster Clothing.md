@@ -516,7 +516,23 @@ You thought on it for a moment, though, and a thought came to mind. "I have... a
 
 "Mmm. The only other time I was able to do something quite as powerful was... when I found out he got my human body killed. I don't *think* it's actually like, strong emotions or trauma triggers this stuff, but... I guess if Jevil is powering my body, that same chaos magic still sorta... resides in me, even when filtered through my soul."
 
-"And how much control does he have over you, like this?" Undyne leaned back, crossing her arms. "I mean, you experienced the same stuff he did, right? What's to say you're not just as mad as he is?" 
+"And how much control does he have over you, like this?" Undyne leaned back, crossing her arms. "I mean, you experienced the same stuff he did, right? What's to say you're not just as mad as he is?"
+
+You raised an eyebrow at her.
+
+"Just saying." She shrugged. "You have his eyes, his magic... he's *probably* been in your head, if I had to guess."
+
+"Ehh, I guess it's fair." You leaned forward. "And... look, I get it. With a monster like him, and the unique situation with... all of this." Pausing, you considered how much to tell. "I've... seen a lot, over the last few months. Stuff I would've thought impossible. I've *seen* the things that drove him to that madness. But we... both processed it differently, I guess.
+
+"He was told his world was a simulation, felt that nobody else had any free will. He saw his world as a metaphorical prison, felt the literal prison he ended up in was the only place he was truly free. He was alone, and felt that breaking the rules of the script - of society - was the only way to exert control.
+
+"When he swapped me into his position, brought me into his reality... I did see it too. The patterns, the strings being pulled, the... underlying code, sometimes. But *my* reality, the world he pulled me from... I... had more of a framework with which to comprehend what I was seeing. Jevil is of a medieval type of world, no modern technology - not the way you and I know it. I understood the concept of a simulation, he simply didn't. He *was* driven mad, because he couldn't comprehend his prior life had been a total lie. And I... chose to find a life within that framework, not knowing how long I'd be there, because I wanted stability, friends. I chose to persevere - not to break the world apart to understand it, not to control it, but to find peace.
+
+"I refused to attack you because, even if I didn't want to die, more than that I didn't want to break the peace, the stability of the Underground. I didn't have a choice in coming here, Undyne... but I do have a choice in how I conduct myself. I have no interest in stirring up trouble - trust me, I've had enough of that to last a *lifetime*. No, honestly I'd like things to stop happening to me for a while, some time to actually *adjust* to this... new body of mine, just some peace and honestly, a very long nap. In return, well, I can help restore some of the techy stuff that ends up down here - I've already started assessing a portable computer that Dr Alphys found. And I'm sure that there are things that a willing test subject could contribute to science, as someone with a human soul."
+
+"'Someone with a human soul'..." It was Undyne's turn to raise an eyebrow. "Just say you're human, punk."
+
+You shook your head. "I've been living as a monster for months already. Not by choice, and there's a lot of things I miss from where I originally came from, but..." You shrugged. "I'm mostly used to it at this point. I just hope that this," you gestured at your body, "is the last physical change that's going to happen for a *long* time."
 
 ----
 
