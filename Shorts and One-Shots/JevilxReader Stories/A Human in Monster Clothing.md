@@ -532,7 +532,51 @@ You raised an eyebrow at her.
 
 "'Someone with a human soul'..." It was Undyne's turn to raise an eyebrow. "Just say you're human, punk."
 
-You shook your head. "I've been living as a monster for months already. Not by choice, and there's a lot of things I miss from where I originally came from, but..." You shrugged. "I'm mostly used to it at this point. I just hope that this," you gestured at your body, "is the last physical change that's going to happen for a *long* time."
+You shook your head. "I've been living as a monster for months already. Not by choice, and there's a lot of things I miss from where I originally came from, but..." You shrugged. "I've adjusted to it at this point. It's just that this," you gestured at your body, "is the most 'me' I've felt for quite a while."
+
+"Wh-- ...what do you mean 'the most you'? What were you before?"
+
+"Um, Jevil, actually."
+
+The captain's eyes widened.
+
+"Not in mind, n-no! I mean, well, when he did his... soulswap thing-"
+
+"A **soulswap**?!" Undyne gaped. She glanced over at Alphys, silently watching the conversation, who gave a nod. "Shit, okay! I mean he said he swapped places with you earlier to escape, but I didn't think...!" She actually seemed a little on edge now. "Wow, I'm kinda glad now he's *only* been mischievous with our Royal Guard up to this point. Ffffuhhh..." She rubbed her forehead, getting her bearings again, then looked over you again, with seemingly fresh eyes. "Okay. So, let me see if I have this right so far. This whole... *this*," she gestured at you, "started with you getting pulled into a monster body, having to live as that monster for months. The monster in question going AWOL, only returning to snatch you up right as you're about to die, and you're basically living under his control right now."
+
+You blinked.
+
+Then again.
+
+You hadn't really thought about it like that. But it... made sense. 
+
+Because of how Jevil had saved you from death, you were only alive only so long as he continued to share his mana supply with you. Right now, you had it going for you that you had seen the UI 'visions' he had seen back in the Deltarune universe. 
+
+What if... he got bored of you?
+
+What if he decided you didn't need autonomy anymore?
+
+The expression forming on your face must have said it all. "I don't think she'd looked at it in quite that light before, Alphy."
+
+"T-there must be *something* we can do!" Alphys proclaimed. "Y-you *deserve* to be your own person!"
+
+"I agree, I don't like this," murmured Undyne, before speaking up again, "And he *had* kind of left you here while he did his own thing. And *only* showed up after you were... well, after you were supposed to die."
+
+The more you thought on it, the more you were angry about the situation. "Fuckin' hell, man... Why the hell is it that every *other* monster I've ever met has been wonderful, and yet I get stuck with the one that might just see me as some toy or pet."
+
+The girls looked between each other.
+
+"I think that's a discussion worth having sooner rather than later... but one thing at a time. Forgetting Jevil for a moment. Y/N." Undyne peered at you. "You've indicated you want to live in peace with us. But we still need two more human souls before we're able to see the surface again. Do you plan to interfere if a human falls down into the Underground?"
+
+"No," you said immediately. "I'm perfectly capable of minding my own business, should it come to that." You sighed. "Hell, if it comes down to it and a human starts attacking, I'll be right there with you guys doing whatever we need to to make sure everyone down here is safe."
+
+Undyne snorted, but grinned. "Damn. Alright punk, you got guts." She thought for a moment. "And... if King Asgore *doesn't* approve your exemption, will you willingly give up your soul?"
+
+You looked at the ground, taking a deep breath. "I won't like it, but, Jevil permitting, I will surrender my soul if I must."
+
+Undyne looked pleasantly surprised. She rose to her feet. "Well, I think that's all the info I needed to know. Thanks for letting me stick around, Alphys. I feel comfortable reporting that this kid on her own isn't going to be a problem. That said..." she glanced around the room. "Do whatever you can while she's still here to research a way to safely break that bond. I... think she'll be of best use if she doesn't have that hanging over her head."
+
+"I-I'll do whatever I can, Undyne." Alphys nodded, a glint of determination in her eye.
 
 ----
 
