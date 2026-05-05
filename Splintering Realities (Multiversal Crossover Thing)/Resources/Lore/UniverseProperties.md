@@ -6,7 +6,13 @@ Think of this work's interpretation of the multiverse and the placement of parti
 
 A visitor from a 'Linear Time' universe to a 'Fluid Time' universe may encounter a situation where they are present in the universe they are visiting, but said universe has already passed off governance of the visitor back to their previous universe. In this state, they are present in two places - they appear to be present and interacting with the universe they are present in, but may actually also present in a place 'between' this universe and their previous universe.
 
-Between all universes is a damaged reality known by various names ("The Horizon" in A Hat in Time, "The Void" in Undertale/Deltarune). It acts as an insulating layer preventing universes from colliding or otherwise touching each other.
+There are also 'subverses'. These are a kind of universe born from extensive fanwork for a particular universe. Because it consists of multiple 'worlds' or 'timelines' freely inter-mingling, without traditional 'space' or other cosmic phenomomena, the inhabitants might consider it a multiverse of its own. The prime example is what is deemed the "Undertale Multiverse" by fans.
+
+(Note that there are technically *two* Undertale universes as a result - the one Hat Kid and her companions find at the start of the multiversal collision is the 'original' Undertale, insulated from its fanwork. The 'Classic' Undertale found within the UTMV subverse was created when the fanworks grew into their own 'fanon' reality, and exists at a later point within its timeline, where monsters made it to the surface and have settled amongst humanity.)
+
+Between all universes is a damaged reality known by various names ("The Horizon" in A Hat in Time, "The Void" in Undertale/Deltarune). It acts as an insulating layer preventing universes from colliding or otherwise touching each other. It will also absorb entities 'rejected' by the universal narrative (characters for whom the universe has no purpose, etc).
+
+
 
 Each universe listed is ranked on certain statistics:
 Physics: Generally, how objects interact with each other. (scale: Damaged ... Simplified ... Semi-Realistic ... Realistic)
