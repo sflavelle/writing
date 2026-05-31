@@ -26,13 +26,17 @@ Which is how you would find yourself in the archives for most of your free time,
 
 It wasn't working out yet - as it turned out, trying to learn techniques that were simply innate ability for monsters was a *lot* of trial and error... Just because the body you currently inhabited was capable, did not mean you immediately knew how to tap into that energy. But you kept at it - you wanted to be able to cast magic at least once, even if it wasn't going to follow you once you were reunited with your own body.
 
-One day while deep in this fervor of study, sipping on a cup of coffee provided for you by one of the kitchen staff (sadly still acting strangely around you, but whom *seemed* to be beginning to let their guard down), you heard the doors into the archive burst open loudly, and you snap your head to the side to avoid the subsequent spittake from damaging any of the many books you still had surrounding you.
+One day while deep in this fervor of study, sipping on a cup of coffee provided for you by one of the kitchen staff (sadly still acting strangely around you, but whom *seemed* to be beginning to let their guard down), you heard the doors into the archive burst open loudly, and you jumped at the sudden noise--
 
-While calming your thumping heart (worriedly feeling for it when you don't actually feel anything under your hands) you hear the hurried footsteps of someone approaching. You turn in your seat and...
+Then your head involuntarily launches off your shoulders.
 
-A young Darkner stops before you with some trouble. He is white and light-blue, his face in the shape of a spade, featureless except for a mouth which gaped up at you.
+The resulting scream of panic draws the archives' attention as your head swings violently from side to side. A wave of nausea rolls through you as you feel the urge not to throw up, physically turning your body to the side to avoid the subsequent spittake from damaging any of the many books you still had surrounding you.
 
-You both stared at each other for a moment, before you raised a gloved hand in greeting. "Hello, young one! Is everything alright?"
+While calming your thumping heart (worriedly feeling for it when you don't actually feel anything under your hand) you hear the hurried footsteps of someone approaching. You grapple upwards for your head and feel... coiled metal wire connecting your head to your body. Your head was on a spring...?
+
+As you pull your head back down onto your shoulders, a young Darkner stops before you with some trouble. He is white and light-blue, his face in the shape of a spade, featureless except for a mouth which gaped up at you.
+
+He watched as you finally figured out how to secure your head back onto your body, before finally turning to face him. You both stared at each other for a moment, before you coughed awkwardly, and raised a gloved hand in greeting. "H...hello, young one! Is everything alright?"
 
 Immediately the kid pouted. "Hey! That's no way to talk to your king!"
 
@@ -68,6 +72,6 @@ Cartoon sound effects. Rather, wet splat noises. You unconsciously mimicked one 
 
 "Nah! Lo-fi splats to relax and study to is where it's at!" He grinned.
 
-"...fair enough." You shrugged. "Now you've got me wishing I had my own music to listen to."
+"...fair enough." You shrugged. This world was weird, but really *you* were the outlier, so who were you to complain? "Now you've got me wishing I had my own music to listen to."
 
 You began to properly introduce yourself to the boy king, you and Rouxls filling him in on your story, and why you now inhabited this body.
