@@ -56,7 +56,9 @@ Seam nodded in return, and stood back to allow you to bring out your soul.
 
 ... Which you didn't know how to do. Something that the magician himself seemed to realise after a moment. "Ah - my apologies, it appears I must teach you. I should not be surprised... most monsters or humans nowadays have forgotten about the nature of one's soul."
 
-He guided you through the process of manifesting your soul - apparently most easily accomplished (outside of battle) through physical gestures around the chest. Eventually you felt a strange tugging sensation as something pushed against the inside of your chest before seeming to just... slip through. 
+"Well, that and I come from a world where soul is just a concept, not a tangible... thing," you commented, but leaned forward intently.
+
+He guided you through the process of manifesting your soul - apparently most easily accomplished (outside of battle) through physical gestures around the chest, like you were lifting something away from you with two hands. Eventually you felt a strange tugging sensation as something pushed against the inside of your chest before seeming to just... slip through. 
 
 And then... there it was. 
 
@@ -64,7 +66,7 @@ A purple cartoon heart gently pulsed before you, it's soft glow illuminating you
 
 You shook, in awe and wonder and yet also slightly fearful. You were looking at the manifestation of everything that you were - it was an amazing sight, and a little terrifying to think about.
 
-Seam hummed in approval. "Well done. I should not be surprised that you possess a soul of Perseverance."
+Seam hummed in approval. "Well done, dear friend. I should not be surprised that you possess a soul of Perseverance."
 
 You blinked, and looked up at him. "You can... tell that?"
 
