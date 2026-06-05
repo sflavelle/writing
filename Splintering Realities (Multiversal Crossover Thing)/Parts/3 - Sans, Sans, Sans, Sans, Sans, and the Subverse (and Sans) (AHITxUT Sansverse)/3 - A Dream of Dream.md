@@ -92,7 +92,7 @@ The skeleton's grin compressed into a smirk and began to pace around the spectre
 
 "I remember hearing something from your 'peers' about positivity and negativity," Snatcher said flatly.
 
-"Indeed. Too much positivity in the multiverse can become toxic. However, so too can negativity do the same. There is a balance that must be struck. This is something that my brother and I, and indeed the general public, have fundamentally disagreed on for many decades."
+"Indeed. Too much positivity in the multiverse can become toxic. However, so too can negativity do the same. There is a balance that must be struck. This is something that my brother and I, and indeed the general public, have fundamentally disagreed on for many centuries."
 
 He continued, "There are two dangerous entities that we know of that do not care for this balance. The God of Destruction of this multiverse, Error, is one of them." The skeleton paused in place, turning toward his audience. "And evidently, this 'Moonjumper' creature who has managed to destroy my physical form - whom you and your team are following - is another. Error is a known quantity to us. This Moonjumper is not."
 
@@ -102,7 +102,7 @@ Nightmare smirked. "Even before our demise, my brother and I were capable of tra
 
 ----
 
-Sans dodged once more as Frisk attempted to slash at him. In what was quickly becoming routine, he stepped to the side and flung a few more jagged bones in the anomaly's direction.
+Sans dodged once more as ~~Frisk~~ attempted to slash at him. In what was quickly becoming routine, he stepped to the side and flung a few more jagged bones in the anomaly's direction.
 
 ~~Frisk~~ charged him once more, and he blocked the knife swing with his own attack, their weapons clashing. He looked down into the face of the child, expecting some horrid grin, but--
 
@@ -177,3 +177,29 @@ Nightmare blinked. "You're... dreaming of sleeping, child?"
 "...Yeah?" Hat Kid yawned. "...sleeping's the best."
 
 Dream surprised himself by bursting into laughter. "Oh, I like this kid."
+
+It took the child a few moments to realise that these were skeletons. The two guardians watched as her eyes sharpened, and took in the sight of the two of them. “Huh, wait… are you two the guardians?”
+
+With a blink of surprise at the kid picking them out so quickly, Dream nodded.  
+
+“What a fascinating child,” Nightmare noted, seemingly impressed. “Do you know why we are here?”
+
+“Umm… something about balancing the emotion in this subverse?”
+
+“*In this dream*, young one. Although… ‘subverse’? Do you not mean ‘multiverse’?”
+
+“It’s *not*!” Hat Kid suddenly snapped. “The multiverse contains *all* universes!”
+
+A beat.
+
+“Yes…?” Affirmed Dream, confused. “That’s what a multiverse does…?”
+
+“A subverse… from the inside it can *seem* like a multiverse of its own. But… well, think about it. Isn’t it weird that any universe any of you go to - because I understand that’s what all you Sanses do - you always run into the same people? Never any new kinds of life? No outer space?” She gestured at the viewport as she finished.
+
+“What about Outertale?” Dream suggested.
+
+“Is… I’m guessing that’s basically a ‘space’ version of this ‘Underground’ that a few of your lot mentioned?” The golden skeleton nodded. “It’s different sure, but nobody really goes too far from it, do they? That’s what a subverse is, as theorised by the Tempus society. It’s a bunch of realities, grouped by some related theme, with no true ‘space’ between ‘worlds’. It *feels* like a multiverse, but on a less grand scale.”
+
+“I imagine our ‘subverse’ must feel quite insulted,” Nightmare mused.
+
+“I would be willing to bet that me and my friends are the most unique things here.”

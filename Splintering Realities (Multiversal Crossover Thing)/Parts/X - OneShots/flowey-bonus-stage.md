@@ -8,6 +8,8 @@ Joel looked up from his workbench, which was littered with PCBs and wires. "Yeah
 
 "... Do you really need me to answer that?" The nerd narrowed her eyes. 
 
+Joel met her stare in silence for several seconds.
+
 "Well, you're right," Joel continued nonchalantly. "I thought that Bonus Stage could use an upgrade."
 
 "Really." Elly was unimpressed. "Well good call, maybe with the processor in that thing you can double the amount of actual interesting characters on this show," she snarked.

@@ -8,7 +8,7 @@ He hoped she wasn't seriously hurt...
 
 He couldn't believe Maddy was however old and didn't have any sort of mobile phone. How on earth did she get on without one? It would have been so nice to just, be able to call her and see if she was okay.
 
-Unfortunately... well, she didn't. And they were both lost under the mountain in... what seemed like a brand new world.
+Unfortunately... well, she didn't. And they were now both lost under the mountain in... what seemed like a brand new world.
 
 His gaze shifted from his phone to the kitchen door.
 

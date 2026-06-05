@@ -1,8 +1,10 @@
-Nightmare sat at the booth, in a corner of the 'Mafia HQ' as he waited. A coffee sat in front of him, conjured from the dream. The hideout and apparent casino, not the focus of the mustached girl's dreamscape, shimmered and blurred in places, not entirely real. 
+Nightmare sat at the booth, in a corner of the 'Mafia HQ' as he waited. A coffee and several papers sat in front of him, conjured from the dream. The hideout and apparent casino, not the focus of the mustached girl's dreamscape, shimmered and blurred in places, not entirely real. 
 
 He considered what he had heard tonight. 
 
-The Creator had died in yesterday's attack. Another supposed immortal slain in this 'Moonjumper's attack on their worlds. And yet somehow, it had been beaten back in their attempt on the Destroyer...
+The Creator had died in yesterday's attack. Another supposed immortal slain in this 'Moonjumper's attack on their worlds. Their universe- *subverse*, he corrected himself- would no longer grow.
+
+And yet somehow, it had been beaten back in their attempt on the Destroyer...
 
 What was their goal here? Gaining Error's ability to destroy, rip apart universes didn't make much sense. Was it really as the interlopers said? Did they *really* want to tear down the entire multiverse?
 
@@ -14,7 +16,7 @@ Dream looked quite beaten down after the events of the last few days. He nodded 
 
 Nightmare nodded again, in lieu of any real response.
 
-"I still can't believe we're dead," Dream muttered softly, leaning forward and resting his skull on the table, and then resting his arms there as well, hands knitted together on the back of his head. "And yet Ink is just... gone."
+"I still can't believe we're dead and yet still here," Dream muttered softly, leaning forward and resting his skull on the table, and then resting his arms there as well, hands knitted together on the back of his head. "And yet Ink is just... gone."
 
 Nightmare took a sip of the coffee in front of him. "We currently do not know that for certain. He may not be," he conceded. "We already had this... ability, to traverse the dreamscape. It is possible that his... unique composition might... aid him in his afterlife. But..."
 
@@ -34,7 +36,7 @@ Both skeletons were silent for a time.
 
 Nightmare paused. He leaned in over the booth. "Are you *falling down*, brother?" He asked slowly, his expression strangely concerned. "After everything that has happened, all that I have put you through, *this* is where you're giving up?"
 
-"No? Er- Oh! No, no!" Dream briefly plastered a grin on his face and pretended to swat Nightmare away. "No, sorry. But uh- I've decided that... I'm going to follow along with the interlopers. It just seems... right, you know? Maybe there's still some way for me to help fix all this."
+"No? Er- Oh! No, no!" Dream briefly plastered a grin on his face and pretended to swat Nightmare away. "No, sorry. But uh- I've decided that... I'm going to follow along with the interlopers. It just seems... right, you know? Maybe there's still some way for me to help fix all this. Maybe we’re still here for a reason."
 
 Nightmare raised his eyes to meet his brother's, examining him. "...Heh," he finally said. "That's more like the Dream I know. I'm not surprised - not even death can truly keep you down."
 

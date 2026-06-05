@@ -24,6 +24,8 @@ Slowly, Kris raised their head, fixing Susie with a dead stare. They were silent
 
 Finally, they took a breath. "Was that worth it?"
 
-"Very."
+"Absolutely."
 
 "Great. Please help me check this weird-ass office."
+
+After the attack on Hometown that had wiped them out, Kris and Susie awoke to find themselves sprawled across this… office space. Now, there was no reason for them to be in an office - the nearest office building they knew of was at least ten minutes driving away from the town - and this was clearly still the Light World.

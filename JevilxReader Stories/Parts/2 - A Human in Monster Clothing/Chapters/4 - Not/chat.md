@@ -12,11 +12,11 @@ Jevil nodded, caressing a glove through your head fur. "That was... a lot of mag
 
 Another moment of silence.
 
-"Are... we cool?" Undyne prodded. "That was... there's no need for combat between monsters. Besides, I've been hearing you're giving the Snowdin Unit a real workout with your antics."
+"Are... we cool?" Undyne verbally prodded. "That was... there's no need for combat between monsters. Besides, I've been hearing you're giving the Snowdin Unit a real workout with your antics."
 
 His face when the jester looked toward her was full of distrust. Eventually he sighed, and nodded. "We're... 'cool'. For now, for now. *But*," he suddenly snapped, "there is *no need* for combat with *her* either." He gestured toward your sleeping form.
 
-Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. That's not my decision. I have... my own issues with humans, Jevil. But... under law, their souls are forfeited to Asgore. Simply put, seven human souls created the barrier that put us down here, so seven human souls will break us out. Humans killed the royal children, so they must pay in *some* fashion. Okay? That's just how it is. But..." 
+Undyne glanced at him with widened eyes before, sighing, fixing her gaze on Jevil. "Alright... look. That's not my decision. I have... my own issues with humans, Jevil. But ignoring that... under law, their souls are forfeited to Asgore. Simply put, seven human souls created the barrier that put us down here, so seven human souls will break us out. Humans killed the royal children, put us down here, so they must pay in *some* fashion. Okay? That's just how it is. But..." 
 
 Her gaze flickered over to you, sleeping more peacefully now, your face nestled against the jester's hip. "... clearly Alphys sees something different in her to want to apply for an exemption, and maybe Asgore does too, to want to go along with this, who knows. Asgore sent me here to assess any immediate threat to the Underground from her, especially before he sees her and makes his own decision. And, well..."
 
@@ -52,7 +52,7 @@ Jevil's only response was a sly, "I can do anything."
 
 "Let's n-not forget that we don't know what that other reality is like," Alphys pointed out. "If magic expenditure is the same there as it is here, ambient magic saturation, how mana reserves function there... We already know monsters themselves are different there, so it's possible that... hm..."
 
-"Focus, Alphys." Undyne took a breath. "Okay, so they... spent time in your body, and then you got them a new monster body when you brought them here. Were you aware when you brought them here that humans were to be harvested for their souls?".
+"Focus, Alphys." Undyne took a breath. "Okay, so they... spent time in your body, and then you got them a new monster body when you brought them here. Were you aware that here, humans were to be harvested for their souls?".
 
 Alphys winced at the wording. "'Harvested' is a bit much..."
 
@@ -126,7 +126,7 @@ You nod. "I was informed this morning. This morning?" You asked questioning at A
 
 "My understanding is that all human souls that enter the Underground are to be surrendered to the King, to be used to break a Barrier that is keeping you all down here."
 
-Undyne nodded. "I want something to be made very clear, human. We are currently in possession of five souls, accumulated over the course of over 150 years. We are getting ever closer to being able to see the sun after so long in this human-enforced captivity. So for the Royal Scientist to request that *one* be left alone, when we only require two more, is asking a lot of the Underground. Do you understand?"
+Undyne nodded. "I want something to be made very clear, human. We are currently in possession of five souls, accumulated over the course of over many centuries, many generations of monste. We are getting ever closer to being able to see the sun after so long in this human-enforced captivity. So for the Royal Scientist to request that *one* be left alone, when we only require two more, is asking a lot of the Underground. Do you understand?"
 
 You nod silently. 
 
