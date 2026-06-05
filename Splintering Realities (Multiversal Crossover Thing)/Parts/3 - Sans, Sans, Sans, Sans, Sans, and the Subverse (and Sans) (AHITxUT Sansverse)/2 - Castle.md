@@ -144,4 +144,36 @@ Immediately he felt several pings, several checks against his soul. Immediately 
 
 "jig's up," rasped the attacker. "who are you *really*?"
 
-"Now hang on!" shouted Hat Kid over the sudden commotion that erupted. "None of us are even from this universe! *You're* all the ones making assumptions!"
+"Now hang on!" shouted Hat Kid over the sudden commotion among the skeletons that erupted in response to Dust. "None of us are even from this universe! *You're* all the ones making assumptions!"
+
+“Come to think about it,” says the artist, gesturing at Snatcher, “I’ve never seen a monster like *him* before.”
+
+Snatcher scoffed. “If you think *I’m* a monster, kiddo, wait til you meet my ex. No, we’re not from around here.”
+
+“Yeah!” Squeaked Flowey. “You think I *want* to be surrounded by Trashbags?”
+
+“look, bud.” Sans’s expression was measured. “i dunno what to tell you. i’m sans, and i’m guessing you’re all sans too. i didn’t think your universe would be filled with copies of me. you,” he focused on Dust, “you called me classic. i don’t know who that is, and I’m not sure i like what that implies, but we-“
+
+“ouch, man. that stings. what did i ever do to you?”
+
+Sans stopped, eyes widening. Each of these Sanses had a different tone or accent to their voice, but the one that had just spoken sounded *exactly* like him. He watched Dust’s eyes shoot to something behind him, and he carefully turned his head.
+
+Yep, that sure was an exact doppelgänger of him.
+
+The other him nodded in his direction. “i was going to stay out of this nonsense. yknow, not my problem. so of course error then decides to tell me about some duplicates hanging around, so, fine, here i am.” He glanced around, his eyes landing on Frisk and Flowey among the other children. “heh. hey, frisk 2. flowey 2.”
+
+Frisk waved politely.
+
+His glance turned back to Sans. “that’s paps’ scarf, yeah? he isn’t… is he?”
+
+Sans sighed and nodded slowly. “same guy that got dream and nightmare, seemingly. we,” he nodded toward his group, “are chasing him through the multiverse. he’s up to something, and i don’t think it’s going to be good for any—“
+
+The loud crunch startled the group, and they turned to see Snatcher with a bucket of popcorn, popping a kernel into his mouth.
+
+Killer burst out laughing. “Okay this guy is *hilarious*. You gotta gimme some of that.”
+
+“Killer!” Scolded the Papyrus Sans. “This Is A Serious Discussion That They Are Having!”
+
+“Dude who cares, bluey? This drama shit is great. Nightmare will love— right, fuck, yeah.”
+
+“aight look.” Sans cut them off. “i’m happy to compare notes and figure out what’s up, and get to know everyone.
