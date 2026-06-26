@@ -144,7 +144,7 @@ Immediately he felt several pings, several checks against his soul. Immediately 
 
 "jig's up," rasped the attacker. "who are you *really*?"
 
-"Now hang on!" shouted Hat Kid over the sudden commotion among the skeletons that erupted in response to Dust. "None of us are even from this universe! *You're* all the ones making assumptions!"
+"Now hang on!" shouted Hat Kid over the sudden angry commotion among the skeletons that erupted in response to Dust. "None of us are even from this universe! *You're* all the ones making assumptions!"
 
 “Come to think about it,” says the artist, gesturing at Snatcher, “I’ve never seen a monster like *him* before.”
 
@@ -162,17 +162,17 @@ Yep, that sure was an exact doppelgänger of him.
 
 The other him nodded in his direction. “i was going to stay out of this nonsense. yknow, not my problem. so of course error then decides to tell me about some duplicates hanging around, so, fine, here i am.” He glanced around, his eyes landing on Frisk and Flowey among the other children. “heh. hey, frisk 2. flowey 2.”
 
-Frisk waved politely.
+Frisk waved politely. Flowey rolled his eyes exaggeratedly.
 
-His glance turned back to Sans. “that’s paps’ scarf, yeah? he isn’t… is he?”
+His glance turned back to Sans, gesturing at his neck. “paps’ scarf, yeah? he isn’t… is he?”
 
-Sans sighed and nodded slowly. “same guy that got dream and nightmare, seemingly. we,” he nodded toward his group, “are chasing him through the multiverse. he’s up to something, and i don’t think it’s going to be good for any—“
+Sans sighed and nodded slowly. “same guy that got dream and nightmare, seemingly. so, yeah, you could say i am a little invested. we,” he nodded toward his group, “are chasing him through the multiverse. he’s up to something, and i don’t think it’s going to be good for any—“
 
 The loud crunch startled the group, and they turned to see Snatcher with a bucket of popcorn, popping a kernel into his mouth.
 
 Killer burst out laughing. “Okay this guy is *hilarious*. You gotta gimme some of that.”
 
-“Killer!” Scolded the Papyrus Sans. “This Is A Serious Discussion That They Are Having!”
+“Killer!” Scolded the Papyrus Sans. “And… You! Whoever You Might Be! This Is A Serious Discussion That They Are Having!”
 
 “Dude who cares, bluey? This drama shit is great. Nightmare will love— right, fuck, yeah.”
 

@@ -146,7 +146,7 @@ Hattie nodded, still a little teary. "I... guess that was the idea. You had to l
 
 "They are Fire Spirits, dear," jumped in Cooking Cat, for which Hattie was grateful. "They're normally quite docile, normally. All they usually wish is to, um... become one with the flame."
 
-Hat Kid did feel comfortable taking over the next part. "They explained to me that they need a strong magical fire to be part of... Snatcher just wanted me to, y'know, *kill* them. The spirits explicitly *wanted* to be consumed in the fire. Even if that has contributed to this 'LV' number, that's why I think it doesn't count."
+Hat Kid did feel comfortable taking over the next part. "They explained to me that they want, need a strong magical fire to be part of... Snatcher just wanted me to, y'know, *kill* them. The spirits explicitly *wanted* to be consumed in the fire. Even if that has contributed to this 'LV' number, that's why I think it doesn't count."
 
 "... because they wanted to die in that particular manner?" The boss monster looked conflicted. She turned her head towards Cookie. "Can you vouch for this behaviour?"
 

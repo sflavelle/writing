@@ -1,4 +1,4 @@
-Alphys and Undyne found the two of you laid down on the couch in the living area at the rear of the lab, whole and intact and asleep. The shimmer and glow of purple magic was gone, and a quick CHECK showed you had at least managed to eat a couple monster candies, your HP no longer at zero, and your SOUL had stitched itself back together.
+Alphys and Undyne found the two of you laid down on the couch in the living area at the rear of the lab, with you whole and intact and asleep. The shimmer and glow of purple magic was gone. A quick CHECK showed you had at least managed to eat a couple monster candies, your HP no longer at zero, and your SOUL had stitched itself back together.
 
 Jevil sat next to your head, caring for you while you recovered from your exhaustion, an odd look on his face as he considered your situation. He glanced up briefly at the two monsters as they approached (glaring at Undyne as she passed by), Alphys setting down a cup of noodles nearby your resting place before she and Undyne took their own seats, but quickly resumed his vigil.
 
@@ -22,7 +22,7 @@ Her gaze flickered over to you, sleeping more peacefully now, your face nestled 
 
 She sighed, conflicted. "She preferred to use her words more than action, defence and evasion more than offense. Refused to lay a hand on me... So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is she the same? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
 
-Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Monsters yes, born from the Dark. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up for this revelation! Told I was mad, mad!"
+Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Monsters yes, born from the Dark. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up in my freedom for this revelation! Told I was mad, mad!"
 
 "In my wish to break free of the game I was trapped in, I reached out and used my new knowledge, my new understanding of reality to switch places with a Lightner, one from the 'real' world of our universe. How was I to know that I would instead reach out to a whole other reality!" 
 
@@ -126,7 +126,7 @@ You nod. "I was informed this morning. This morning?" You asked questioning at A
 
 "My understanding is that all human souls that enter the Underground are to be surrendered to the King, to be used to break a Barrier that is keeping you all down here."
 
-Undyne nodded. "I want something to be made very clear, human. We are currently in possession of five souls, accumulated over the course of over many centuries, many generations of monste. We are getting ever closer to being able to see the sun after so long in this human-enforced captivity. So for the Royal Scientist to request that *one* be left alone, when we only require two more, is asking a lot of the Underground. Do you understand?"
+Undyne nodded. "I want something to be made very clear, human. We are currently in possession of five souls, accumulated over the course of over many centuries, many generations of monsters. We are getting ever closer to being able to see the sun after so long in this human-enforced captivity. So for the Royal Scientist to request that *one* be left alone, when we only require two more, is asking a lot of the Underground. Do you understand?"
 
 You nod silently. 
 

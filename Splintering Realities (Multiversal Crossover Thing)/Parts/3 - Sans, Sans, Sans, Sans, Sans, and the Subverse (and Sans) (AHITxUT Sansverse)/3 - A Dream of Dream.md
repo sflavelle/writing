@@ -24,7 +24,7 @@ It was the golden tiara headpiece he adorned that gave her the best clue to who 
 
 The skeleton was self-aware enough to at least chuckle sheepishly, digits scraping at the back of his skull. "It wouldn't quite be me without it," he admitted. He nodded at the space next to Mu. "Mind if I take a seat?"
 
-"I *guess*." Mustache Girl rolled her eyes. The sudden appearance of this skeleton, out of place in her memory, made it clear what was happening. "So I suppose I'm dreaming then."
+"I *guess* I don’t." Mustache Girl rolled her eyes. The sudden appearance of this skeleton, out of place in her memory, made it clear what was happening. "So I suppose I'm dreaming then."
 
 "Yup." The skeleton chuckled once more as he shifted into a seated position, letting his legs dangle off the pier. Mu watched him look around at the world around him.
 
@@ -44,7 +44,7 @@ Thankfully Dream let her enjoy the moment, looking around him at Seaside, still 
 
 Mustache Girl finished a particularly long sip. "I thought- Okay, forgive me for being blunt, it's just... who I am - the loud blue one said you died."
 
-Dream was startled into laughter. It was true, but he hadn't heard anyone refer to Blue in quite that way before! "In a sense, yes." He sighed, and quickly after his expression dropped. "Quite... annoying, I must be honest. My brother and I are both supposed to be functionally immortal, you see, so..." He clicked his tongue in thought. "But I still somewhat exist, as you can see! Even if I no longer have a physical body..."
+Dream was startled into laughter. It was true, but he hadn't heard anyone refer to Blue in quite that way before! "In a sense, yes." He sighed, and quickly after his expression dropped. "Quite... annoying, I must be honest. My brother and I are both supposed to be functionally immortal, you see, so..." He clicked his ethereal tongue in thought. "But I still somewhat exist, as you can see! Even if I no longer have a physical body..."
 
 "Are we on the right track, then? Was it Moonjumper that did... this?" She gestured at his body.
 
@@ -94,9 +94,9 @@ The skeleton's grin compressed into a smirk and began to pace around the spectre
 
 "Indeed. Too much positivity in the multiverse can become toxic. However, so too can negativity do the same. There is a balance that must be struck. This is something that my brother and I, and indeed the general public, have fundamentally disagreed on for many centuries."
 
-He continued, "There are two dangerous entities that we know of that do not care for this balance. The God of Destruction of this multiverse, Error, is one of them." The skeleton paused in place, turning toward his audience. "And evidently, this 'Moonjumper' creature who has managed to destroy my physical form - whom you and your team are following - is another. Error is a known quantity to us. This Moonjumper is not."
+He continued, "There are two dangerous entities that we know of that do not care for this balance. The God of Destruction of this multiverse, Error, is one of them - his quest for the purity of Undertale never ending." The skeleton paused in place, turning toward his audience. "And evidently, this 'Moonjumper' creature who has managed to destroy my physical form - whom you and your team are following - is another. Error is a known quantity to us. This Moonjumper is not."
 
-"You're talking to me as if you still have a horse in this race," Snatcher told him, narrowing his eyes. "How are you even doing this?"
+"You're talking to me as if you still have a horse in this race," Snatcher told him, narrowing his eyes. "How are you even doing this? Appearing to me?"
 
 Nightmare smirked. "Even before our demise, my brother and I were capable of traversing the dreamscape. Now, it would appear to be our only way of communication. I am here before you to provide the context you will require while you are here."
 
@@ -132,7 +132,7 @@ The blast died out, and Sans wanted to see who had fired... but first he warped 
 
 "Interesting," mused a voice from the dark, where the blaster had come from.
 
-Sans and Frisk both flinched. The skeleton helped the human to their feet, noting that they seemed... 'normal' now, for whatever definition of normal they had in their unique situation. They both turned to face the darkness. "and just what about that is so interesting?"
+Sans and Frisk both flinched. The skeleton helped the human to their feet, noting that they seemed... 'normal' now, for whatever definition of normal they had in their unique situation. They both turned to face the darkness. "and just… what about that is so interesting?"
 
 A shape strode from the darkness into the light, and as it did the darkness engulfing the entrance to Asgore's throne room seemed to fade. It was a skeleton - another Sans. But the clothes and the *mass* that made up this one's tentacles, that matched those mixed throughout the dust in the study they had seen - was enough of an indicator of who they were talking with.
 
@@ -156,7 +156,7 @@ Nightmare simply sighed, slowly walking toward the other. "Come now, brother. Th
 
 The guardian of positivity frowned, raising an eyebrow in confusion. "...Yes...?"
 
-"I doubt there is much more we can do about the roles we played in the waking world. What we *can* do, I believe, is if these beings are here because of our killer, then we can tell them what we know. Then perhaps, we might also learn some information about them."
+"I doubt there is much more we can do about the roles we played in the waking world. What we *can* do, I believe, is if these beings are here because of our killer, then we can tell them what we know. Then perhaps, we might also learn some information about them, and, if so lucky, a means to return to the world of the living."
 
 Nightmare approached his brother, going to stand on the opposite side of the captain's chair, and looked out into the void of space. Dream, more out of confusion than anything, lowered his bow.
 
@@ -168,7 +168,7 @@ Nightmare approached his brother, going to stand on the opposite side of the cap
 
 "Yes, and look what happened to them! They--"
 
-The sound of a door sliding open caused Dream to pause, both skeletons turning from the window to look behind them.
+The sound of a pneumatic door sliding open caused Dream to pause, both skeletons turning from the window to look behind them.
 
 A child, the child they were here for, slid into the room, dressed in pajamas and holding a crow monster plush, and eyed the both of them. "What're..." She cut herself off with a yawn. "...What're you doing talking so loudly? 'm trying to sleep."
 
@@ -192,13 +192,13 @@ With a blink of surprise at the kid picking them out so quickly, Dream nodded.
 
 A beat.
 
-“Yes…?” Affirmed Dream, confused. “That’s what a multiverse does…?”
+“Yes…?” Affirmed Dream, confused. “That’s what a multiverse is…?”
 
 “A subverse… from the inside it can *seem* like a multiverse of its own. But… well, think about it. Isn’t it weird that any universe any of you go to - because I understand that’s what all you Sanses do - you always run into the same people? Never any new kinds of life? No outer space?” She gestured at the viewport as she finished.
 
 “What about Outertale?” Dream suggested.
 
-“Is… I’m guessing that’s basically a ‘space’ version of this ‘Underground’ that a few of your lot mentioned?” The golden skeleton nodded. “It’s different sure, but nobody really goes too far from it, do they? That’s what a subverse is, as theorised by the Tempus society. It’s a bunch of realities, grouped by some related theme, with no true ‘space’ between ‘worlds’. It *feels* like a multiverse, but on a less grand scale.”
+“Is… I’m guessing that’s basically a ‘space’ version of this ‘Underground’ that a few of your lot mentioned? ‘Outer’ space?” The golden skeleton nodded. “It’s different sure, but nobody really goes too far from it, do they? That’s what a subverse is, as theorised by the Tempus society. It’s a bunch of realities, grouped by some related theme, with no true ‘space’ between ‘worlds’. It *feels* like a multiverse, but on a less grand scale.”
 
 “I imagine our ‘subverse’ must feel quite insulted,” Nightmare mused.
 

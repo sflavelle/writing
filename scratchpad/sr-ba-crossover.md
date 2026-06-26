@@ -96,7 +96,7 @@ Just... walking around. Like they weren't twelve thousand years dead.
 
 Lily yanked her hand back from the other creature with a terrified squeak, suddenly in a fight-or-flight mode. The other whirled around with a 'what in the hell' as the inkling scrambled first behind the shark/piranha creature who was leading her, then into a nearby alley, hiding behind a dumpster.
 
-The taller quickly found them again, holding two small gun-lile weapons close to their chest. They quickly became concerned. "The hell's going on, punk?!"
+The taller quickly found them again, holding two small pistol-like weapons close to their chest. They quickly became concerned. "The hell's going on, punk?!"
 
 "What do you mean, 'the hell is going on'?!" Lily snapped. "Humans have been dead for 12,000 years, why in the fuck are they just walking around like nothing happened?!"
 
@@ -108,11 +108,11 @@ As Lily watched, her companion's eyes went wide again, and her face seemed to so
  
  Lily blinked. "...What."
  
-"You know! The ones where the heroine is living a normal life and then she dies and appears in a fantasy world to find their TRUE PURPOSE!" She stood, and punched her fist into the air in exaggeration. "You look like one of those! What does she call 'em... eee... Isekai! Yeah! ...Except... the way you look, with your hi-tech lookin' gear, I guess maybe the opposite kinda happened, huh."
+"You know! The ones where the heroine is living a normal life and then she dies and appears in a fantasy world to find their TRUE PURPOSE!" She stood, and punched her fist into the air in exaggeration. "You look like one of those! What does she call 'em... eee... Isekai! Yeah! ...Except... the way you look, with your hi-tech lookin' gear, I guess maybe the opposite kinda happened, huh. Like the fantasy found its way to reality or something."
 
 Lily stared, blankly as she took this in. Slowly she blinked, and focused on her companion. "Then... if that's true, just... where am I? ... can I find a way back?"
 
-The other sighed. "I dunno, punk, but we're not gonna leave you to just fend for yourself in the meantime." She reached out a webbed hand to help up the Inkling. "Name's Undyne, by the way. Captain of the Royal Guard. Didn't think I'd need to introduce myself, didn't think this would be a longer term thing, but, well..."
+The other sighed. "I dunno, punk, but we're not gonna leave you to just fend for yourself in the meantime." She reached out a webbed hand to help up the Inkling. "Name's Undyne. Captain of the Royal Guard. Didn't think I'd need to introduce myself, didn't think this would be a longer term thing, but, well..."
 
 Lily sighed, and used Undyne's hand to pull herself up. "Thanks. Lily Sunden, Agent 5 of the New Squidbeak Splatoon."
 
@@ -131,6 +131,10 @@ As they passed a pub, Lily caught a sight of something on fire in the windows-- 
 Undyne heard her, and grinned. "Yep! Monsters are all sorts, but the one thing we got in common is magic. Made of the stuff. Not this gross flesh and blood stuff humans have."
 
 "That explains all the varied appearances," she told the guard. "Never seen anything like it."
+
+Undyne blinked. “So wait…” she spun around to face Lily. “Why didn’t you freak when you ran into me?”
+
+
 
 Eventually she was ushered into an apartment building, Undyne handling the keycard, and in the common space she guided the inkling to a massive corner couch, where she joined (paling slightly) a sentient skeleton in a hoodie laying across some of the opposite side, and a sunflower *thing* in a pot on a table closer to the inkling. Both were focused on the television sitting against the opposing corner of the room, though they eyed Lily as Undyne guided her to sit. 
 

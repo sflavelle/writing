@@ -129,3 +129,9 @@ You would keep this knowledge to yourself.
 "And that was how it was," Seam continued on eventually, unaware of your internal deliberations, "Until the Four Kings became the Spade King and three missing Kings, and this world was enveloped in Dark." He took a sip of his tea. "Eventually the Heroes of Light arrived, and in their quest to stop the entropy of the Dark Fountain, they became aware of Jevil's existence. Their mission did not require it, and yet... They sought to tie up the loose end that he represented. They sought the pieces of the key, and when they met him in that cell, the Heroes matched his chaotic magic with great will and determination. His power was seemingly sedated..." 
 
 He paused, and his eyes met yours. "Except that you came along, it seems, bringing us to the present."
+
+You sighed and looked away, nodding. “…I see…”
+
+You considered things for a few quiet moments, before coming to a decision. You reached for your coffee, and before taking a sip, you casually said, “Well that explains the things I’ve been seeing.”
+
+Seam paused, examining you carefully. 
