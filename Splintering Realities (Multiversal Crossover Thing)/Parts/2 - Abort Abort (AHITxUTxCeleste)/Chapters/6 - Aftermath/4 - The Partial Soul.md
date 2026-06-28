@@ -56,4 +56,6 @@ A bright yellow soul appeared before her. She stared at it, awed. “Wow! That�
 
 “The first go around?” Hat Kid raised an eyebrow. “You make it sound like a time loop.”
 
-“It *is*!” Flowey beamed. “It’s great! You get to murder all you like, then go back and pretend like it never happened!”
+“It *is*!” Flowey beamed. “It’s great! You get to murder all you like, then go back and pretend like it never happened! That’s determination for ya - time bends to your will, *you* decide when to get off Mr Bones’ Wild Ride!” He paused, then he shrunk back slightly, murmuring to himself, “Why did I say *that*?”
+
+“There’s that word again,” Mu noted, her soul being chased around even faster now, before Flowey’s bullet simply… ‘poofed’ away as he ended the encounter. “Determination. What does that *mean*?”
