@@ -52,7 +52,7 @@ And they were asking you... how to get *into* the game's world?!
 
 "Of *course* I don't! Know what?!" You were letting him get a rise out of you, despite yourself. "I never played through Deltarune, dude! I never played fuckin' *Undertale*! Never got around to it!"
 
-The death glare that the Player gave you in response to that was intense. You could vividly imagine the complaint going unspoken in their head. *How could you, having no prior connection to this universe and its people, blah blah blah **WHILE I, WHO HAS DONE SO MUCH FOR...*** Yawwwwwn. You were quickly getting an idea of the kind of person that the Player was.
+The death glare that the Player (via Kris) gave you in response to that was intense. You could vividly imagine the complaint going unspoken in their head. *How could you, having no prior connection to this universe and its people, blah blah blah **WHILE I, WHO HAS DONE SO MUCH FOR...*** Yawwwwwn. You were quickly getting an idea of the kind of person that the Player was.
 
 Through Kris they spoke quietly, "Well, I think it's unfair, you know? And this has been some nice 'additional content' or whatever, but I think if I'm not allowed to be part of this world--"
 

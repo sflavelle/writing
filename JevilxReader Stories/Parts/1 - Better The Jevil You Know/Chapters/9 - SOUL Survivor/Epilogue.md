@@ -2,6 +2,8 @@
 
 "...did... ...fr...?"
 
+Deeply muffled voices greeted you from your slumber.
+
 Your world was a near impenetrable fog, your self... aware of almost nothing. You could not tell the passage of time, how long you had been here. 
 
 Your prison was dark and void, formless... much like yourself. Occasionally you felt a sense of being held, a warmth, a comfort - even if you were in no shape to process those feelings.
@@ -16,7 +18,7 @@ In one such dream, you were exploring a gigantified version of your home, roamin
 
 Your head snapped up, as a shadow loomed over you.
 
-Jevil, sat in your chair, many times larger than you, smiled down at you. "Is this the kind of adventures humans like you dream of? I daresay it's rather cute~."
+Jevil, sitting in your chair many times larger than you, smiled down at you. "Is this the kind of adventures humans like you dream of? I daresay it's rather cute~."
 
 You blinked. "I'm...?" You shook your head. "Of- of course I must be dreaming. I'm small and--" You paused, eyes narrowing. "...Hang on... Something... happened. Didn't it?"
 
@@ -66,7 +68,7 @@ The implication took a moment to sink in. "Wait, you and Ralsei made me a body a
 
 He turned to you once more, good smile turning impish.
 
-"What's wrong with a little chaos, chaos?" He giggled, and pranced over to you, petting you on the head. "For now, my new friend, you should rest. Our new world won't go anywhere while you finish recovering. And if you should need accompaniment while you dream, Jevil is not far away~!"
+"What's wrong with a little chaos, chaos?" He giggled, and pranced over to you, petting you on the head. "We’ve earned it! For now, my new friend, you should rest. Our new world won't go anywhere while you finish recovering. And if you should need accompaniment while you dream, Jevil is not far away~!"
 
 He beamed, bouncing on his feet into the next room and out of sight.
 

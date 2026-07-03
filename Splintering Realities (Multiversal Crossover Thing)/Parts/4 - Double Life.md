@@ -76,4 +76,18 @@ And saw a human female opposite her, staring at her in shock, similarly held by 
 
 “I wasn’t always though,” Lily responded, warily. “I… used to be human, way back when. But even then,” she glanced at the skeleton, “I was a guy back then, not her. So… I’m not sure on your theory.”
 
+“Sooo…” Alex smirked. “You were a kid now, and now you’re a squid now?”
+
+“Uhh?” Lily’s brow furrowed in confusion. “Not a kid, but I—“
+
+“You’re a kid now! You’re a squid now!” Alex giggled and did a little goofy dance in place. “You’re a kid, you’re a squid, you’re a kid—“
+
+“What are you doing? What does that *mean*?”
+
+“What, you’re an inkling and you’ve never heard that Splatoon commercial?”
+
 “Nonetheless,” the brighter skeleton continued, “this thing happening seems very important. And I want to help you make sense of your new memories. Since… you *are* both one person now. And if we don’t… reconcile that, help you get them into place, well… I don’t think humanoid brains handle that sort of thing very well.”
+
+“So… you can’t split us properly?” Alex asked quietly, frowning.
+
+“Alex, I must remind you that without a body to house your soul, you were very much dead.” The darker skeleton was firm. “The Tempus travellers keeping your soul safe is what allows your presence here.”

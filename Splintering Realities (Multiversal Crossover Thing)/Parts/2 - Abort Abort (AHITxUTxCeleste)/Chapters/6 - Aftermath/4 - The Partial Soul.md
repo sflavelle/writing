@@ -52,7 +52,7 @@ A bright yellow soul appeared before her. She stared at it, awed. “Wow! That�
 
 “Well neither are we, and you didn’t seem too thrilled about that to begin with either.” Mu swung her soul out of the way, and Flowey’s bullet changed direction to follow it.
 
-“Well yeah, if it wasn’t for you lot, maybe the other kid would be slaughtering by now!” His grin became more maniacal, before sagging. “Or maybe they’d be trying to be nice and trying to befriend Undyne or something while she throws spears at ‘em. You know I had to witness them trying to flirt with Moldsmals the first go around?” He shuddered, refocusing by increasing his projectile’s pace.
+“Well yeah, if it wasn’t for you lot, maybe the other kid would be slaughtering by now!” His grin became more maniacal, before sagging. “Or maybe they’d be trying to be nice and trying to befriend Undyne or something while she throws spears at ‘em. You know I had to witness them trying to flirt with *Moldsmals* the first go around?” He shuddered, refocusing by increasing his projectile’s pace.
 
 “The first go around?” Hat Kid raised an eyebrow. “You make it sound like a time loop.”
 
