@@ -14,7 +14,7 @@ The area behind the counter is very dim, almost entirely black, a simple 'Closed
 
 You don't want to just leave it at that though... You glance around the shop space, finding a bit of used cardboard - oh, there's an idea! You could leave the owner a message!
 
-You snap your claws, hoping you could summon a pen into your hands.
+You snap your clawed fingers, hoping you could summon a pen into your hands.
 
 Predictably, nothing happens.
 
