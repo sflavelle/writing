@@ -2,7 +2,7 @@ In speaking to Ralsei one day, two weeks later, you find out that there is one D
 
 And so, that afternoon, you venture out of Card Castle into Castle Town, nodding toward the citizens you pass by. People are starting to adjust to your presence and your 'restored sanity', and some creatures actually wave back at you - something that delights you. You wave back with a grin and a nod.
 
-It's a busy day today - it seems as if you are catching the tail end of a market day, as various darkner monsters are running around catching the last deals of the day, as some stalls are already packing up.
+It's a busy day in town today - it seems as if you are catching the tail end of a market day, as various darkner monsters are running around catching the last deals of the day, as some stalls are already packing up.
 
 Your destination though is the shop tent which is setup all year round. It's owner, supposedly, knew the jester even before whatever led to his imprisonment, and Ralsei mentioned him being a magician as well, so perhaps he might be able to help you even now?
 
