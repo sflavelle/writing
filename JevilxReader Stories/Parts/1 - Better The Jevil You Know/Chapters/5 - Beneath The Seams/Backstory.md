@@ -134,7 +134,6 @@ You sighed and looked away, nodding. “…I see…”
 
 Seam paused, examining you carefully. Watching the way you re-examined the room around you.
 
-<<<<<<< HEAD:JevilxReader Stories/Parts/1 - Better The Jevil You Know/Chapters/4 - Beneath The Seams/Backstory.md
 He carefully set his teacup forward, leaning in, resting his arms on the table, and gently inquired. “You see it too, don’t you?”
 
 Your free hand snapped to your mouth to prevent a spit-take, eyes wide. You searched his eyes for any hint of judgment, any sign of where this conversation was headed. You forced yourself to swallow the tea you had been ingesting, and took a few breaths to calm yourself as the magician softly chuckled at your plight.
@@ -143,14 +142,24 @@ After some moments of silence as you concluded that Seam would not turn you in (
 
 “Hmmm.” He examined you a bit longer. “And what do you make of the stranger’s story? Are we not truly ‘real’ in your eyes? Ha ha…”
 
-“…You have spent time today filling in much of the gaps of knowledge about this world. Yourself, Rouxls and Ralsei have been willing to put aside your preconceptions about Jevil to help me.” You smiled, warmly as you could. “Everyone here seems as genuine, as ‘real’ as it gets.”
+“…You have spent time today filling in much of the gaps of my knowledge about this world. Yourself, Rouxls and Ralsei have been willing to put aside your preconceptions about Jevil to help me.” You smiled, warmly as you could. “Everyone here seems as genuine, as ‘real’ as it gets.”
 
 You paused, sorting through the rushing thoughts in your head. “…However,” you began. “I can see where this mysterious benefactor of knowledge reached his own conclusion.”
 
 Seam frowned. “Would you… care to divulge your reasoning?”
 
-You raised an eyebrow. “…You’ve been considering it yourself?”
+You raised an eyebrow. “I’m surprised to see you putting so much thought into this…You’ve been considering it yourself?”
 
 “Perhaps,” Seam admitted. “Jevil has been many things, but he doesn’t strike me as one to believe easily. I have… noticed, things since then… but I do not remember whether the things I wonder might be true are just things that I’ve only seen with hindsight into his actions. Perhaps I am quite mad after all, ha ha. Or perhaps the jester saw something that I did not.”
 
-You nodded. You spoke slowly, carefully. “Here’s… what I do know. People - in my world, but I assume here as well - are predictable. Routine is… comforting. We have a ‘script’, sure - but… we made that script ourselves, because *we* grew into it. *We* decided the time we want to go to work, when we want to eat.”
+You nodded. You spoke slowly, carefully. “Here’s… what I do know. People - in my world, but I assume here as well - Lightners, Darkners, any sapient being - we are all predictable. Routine is… comforting. We have a ‘script’, sure - but… we made that script ourselves, because *we* grew into those routines. *We* decided the time we want to go to work, when we want to eat. I know that I personally like having a sort of routine to my day - it gets stressful when things start to fall out of my control.”
+
+“We are… also quite literally living through extraordinary times, what with this ‘Prophecy’ stuff going on around us. Heroes Of Legend, Deltarune, that nonsense. I know I feel a little crazy just going about life as… well I was gonna say normal, but being a clown of chaos isn’t exactly my norm - but doing the things I need to to feel safe and sane while the world threatens to burn down around us.”
+
+“What do you make of the idea of this world being a ‘game’?” Seam prompted, sitting back.
+
+You stopped. You considered your words carefully, felt the magician’s eye boring into your face with each second you were silent, attempting to come up with some explanation. Eventually you quietly uttered, “W-well it… feels real enough.” It felt like barely an answer at all. But how could you really explain that actually not only was this a game, it was an incredibly popular one - that every person in this kingdom had hundreds, if not thousands of fans and artists debating every bit of the existence they could see?
+
+Seam watched you silently, critically for a few more moments, before chuckling. “I suppose that is all that we can ask for,” he nodded. “Very well then, keep your secrets. One of us must bear the burden of knowledge, and I’ll be quite glad that it is not me for once, haaa.”
+
+He smiled, and got to his feet. You stood, and he took your hands in his and squeezed. “Well, I must thank you for seeking me out. Your story in this world is quite interesting… and I cannot wait to see how it will end. Farewell for now.” Despite the dark tone of his voice, his smile was warm as he departed from the room.
