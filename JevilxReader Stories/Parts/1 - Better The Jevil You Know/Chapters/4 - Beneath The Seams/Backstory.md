@@ -102,7 +102,7 @@ Seam nodded, and sighed. He leaned back in his seat for a moment, eyes glancing 
 
 Your mouth clamped shut.
 
-Seam sighed deeply. "I remember that at first, we both had a good laugh about the mad man who told him this. I remember asking him, 'who could have fabricated such a story', only for Jevil to be unable to recall."
+Seam sighed deeply. "I remember that at first, we both had a good laugh about the mad man who told him this ridiculous tale. I remember asking him, 'who could have fabricated such a story', only for Jevil to be unable to recall."
 
 "But then... my friend started to hallucinate. It started with him confiding in me that he had been beginning to see others' words written out before him. He believed he could see the HP of others as easily as looking at them. He believed the knowledge he had received was driving him mad. This drove him to try to understand why this was happening to him..."
 
@@ -132,6 +132,26 @@ He paused, and his eyes met yours. "Except that you came along, it seems, bringi
 
 You sighed and looked away, nodding. “…I see…”
 
-You considered things for a few quiet moments, before coming to a decision. You reached for your coffee, and before taking a sip, you casually said, “Well that explains the things I’ve been seeing.”
+Seam paused, examining you carefully. Watching the way you re-examined the room around you.
 
-Seam paused, examining you carefully. 
+He carefully set his teacup forward, leaning in, resting his arms on the table, and gently inquired. “You see it too, don’t you?”
+
+Your free hand snapped to your mouth to prevent a spit-take, eyes wide. You searched his eyes for any hint of judgment, any sign of where this conversation was headed. You forced yourself to swallow the tea you had been ingesting, and took a few breaths to calm yourself as the magician softly chuckled at your plight.
+
+After some moments of silence as you concluded that Seam would not turn you in (at least, not immediately), your lips loosened. “…I do,” you finally choked. “But… whether that’s because… this is his body, or because I’m not… *from* here, or because… I don’t think it’s proof one way or the other,” you carefully explained.
+
+“Hmmm.” He examined you a bit longer. “And what do you make of the stranger’s story? Are we not truly ‘real’ in your eyes? Ha ha…”
+
+“…You have spent time today filling in much of the gaps of knowledge about this world. Yourself, Rouxls and Ralsei have been willing to put aside your preconceptions about Jevil to help me.” You smiled, warmly as you could. “Everyone here seems as genuine, as ‘real’ as it gets.”
+
+You paused, sorting through the rushing thoughts in your head. “…However,” you began. “I can see where this mysterious benefactor of knowledge reached his own conclusion.”
+
+Seam frowned. “Would you… care to divulge your reasoning?”
+
+You raised an eyebrow. “…You’ve been considering it yourself?”
+
+“Perhaps,” Seam admitted. “Jevil has been many things, but he doesn’t strike me as one to believe easily. I have… noticed, things since then… but I do not remember whether the things I wonder might be true are just things that I’ve only seen with hindsight into his actions. Perhaps I am quite mad after all, ha ha. Or perhaps the jester saw something that I did not.”
+
+You nodded. You spoke slowly, carefully. “Here’s… what I do know. People - in my world, but I assume here as well - are predictable. Routine is… comforting. We have a ‘script’, sure - but… we made that script ourselves, because *we* grew into it. *We* decided the time we want to go to work, when we want to eat.”
+
+“You are also… we 
