@@ -24,9 +24,9 @@ Wait, did that mean ...? What *did* that mean? That this world's rules and manne
 
 ----
 
-You’d not stepped into the rooms allotted to Ralsei before.
+You’d not stepped into the rooms allotted to Ralsei and the Lightners before.
 
-You just figured that, with how busy he supposedly was, he needed the space.
+You just figured that, with how busy they were, they needed the space.
 
 But after you’d caught him a few times, pacing back and forth around Castle Town, casting anxious glances toward the Grand Fountain that loomed over the area, you gave yourself permission to seek him out.
 
