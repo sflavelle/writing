@@ -16,7 +16,7 @@ Dream looked quite beaten down after the events of the last few days. He nodded 
 
 Nightmare nodded again, in lieu of any real response.
 
-"I still can't believe we're dead and yet still here," Dream muttered softly, leaning forward and resting his skull on the table, and then resting his arms there as well, hands knitted together on the back of his head. "And yet Ink is just... gone."
+"I still can't believe we're dead and yet still here," Dream muttered softly, leaning forward and resting his skull on the table, and then resting his arms there as well, digits knitted together on the back of his head. "And yet Ink is just... gone."
 
 Nightmare took a sip of the coffee in front of him. "We currently do not know that for certain. He may not be," he conceded. "We already had this... ability, to traverse the dreamscape. It is possible that his... unique composition might... aid him in his afterlife. But..."
 
@@ -38,7 +38,7 @@ Nightmare paused. He leaned in over the booth. "Are you *falling down*, brother?
 
 "No? Er- Oh! No, no!" Dream briefly plastered a grin on his face and pretended to swat Nightmare away. "No, sorry. But uh- I've decided that... I'm going to follow along with the interlopers. It just seems... right, you know? Maybe there's still some way for me to help fix all this. Maybe we’re still here for a reason."
 
-Nightmare raised his eyes to meet his brother's, examining him. "...Heh," he finally said. "That's more like the Dream I know. I'm not surprised - not even death can truly keep you down."
+Nightmare raised his eyes to meet his brother's, examining him. "...Hmm," he finally said. "That's more like the Dream I know. I'm not surprised - not even death can truly keep you down."
 
 "You should come with me," the gold skeleton blurted out. "I mean - we don't have to be guardians... not the same way we were. But they're going to need all the help they can get. This... arms race to prevent Moonjumper from erasing everything... maybe we can help, tip the scales in our favour."
 

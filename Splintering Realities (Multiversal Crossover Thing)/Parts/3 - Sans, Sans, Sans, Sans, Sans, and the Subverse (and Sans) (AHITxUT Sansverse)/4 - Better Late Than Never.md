@@ -18,11 +18,11 @@ Sans' eyelights immediately sputtered out, Frisk gasped in awe, and Flowey's eye
 
 He had immediately seen how Cross's eyelights had shifted from their normal white to a familiar, *determined* blood red.
 
-Even as Sans had to mentally remind himself '*not our chara, not our chara*', he spoke after a moment of silence, "i... thought *chara* was your first name."
+Even as Sans had to mentally remind himself '*not our chara, not our chara*', he spoke after a moment of silence, "i... thought *dreemurr* was your *family* name."
 
 "I--" 'Chara' blinked, confused. "Yes it is...?"
 
-"well then who's ekstael?"
+"well then who's ovekstael?"
 
 Flowey and 'Chara' blinked at him. Then the flower gently thwapped at his side with a leaf, causing him to jolt and his eyes to light back up, while the other let out a soft giggle. "You idiot, I think that's their universe or whatever."
 
@@ -42,7 +42,7 @@ Eventually they found a bit of unused paper and a pen, and Chara beckoned the th
 
 "it's cause i'm a pretty classy guy, right?" came the other's response immediately. Frisk giggled.
 
-"Should've seen that coming," Chara sighed. "Our worlds all have a common code. A baseline to work from. A cast of actors from which the mu-- *subverse* modifies to play new roles. But the original... what all this is based on... is your universe. And, uh, Classic's universe." They gestured with the pen toward the circle on the paper, in which they had written the word 'Undertale'. "We know this universe as 'Undertale', found in the base code somewhere in the Void."
+"Should've seen that coming," Chara sighed, and rolled their eyes. "Our worlds all have a common code. A baseline to work from. A cast of actors from which the mu-- *subverse* modifies to play new roles. But the original... what all this is based on... is your universe. And, uh, Classic's universe." They gestured with the pen toward the circle on the paper, in which they had written the word 'Undertale'. "We know this universe as 'Undertale', found in the base code somewhere in the Void of this subverse."
 
 They drew a line from that circle, and began to draw a new circle below it. "Now, a lot of the 'main cast' comes in pairs, right? Toriel, Asgore; Sans, Papyrus; Chara, Frisk; Flowey, Temmie..."
 
@@ -76,7 +76,7 @@ Then, they started adding to their diagram, splitting off of the triangle of the
 
 "okay, fine, i don't. i *want* to breathe."
 
-"What about, um, Dream and Nightmare? What version of... our universe... created them?"
+"What about, um, Dream and Nightmare?” Asked Frisk. “What version of... our universe... created them?"
 
 "None of them," was X-Chara's simple answer.
 
