@@ -22,7 +22,7 @@ Her gaze flickered over to you, sleeping more peacefully now, your face nestled 
 
 She sighed, conflicted. "She preferred to use her words more than action, defence and evasion more than offense. Refused to lay a hand on me... So, since I can't talk to her right now... Maybe you can fill in some of the gaps for us. How is it you're a monster like us, but you're not made of the same, I guess magic? Is she the same? Is that what makes you and her so...?" The captain trailed off, referring to their capability. 
 
-Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Monsters yes, born from the Dark. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up in my freedom for this revelation! Told I was mad, mad!"
+Jevil shook his head. "...We are both Darkners," he began to explain. "'Objects come to life'. Monsters, yes, born from the Dark. Once, I believed that the Card Kingdom, my home, was a real place. Alas! I am but one in a deck of cards. I only have life due to the whims of one spreading Darkness to the Light. I was locked up in my freedom for this revelation! Told I was mad, mad!"
 
 "In my wish to break free of the game I was trapped in, I reached out and used my new knowledge, my new understanding of reality to switch places with a Lightner, one from the 'real' world of our universe. How was I to know that I would instead reach out to a whole other reality!" 
 
@@ -44,7 +44,7 @@ She blinked. "....ooooookay. And... why are they in this 'darkner' body now? The
 
 "Okay, but SOUL vessels are magic based. And she clearly has magic, but there's no way a human soul can power something like that."
 
-Alphys suddenly gasped. "W-which is why you bonded with her!" she realised. "Her construct was formed in such a way that you shared your magic with her!"
+Alphys suddenly gasped. "W-which is why you bonded with her!" she realised. "Her magical construct was formed in such a way that you shared your magic with her!"
 
 "What?" Undyne shot a glance at the scientist. "But that *can't* be possible, it's unheard of. Surely the magic required to sustain an entirely separate body, casting its own magic would be..." Her good eye widened, and she focused again on you and Jevil, as you shifted in your sleep.
 
@@ -68,7 +68,7 @@ Undyne blinked, surprised. She turned to the scientist. "Wait, you... followed p
 
 "Doctor, doctor!" Jevil cried, scandalised.
 
-"I *know*, alright?! It's not as simple as pretending I don't have the thing everyone wants hiding in a back room!" She buried her face in her hands, taking deep breaths. "It... it was Asgore that told me to simply monitor the situation. If the vessel failed to contain the soul, w-we get one soul closer to freedom anyway. I-if you had lied to us and the soul was hostile, we'd have no qualms just taking it and dealing with you if *you* turned hostile. But, if she could coexist with monsters like you said... Asgore and I determined that it *could* be a boon to the Underground community, the whole... B-barrier issue notwithstanding."
+"I *know*, alright?! I-It's not as simple as pretending I don't have the thing everyone wants hiding in a back room!" She buried her face in her hands, taking deep breaths. "It... it was Asgore that told me to simply monitor the situation. If the vessel failed to contain the soul, w-we get one soul closer to freedom anyway. I-if you had lied to us and the human was hostile, we'd have no qualms just taking the soul, and dealing with you if *you* turned hostile. But, if she could coexist with monsters like you said... Asgore and I determined that it *could* be a boon to the Underground community, the whole... B-barrier issue notwithstanding."
 
 Undyne stared at her for a short moment, then huffed and looked away. "Damnit King Fluffybuns, you sentimental old goat... He only gave me the order to investigate *today*."
 

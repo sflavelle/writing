@@ -4,11 +4,11 @@ You had said once, at the beginning of this whole mess, that you were glad to no
 
 Computers, phones, technology. Talking to your friends over the internet. Music, especially the dance music and concerts of your time. The particular tingle of soft drinks.
 
-One positive of what had come to pass, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from the usage of magic had lifted. You don't know *exactly* what it was, but you decided you would call it the 'emotional limiter'.
+One positive of what had come to pass, for what little positive you could see of it, was that it seemed that whatever bottleneck had kept you from the usage of magic had lifted. You don't know *exactly* what it was, but you decided you would call it the 'emotional block'.
 
 You had moved your magic training and learning to a part of the Crimson Forest a reasonable ways off the beaten track - Having seen what the magic you possessed was capable of, you were wary of causing accidental harm to someone because you were still learning to control the amount of energy you put into your magic.
 
-With that limiter gone, you quickly learned the basic magical spells (getting that orb of light to appear in your palms was almost worth your suffering) and began to explore the magics that were closely tied to your soul... and those that powered the body you possessed. 
+With that limiter gone, you quickly learned the basic magical spells (getting that orb of light to appear in your palms was almost worth your suffering - literally a bright light in your dark times) and began to explore the magics that were closely tied to your soul... and those that powered the body you possessed. 
 
 Though Ralsei was available, he was also quite busier than he wished he were - preparing for the next steps in helping Kris and Susie to fulfill a prophecy and prevent what he called 'The Roaring'. He still found time on occasion to educate, observe, and nudge you toward discovering your latent soul magic. He was also able to show you how to summon 'bullets' - pure magic energy condensed into a shape befitting the caster, full of intent.
 

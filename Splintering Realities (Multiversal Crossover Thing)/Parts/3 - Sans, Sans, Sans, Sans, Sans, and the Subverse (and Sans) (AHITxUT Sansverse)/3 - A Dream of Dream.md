@@ -146,6 +146,10 @@ Frisk carefully nodded. "...You're real, Sans?"
 
 "*That* display was all you, I'm afraid." Nightmare smirked. "All I have done is intervene to dispose of your burdens temporarily, so we can have this little... chat. I may have pushed things slightly to allow myself to manifest here, but, well. You would be surprised... or perhaps not, to learn just how many of your doppelgangers have bad memories of this exact room."
 
+“i don’t… understand. you mean, all those sanses out there witnessed the genocide against their underground?”
+
+“Not all, Sans, and for many of them, it did not stick. But they did experience the very same battle you were both having, in some fashion.” Nightmare strode forward toward them. 
+
 ----
 
 "It seems we've had the same idea," Nightmare mused as he appeared on the bridge of a spaceship. Evidently the child was dreaming of space.
@@ -194,11 +198,11 @@ A beat.
 
 “Yes…?” Affirmed Dream, confused. “That’s what a multiverse is…?”
 
-“A subverse… from the inside it can *seem* like a multiverse of its own. But… well, think about it. Isn’t it weird that any universe any of you go to - because I understand that’s what all you Sanses do - you always run into the same people? Never any new kinds of life? No outer space?” She gestured at the viewport as she finished.
+“A subverse… Look, I’ll grant you that this is the first time I’ve actually experienced one, this is something that was only theorised in our universe, but… from the inside it can *seem* like a multiverse of its own. But well, think about it. Isn’t it weird that any universe any of you go to - because I understand that’s what all you Sanses do - you always run into the same people? Never any new kinds of life? No outer space?” She gestured at the viewport as she finished.
 
 “What about Outertale?” Dream suggested.
 
-“Is… I’m guessing that’s basically a ‘space’ version of this ‘Underground’ that a few of your lot mentioned? ‘Outer’ space?” The golden skeleton nodded. “It’s different sure, but nobody really goes too far from it, do they? That’s what a subverse is, as theorised by the Tempus society. It’s a bunch of realities, grouped by some related theme, with no true ‘space’ between ‘worlds’. It *feels* like a multiverse, but on a less grand scale.”
+“Is… I’m guessing that’s basically a ‘space’ version of this ‘Underground’ that a few of your lot mentioned? ‘Outer’ space?” The golden skeleton nodded. “It’s different sure, but nobody really goes too far from it, do they? That’s what a subverse is. It’s a bunch of realities, grouped by some related theme, with no true ‘space’ between ‘worlds’. It *feels* like a multiverse, but on a less grand scale.”
 
 “I imagine our ‘subverse’ must feel quite insulted,” Nightmare mused.
 

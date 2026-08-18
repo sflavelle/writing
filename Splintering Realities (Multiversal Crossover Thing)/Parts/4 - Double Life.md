@@ -86,7 +86,7 @@ And saw a human female opposite her, staring at her in shock, similarly held by 
 
 “What, you’re an inkling and you’ve never heard that Splatoon commercial?”
 
-“Nonetheless,” the brighter skeleton continued, “this thing happening seems very important. And I want to help you make sense of your new memories. Since… you *are* both one person now. And if we don’t… reconcile that, help you get them into place, well… I don’t think humanoid brains handle that sort of thing very well.”
+“Nonetheless,” the brighter skeleton continued, “this thing happening seems very important. And I… *we* want to help you make sense of your new memories. Since… you *are* both one person now. And if we don’t… reconcile that, help you get them into place, well… I don’t think humanoid brains handle that sort of thing very well.”
 
 “So… you can’t split us properly?” Alex asked quietly, frowning.
 
