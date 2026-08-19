@@ -1,5 +1,3 @@
-The next weeks were a blur of malaise and depression and mourning.
-
 You had said once, at the beginning of this whole mess, that you were glad to not be working in your world, enraptured as you were with the casual whimsy of this world, and that still held true. But there were things that you were realising you would potentially never experience again that really hit you during this time. 
 
 Computers, phones, technology. Talking to your friends over the internet. Music, especially the dance music and concerts of your time. The particular tingle of soft drinks.
@@ -8,9 +6,11 @@ One positive of what had come to pass, for what little positive you could see of
 
 You had moved your magic training and learning to a part of the Crimson Forest a reasonable ways off the beaten track - Having seen what the magic you possessed was capable of, you were wary of causing accidental harm to someone because you were still learning to control the amount of energy you put into your magic.
 
-With that limiter gone, you quickly learned the basic magical spells (getting that orb of light to appear in your palms was almost worth your suffering - literally a bright light in your dark times) and began to explore the magics that were closely tied to your soul... and those that powered the body you possessed. 
+With that limiter gone, you quickly learned the basic magical spells (getting that orb of light to appear in your palms was a literal bright light in the metaphorical darkness) and began to explore the magics that were closely tied to your soul... and those that powered the body you possessed. 
 
-Though Ralsei was available, he was also quite busier than he wished he were - preparing for the next steps in helping Kris and Susie to fulfill a prophecy and prevent what he called 'The Roaring'. He still found time on occasion to educate, observe, and nudge you toward discovering your latent soul magic. He was also able to show you how to summon 'bullets' - pure magic energy condensed into a shape befitting the caster, full of intent.
+Though Ralsei was available, he was also quite busier than he wished he were - preparing for the next steps in helping Kris and Susie to fulfill a prophecy and prevent what he called 'The Roaring'. He still found time on occasion to educate, observe, and nudge you toward discovering your latent soul magic - albeit nervously at first, after your magical outburst had shaken him. 
+
+He was also able to teach you how to summon 'bullets' - pure magic energy condensed into a shape befitting the caster, full of intent. Intent, he’d taught you, was the foundational principle of magic - if you wanted to harm someone, then sure, bullets would do damage. But they also didn’t need to, and in fact magical intent could impart a feeling or convey a message of sorts with bullets… one that wasn’t ‘I want you dead’, apparently. That took a bit of time to wrap your head around.
 
 The comment that most monsters learned this very basic magic and the power of intent at a young age did hang in your mind more than it perhaps should have, considering you were not a native monster, but alas, that was just how depression was. Always looking for a way to beat you down.
 
@@ -35,3 +35,17 @@ Which is why you had requested a Rudinn, one of the castle’s patrol, to lead y
 This one still seemed wary of you, constantly turning its head to keep note of your position. Even as you tried to strike up light conversation as you both walked (well, you walked. The Rudinn slithered) toward your destination, it kept quiet. Eventually you got the hint.
 
 Once you had both reached a room containing a cauldron, the guard had immediately turned and skittered away, leaving you to figure out just where the Prince was. Maybe he would arrive here soon?
+
+And so you waited, examining the room in the meantime. From this space, four other doors faced you.
+
+On the left, a double-door, one half blue - the shade of Kris’ Dark World skin - and the other half pink - the same as Susie’s scales.
+
+In the middle, a door emblazoned with the symbol of the Deltarune - the three triangles beneath a winged orb. The symbol of the Prophecy.
+
+And to the right of that… a fairly simple door with no design at all. You huffed in slight amusement.
+
+You approached the cauldron, the magical flame beneath keeping it heated, and peered inside. You couldn’t quite tell what the substance inside was… but the smell that wafted from it reminded you of a soup. Great, now you were hungry.
+
+“The mystical forbidden soup tempts me,” you say to yourself, the phrase appearing in your head and being too amused not to say it aloud to yourself. But…
+
+“P-please don’t drink from the cauldron!” Cried a familiar voice, quickly approaching. You turned to see Ralsei appear from behind the right door.

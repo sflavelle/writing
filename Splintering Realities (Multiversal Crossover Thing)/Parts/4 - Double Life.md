@@ -64,7 +64,7 @@ And then they began to *pull*.
 
 She screamed out, feeling as if she were being torn in half—
 
-Before something came loose and suddenly Lily was yanked away, stumbling to her left, steadied by a golden skeleton. He held her close as she shuddered from the experience, holding her head.
+Before something came loose with a wet noise and suddenly Lily was yanked away, stumbling to her left, steadied by a golden skeleton. He held her close as she shuddered from the experience, holding her head.
 
 The inkling turned to see the result-
 
