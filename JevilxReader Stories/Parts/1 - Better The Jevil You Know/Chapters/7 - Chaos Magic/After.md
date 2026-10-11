@@ -49,3 +49,41 @@ You approached the cauldron, the magical flame beneath keeping it heated, and pe
 “The mystical forbidden soup tempts me,” you say to yourself, the phrase appearing in your head and being too amused not to say it aloud to yourself. But…
 
 “P-please don’t drink from the cauldron!” Cried a familiar voice, quickly approaching. You turned to see Ralsei appear from behind the right door.
+
+You giggled, suddenly shy, face flushing. “I wasn’t actually planning to… I do realise that made me sound insane.”
+
+Ralsei at least chuckled awkwardly in response, composing himself. “W-well, um, how may I help you?”
+
+Ah, right. “Oh! Uh, something came to mind earlier today that I don’t know if it’s true or not, but uhm… is this place, er, based on a card deck or something?”
+
+Ralsei blinked, struck by confusion. “Y-yes? Not so much based on as, er, it *is* a deck of cards, among other things.”
+
+You furrowed a brow. “I… don’t understand. I assumed this was a medieval fantasy realm.”
+
+“It is! It’s just… more than that.” Ralsei sighed, taking a breath. “Y/N, what do you know about Dark Worlds?”
+
+“I… let’s see.” You scrunched your face in thought. “There are many various magical creatures here that I guess are *based* on different things, but it’s still very much a society of its own. And I think that in whatever card-based society is going on here, I am the ‘joker’. Or, well, Jevil is.”
+
+“Right. Um… how to break this to you…” Ralsei sighed. “Well, a Dark World is… it’s a space in the Light World, consumed by Dark. *We* are Darkners, given life by that same Dark. Made from… well, things *in* the Light World.”
+
+“… ‘Things’.”
+
+“Objects. Playing cards. A childhood plush. Drinking cups. In the Light, we exist to serve Lightners. Only in the Dark can we show our appreciation.”
+
+You blinked, taking this in. You felt confused and a slight dread. “So… when you say this ‘world’ is a deck of cards, if I’m the Joker—“
+
+“Yes,” Ralsei confirmed. “Jevil’s body here in the Dark World is the manifestation of a joker card in the Light World.”
+
+“… Huh.” You started off into the distance. “So, I can’t even return to your Light World without… turning back into this playing card thing?”
+
+“Y/N, as a Darkner, you are simultaneously the card and the creature in front of me right now. Which one you are depends on whether the place in which you exist is… Dark. Darker than Dark.”
+
+“So… man, this is hurting my head a bit. So… this Dark World is a… room, of some sort, in the Light World, that contains all of us?”
+
+“That is much closer to the truth,” Ralsei nods. “There are some nuances here and there, but that’s the basic idea of how these Dark Worlds function, yes.”
+
+“Okay, now you just said ‘Dark Worlds’, plural.”
+
+“Yes, these worlds can be created elsewhere,” the prince nodded again. “If too many are created at once… well, that’s how the Prophecy of the Roaring will come to pass.”
+
+“Which is what we want to avoid,” you remembered. “So… what should I be trying to do, then?”
