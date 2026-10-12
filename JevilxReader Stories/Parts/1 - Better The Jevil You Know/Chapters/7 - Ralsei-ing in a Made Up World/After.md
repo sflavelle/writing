@@ -87,3 +87,9 @@ You blinked, taking this in. You felt confused and a slight dread. “So… when
 “Yes, these worlds can be created elsewhere,” the prince nodded again. “If too many are created at once… well, that’s how the Prophecy of the Roaring will come to pass.”
 
 “Which is what we want to avoid,” you remembered. “So… what should I be trying to do, then?”
+
+“For now? Just *be*,” the prince said with a smile. “Work through your grief. One day, you may come to have a new Lightner, one that gives you new meaning.”
+
+“What, like I get +4 Mult or something?”
+
+Ralsei blinked. “You… might have to explain that one to me.”
