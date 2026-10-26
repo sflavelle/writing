@@ -54,7 +54,7 @@ Your expression sank.
 
 "Oh, shit." You bit your lip. "I... can understand why he wouldn't be happy with them then."
 
-She nodded. "But... you're not *from* the surface, are you? Not our surface. Assuming that you from the same place Jevil came from ...If... you'd let me learn about you, and do some tests... I could make a case for an exception for you. Not being a surface human. You... seem nice enough. O-or at least, you haven't tried to kill me." She awkwardly chuckled, trying to lighten the mood.
+She nodded. "But... you're not *from* the surface, are you? Not our surface. Assuming that you are from the same place Jevil came from ...If... you'd let me learn about you, and do some tests... I could make a case for an exception for you. Not being a surface human. You... seem nice enough. O-or at least, you haven't tried to kill me." She awkwardly chuckled, trying to lighten the mood.
 
 You responded to the latter remark with a raised eyebrow. "Well... let me know what I can do to help you, I suppose. Uh - short of giving my life, of course." You had to at least return Alphys' awkward light-making joke.
 
@@ -64,11 +64,27 @@ She nodded, and smiled lightly.
 
 And so, you allowed yourself to be examined for the rest of the day. Alphys was thorough with her work - examining your soul's condition, noting its prominent Perseverance trait, followed by gentle CHECKs and probes to determine your statistics.
 
-Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic like other monsters, but *darkness*-infused magic - tinged with something close to, but not quite Void. You had to remind yourself that it was because it was Ralsei the Prince of Darkness that had created this Darkner vessel to hold your soul.
+Then she moved on to taking a look at the matter that comprised your soul vessel. She found herself confused but fascinated by your body being made not of pure magic like the monsters of her underground, but *darkness*-infused magic. You had to explain that you had been living in a place called a Dark World; that the Prince of that world had a means to formulate things from the Darkness that was innate to it. The info of a new type of magic had the scientist eager to learn more.
 
-It was veins *within* the dark vessel that carried the magic through the body and protected the soul. Your magical link with Jevil was also found in this examination - a pool of magical energy that ebbed and flowed gently *around* your soul as your body used it, replenished from some unseen source.
+After guiding you to an examination bed, she explained that she would look *inside* the Darkner vessel to get insights of its workings.
 
-Between discussions around the tests that she was doing, she also talked to you about *you* - talking about behaviors, interests (she got excited when you told her you were into computers). She cocked an eyebrow as you mentioned that you had an intellectual disorder, then interrupted you while you were mentioning your difficulty understanding body language and your brain being wired up slightly differently to tell you that she had seen that in some monsters regularly. (Knowledge gained, monsters knew about autism.)
+You were for some reason expecting an uncomfortable probing.
+
+What you got was worse.
+
+At the sight of a scalpel in her claws, you were understandably hesitant.
+
+Alphys explained that magic, at least in the underground, worked on Intent - the caster or actor can Intend a feeling, an emotion, an action, and so long as that Intent was clear, the recipient would receive it in its… intended form. Otherwise, the intent could be misread, misinterpreted, and that misread intent could affect the result in unwanted ways.
+
+She had explained this to you as she carefully *sliced your middle open*. While her intent meant you did not feel any pain as she peeled back your outer magical layer, you still felt the innately *wrong* sensation of things being exposed to the air that shouldn’t be.
+
+For some reason you were expecting squishy, gross organs, but instead your interior was… hard to comprehend. 
+
+The most straightforward sight was that of your purple human soul, sitting in the middle of your chest. It glowed and pulsed gently while exposed, partially submerged in a pool of liquid magic that fed into veins, supplying the vessel with the magical energy it needed to function.
+
+At least, that’s what Alphys made of it. “Human souls are powerful, but in modern times they cannot produce their own magic. And monster vessels are powered by magic, but that supply is innate to our species. So this… ‘Dark’ vessel has been created in such a way that someone is sharing their magic with you in order for you to survive. But what monster would share their life force with a human…?”
+
+Between discussions around the tests that she was doing, she also asked you about *you* - talking about behaviors, interests (she got excited when you told her you were into computers). She cocked an eyebrow as you mentioned that you had an intellectual disorder, then interrupted you while you were mentioning your difficulty understanding body language and your brain being wired up slightly differently to tell you that she had seen that in some monsters regularly. (Knowledge gained, monsters knew about autism.)
 
 While you and Alphys were in the midst of debating and debunking human behaviors from her 'history tapes' (mostly more anime) you were interrupted by the doors into the lab slamming open dramatically, followed by a new voice.
 

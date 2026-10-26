@@ -113,7 +113,7 @@ You could feel the intent before the action. "Jevil, don't-!" you called out, yo
 
 But Jevil was already launching his barrage of spade bullets--
 
-A purple magical barrier phased in between the two monsters, and as it absorbed Jevil's attack against Undyne, you felt each blow, tanking each hit even as your SOUL was trying to break itself apart. Your purple sheen flickered with each hit your shield absorbed.
+A purple magical barrier phased in between the two monsters, and as it absorbed Jevil's attack against Undyne, you felt each blow, tanking each hit with an injured scream even as your SOUL was trying to shatter. Your purple sheen flickered with each hit your shield absorbed.
 
 [ 0 / 20 HP. ]
 [ * Y/N's resolve holds. ]
@@ -147,7 +147,7 @@ The spear fizzled away as she dispelled it, letting out a deep sigh.
 
 The tense encounter was over.
 
-Not in the way she had initially wanted, with the human soul escaping (and staying intact, she found herself hoping).
+Not in the way she had initially wanted, with the human soul escaping (even if only to the next room)…
 
 But the human had refused to harm her. Had refused to let *another monster* harm her, even though it hurt them to do so.
 

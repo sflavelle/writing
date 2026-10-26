@@ -90,6 +90,6 @@ You blinked, taking this in. You felt confused and a slight dread. “So… when
 
 “For now? Just *be*,” the prince said with a smile. “Work through your grief. One day, you may come to have a new Lightner, one that gives you new meaning.”
 
-“What, like I get +4 Mult or something?”
+“What, like I get +4 Mult or something?” You giggled.
 
 Ralsei blinked. “You… might have to explain that one to me.”

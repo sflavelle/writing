@@ -78,11 +78,11 @@ Undyne stared at her for a short moment, then huffed and looked away. "Damnit Ki
 
 "F-for what it's worth, Undyne... I do understand your frustration. A l-lot of things about this are unprecedented."
 
-"You do know that if the kingdom decides to spare her, it's going to be that much harder to get *other* human souls for the barrier, right?" Undyne was still looking at the ceiling. 
+"You do realise that if the kingdom decides to spare her, it's going to be that much harder to get *other* human souls for the barrier, right?" Undyne was still looking at the ceiling. 
 
 "Humans look like humans," Jevil waved off. "My friend here already blends in."
 
-"...I suppose I didn't realise she was human until Alphys pointed me in her direction for assessment and I uh... Hey, sorry for flipping out at you and Mettaton earlier, Alphys."
+"...I suppose I didn't know she was human until Alphys pointed me in her direction for assessment and I uh... Hey, sorry for flipping out at you and Mettaton earlier, Alphys."
 
 "I-it's okay," the doctor replied easily. "Again, I get it..."
 
@@ -108,7 +108,7 @@ As soon as you realised, your sleep haze slowly clearing, your cheeks burned cri
 
 The exaggerated movement caught the attention of the person beyond the opposite end of the couch. "Oh hey. Alphy, the punk's awake."
 
-You shot a tired glance at the speaker... and your stomach dropped. Undyne was watching, *had been* watching, waiting. You couldn't help the little jolt of fear through your nerves. She of course noticed that too, and immediately raised her open palms. "Hey, chill. I know we uh, got off to a bad start. I swear I just want to chat. We got a fair bit to get through."
+You shot a tired glance at the speaker... and your stomach dropped. Undyne was watching, *had been* watching, waiting. You couldn't help the little jolt of fear through your nerves. She of course noticed that too, and immediately raised her open palms. "Hey, chill. I know we uh, got off to a bad start. I swear I just want to chat. Figure out your whole deal."
 
 Your brows furrowed in confusion, not entirely convinced, but pulled yourself up into a sitting position as Alphys paused the anime. A noodle cup was quickly pressed into your hands, and you began to dig in, the food swiftly disappearing down your throat and restoring your HP further. 
 
@@ -168,7 +168,7 @@ You thought on it for a moment, though, and a thought came to mind. "I have... a
 
 "And the teleporting," prompted Undyne.
 
-"Mmm. The only other time I was able to do something quite as powerful was... when I found out he got my human body killed. I don't *think* it's actually like, strong emotions or trauma triggers this stuff, but... I guess if Jevil is powering my body, that same chaos magic still sorta... resides in me, even when filtered through my soul."
+"Mmm. The only other time I was able to do something quite as powerful was... when I found out he got my human body killed. I don't *think* it's actually like, strong emotions or trauma triggers this stuff, but... I guess if Jevil is powering my body, that same chaos magic still sorta... resides in me, even when filtered through my soul. I guess it’s like… I have the intent, he has the means to punch through reality."
 
 "And how much control does he have over you, like this?" Undyne leaned back, crossing her arms. "I mean, you experienced the same stuff he did, right? What's to say you're not just as mad as he is?"
 
